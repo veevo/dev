@@ -1,0 +1,41 @@
+<!DOCTYPE html>
+<html>
+
+  {% include head.html %}
+
+  <body class="no-sidebar">
+
+    {% include header.html %}
+    <div class="page-content">
+
+	<!-- Main -->
+	<article id="main">
+
+      <header class="special container">
+        <span class="icon fa-heart"></span>
+        <h2>{{ page.section }} | <strong>{{ page.title }}</strong></h2>
+        <p>{{ page.subtitle }}</p>
+      </header>
+        
+      <!-- One -->
+      <section class="wrapper style4 container">
+      
+        <!-- Content -->
+        <div class="content">
+          <section>
+            <a href="#" class="image featured"><img src="images/pic04.jpg" alt="" /></a>
+
+            {{ content }}
+            
+        </div>
+  
+      </section>
+  
+    </article>
+        
+    </div>
+    {% include footer.html %}
+
+  </body>
+
+</html>
