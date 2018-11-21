@@ -67,8 +67,8 @@ layout: default
 							
 				<header><h2>See Also</h2></header>
 				<p>
-					<a href="/books/kardec/gospel-according-spiritism">The Genesis</a><br>
-					<a href="/books/kardec/gospel-according-spiritism/contents">The Genesis - Table of Contents</a><br>
+					<a href="/books/allan-kardec/gospel-according-spiritism">The Genesis</a><br>
+					<a href="/books/allan-kardec/gospel-according-spiritism/contents">The Genesis - Table of Contents</a><br>
 				</p>
 
 			</section>

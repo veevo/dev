@@ -24,8 +24,8 @@ layout: default
 
 					<header><h2>Sections</h2></header>
 					<p>
-						<a href="/books/kardec/spiritism-simplest-expression/outline">Outline of the Spirits’ Teachings</a><br>
-						<a href="/books/kardec/spiritism-simplest-expression/precepts">Precepts of Spirits' Teachings</a><br>
+						<a href="/books/allan-kardec/spiritism-simplest-expression/outline">Outline of the Spirits’ Teachings</a><br>
+						<a href="/books/allan-kardec/spiritism-simplest-expression/precepts">Precepts of Spirits' Teachings</a><br>
 					</p>
 
 					<header><h2>More Information</h2></header>
@@ -46,10 +46,10 @@ layout: default
 						
 					<header><h2>Related</h2></header>
 					<p>
-						<a href="/books/kardec/spirits-book">The Spirits Book</a><br>
-						<a href="/books/kardec/gospel-according-spiritism">The Gospel according to Spiritism</a><br>
-						<a href="/books/kardec/genesis">Genesis</a><br>
-						<a href="/books/kardec/heaven-and-hell">Heaven and Hell</a><br>
+						<a href="/books/allan-kardec/spirits-book">The Spirits Book</a><br>
+						<a href="/books/allan-kardec/gospel-according-spiritism">The Gospel according to Spiritism</a><br>
+						<a href="/books/allan-kardec/genesis">Genesis</a><br>
+						<a href="/books/allan-kardec/heaven-and-hell">Heaven and Hell</a><br>
 					</p>
 
 				</section>				

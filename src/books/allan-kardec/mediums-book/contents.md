@@ -68,8 +68,8 @@ layout: default
 				
 				<header><h2>See Also</h2></header>
 				<p>
-					<a href="/books/kardec/mediums-book/main-topics">About The Mediums Book</a><br>
-					<a href="/books/kardec/mediums-book/concepts">The Mediums Book - Main Concepts</a><br>
+					<a href="/books/allan-kardec/mediums-book/main-topics">About The Mediums Book</a><br>
+					<a href="/books/allan-kardec/mediums-book/concepts">The Mediums Book - Main Concepts</a><br>
 				</p>
 
 			</section>

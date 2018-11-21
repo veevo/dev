@@ -71,8 +71,8 @@ layout: default
 				
 				<header><h2>See Also</h2></header>
 				<p>
-					<a href="/books/kardec/spirits-book">The Spirits Book</a><br>
-					<a href="/books/kardec/spirits-book/concepts">The Spirits Book - Main Concepts</a><br>
+					<a href="/books/allan-kardec/spirits-book">The Spirits Book</a><br>
+					<a href="/books/allan-kardec/spirits-book/concepts">The Spirits Book - Main Concepts</a><br>
 				</p>
 
 			</section>

@@ -161,8 +161,8 @@ layout: default
 							
 				<header><h2>See Also</h2></header>
 				<p>
-					<a href="/books/kardec/gospel-according-spiritism">Heaven and Hell</a><br>
-					<a href="/books/kardec/gospel-according-spiritism/contents">Heaven and Hell - Table of Contents</a><br>
+					<a href="/books/allan-kardec/gospel-according-spiritism">Heaven and Hell</a><br>
+					<a href="/books/allan-kardec/gospel-according-spiritism/contents">Heaven and Hell - Table of Contents</a><br>
 				</p>
 
 			</section>

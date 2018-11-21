@@ -390,8 +390,8 @@ layout: default
 				
 				<header><h2>See Also</h2></header>
 				<p>
-					<a href="/books/kardec/gospel-according-spiritism">The Gospel according to Spiritist</a><br>
-					<a href="/books/kardec/gospel-according-spiritism/contents">The Gospel according to Spiritist - Table of Contents</a><br>
+					<a href="/books/allan-kardec/gospel-according-spiritism">The Gospel according to Spiritist</a><br>
+					<a href="/books/allan-kardec/gospel-according-spiritism/contents">The Gospel according to Spiritist - Table of Contents</a><br>
 				</p>
 
 			</section>
