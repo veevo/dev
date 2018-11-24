@@ -34,5 +34,10 @@ If study groups or Spiritist Centers are out of reach or you wish to begin study
 ## Source
 TODO: Add ref to SGNY
 
+
 ## See Also
+TODO
+
+
+## Suggested Reading
 TODO

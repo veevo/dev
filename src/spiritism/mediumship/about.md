@@ -1,14 +1,16 @@
 ---
 layout: default-md
-section: Quotes
-title: Lazarus
+section: Mediumship
+title: What is Mediumship?
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Main Quotes
+## What is Mediumship ?
 
-Todo
+TODO
 
+## Source
+TODO
 
 ## See Also
 TODO
@@ -16,3 +18,4 @@ TODO
 
 ## Suggested Reading
 TODO
+

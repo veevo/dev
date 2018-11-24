@@ -79,6 +79,11 @@ These spirits will also constitute a newer and more enlightened race whose dutie
 
 34. While the outlawed generation will quickly disappear, a new one will arise whose beliefs will be founded upon Christian Spiritism. We are witnessing an operating transition, a prelude to a moral renewal labeled by Spiritism’s arrival. 
 
-## See Also
 
+
+## See Also
+TODO
+
+
+## Suggested Reading
 TODO
