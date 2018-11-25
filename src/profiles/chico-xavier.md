@@ -27,5 +27,6 @@ Chico Xavier is a gift from Above to our troubled times, enriching our values wi
 TODO:: Add link to SGNY
 
 ## See Also
-
 TODO
+
+<a href="/profiles" class="button">Back to profiles</a>

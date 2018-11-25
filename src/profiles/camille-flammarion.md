@@ -37,5 +37,6 @@ Spiritist Group of New York, Aug 2002
 Great Exponents of Spiritism  
 
 ## See Also
-
 TODO
+
+<a href="/profiles" class="button">Back to profiles</a>

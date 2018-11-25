@@ -65,5 +65,6 @@ Experimental tests of the Survival
 Socialism and Spiritism  
 
 ## See Also
-
 TODO
+
+<a href="/profiles" class="button">Back to profiles</a>

@@ -109,5 +109,6 @@ Aug 2002 Great Mediums and Spiritual Guides
 Translated by Jussara Korngold
 
 ## See Also
-
 TODO
+
+<a href="/profiles" class="button">Back to profiles</a>

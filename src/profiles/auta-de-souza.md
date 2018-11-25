@@ -128,5 +128,6 @@ Translated by the Group Mensageiros – Brazil
 TODO:: Add link to SGNY
 
 ## See Also
-
 TODO
+
+<a href="/profiles" class="button">Back to profiles</a>
