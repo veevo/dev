@@ -9,8 +9,6 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
-
 ### The Spiritist Codification
 
 [The Spirits' Book](spirits-book)  
@@ -20,15 +18,13 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 [Heaven and Hell](heaven-and-hell)  
 
 ### Other books
-[The Spiritist Journal]()  
+[The Spiritist Review](the-spiritist-review)  
 [The Spiritism on its simplest expression](spiritism-simplest-expression)  
-[What is Spiritism?]()  
+[What is Spiritism?](what-is-spiritism)  
 
-### See also
+## See also
 [About Allan Kardec]()  
-
-
-
-## See Also
-
 TODO
+
+<a href="/books" class="button">Back to Books</a>
+

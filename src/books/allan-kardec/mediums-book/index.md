@@ -14,6 +14,10 @@ Allan Kardec describes the book (in Le Revue Spirite (Spiritist Journal) 1861 ) 
 
 Most importantly the work deals with not just the technical details of the phenomena and devolopment of a medium but also with the even more important details on the ethical development and practice critical for the use of a mediumship gift and in the life of any Spiritist in general. 
 
+## Author(s)
+Allan Kardec
+
+
 ## Additional Information
 [Table of Contents](contents)  
 [Main Concepts](concepts)  
@@ -31,5 +35,8 @@ TODO:
 
 
 ## See Also
-
 TODO
+
+<a href="/books/allan-kardec" class="button">Back to Allan Kardec Books</a>
+<a href="/books" class="button">Back to All Books</a>
+

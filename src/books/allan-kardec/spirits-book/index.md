@@ -12,14 +12,15 @@ Because Rivail was an experienced educator and writer he managed to present a la
 
 The publication of The Spirits’ Book caused something such a sensation in France not least because its ‘author’ was a sober, respected intellectual, but also because it contained ‘spirit communications’ that answered his questions in relation to every subject from the internal structure of matter to the nature of God, human ethics, the universe and the place of humankind within it. Indeed, the contents of The Spirits’ Book was probably not the sort of stuff that the public had been led to expect from the mediumship craze that had, over the space of only nine years, swept across America and Europe after being initiated by two children!” 
 
+## Author(s)
+Allan Kardec
+
+
 ## Additional Information
 
 [Table of Contents](contents)  
 [Main Concepts](concepts)  
-[Download]()  
 
-### Where to buy?
-TODO:
 
 ## Related
 
@@ -29,6 +30,14 @@ TODO:
 [Heaven and Hell]()  
 
 
-## See Also
-
+## Buy
 TODO
+
+## Download
+TODO
+
+
+
+<a href="/books/allan-kardec" class="button">Back to Allan Kardec Books</a>
+<a href="/books" class="button">Back to All Books</a>
+

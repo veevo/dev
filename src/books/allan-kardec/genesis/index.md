@@ -22,6 +22,11 @@ In spite of the fact that the Spirit Teachers, like with other revelations in hi
 
 > … it is astonishing how few of the spirits’ ‘scientific’ statements appear anachronistic today. In fact, some of the answers to Rivail’s questions could be interpreted as being remarkably ahead of their time. One such example was Rivail’s question ‘Does an absolute void exist in any part of space?’ which received the reply:- ‘No, there is no void. What appears like a void to you is occupied by matter in a state in which it escapes the action of your senses and of your instruments.’ This statement (given in the 1860’s), to the effect that seemingly empty space is really full of matter, has only received confirmation quite recently by the discovery of what is termed the ‘quantum vacuum’, and was given shortly after the spirits had also casually announced that ‘…what you term a molecule [or, perhaps, ‘particle’ or ‘atom’] is still very far from being the elementary molecule’. This latter scientific fact would not be confirmed until J.J. Thomson discovered the electron almost half a century later. “ 
 
+
+## Author(s)
+Allan Kardec
+
+
 ## Additional Information
 [Table of Contents](contents)  
 [Main Concepts](concepts)  

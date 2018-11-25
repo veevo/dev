@@ -17,6 +17,10 @@ Miguel Bertolucci writes (in the preface to the 2000 edition, translated and pub
 
 > This is therefore a book that invites the reader to ponder her or his life through the vivid accounts from those who have already mastered their lessons, and the reflections of those who were willing to reevaluate their own past experiences on Earth. This is what makes the Gospel a true guide for our own inner transformation, and for engaging the self in the discovery of each person’s true purpose in life.”
 
+## Author(s)
+Allan Kardec
+
+
 ## Additional Information
 [Table of Contents](contents)  
 [Main Concepts](concepts)  
@@ -36,3 +40,8 @@ TODO:
 ## See Also
 
 TODO
+
+
+<a href="/books/allan-kardec" class="button">Back to Allan Kardec Books</a>
+<a href="/books" class="button">Back to All Books</a>
+

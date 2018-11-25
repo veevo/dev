@@ -1,60 +1,36 @@
 ---
-layout: default
+layout: default-md
+section: Books
+title: Spiritism in its Simplest Expression
+subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-	<!-- Main -->
-	<article id="main">
+## Bibliography
 
-		<header class="special container">
-			<span class="icon fa-heart"></span>
-			<h2><strong>Spiritism Simplest Expression</strong></h2>
-			<p>In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.</p>
-		</header>
-			
-		<!-- One -->
-		<section class="wrapper style4 container">
-		
-			<!-- Content -->
-			<div class="content">
-				<section>
-					<a href="#" class="image featured"><img src="images/pic04.jpg" alt="" /></a>
-					<header><h2>Introduction</h2></header>
-					<p>Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.</p>
-					<p>In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus. Suspendisse euismod lorem eget lacinia fringilla. Sed sed felis justo. Nunc sodales elit in laoreet aliquam. Nam gravida, nisl sit amet iaculis porttitor, risus nisi rutrum metus, non hendrerit ipsum arcu tristique est.</p>
+In his attempt to popularize Spiritism and make its spreading easier and quicker without prejudicing the basic words of the Spiritist Doctrine, Allan Kardec wrote a number of booklets and distributed them throughout France at prices that were affordable for anyone who might be interested. Some of them had several printings and were highly successful. They continued to be republished even after the Codifier’s discarnation.
 
-					<header><h2>Sections</h2></header>
-					<p>
-						<a href="/books/allan-kardec/spiritism-simplest-expression/outline">Outline of the Spirits’ Teachings</a><br>
-						<a href="/books/allan-kardec/spiritism-simplest-expression/precepts">Precepts of Spirits' Teachings</a><br>
-					</p>
+This is one of those booklets. It is hoped that Spiritist readers will find that this unpretentious work enriches their knowledge of the Spiritist Doctrine.
 
-					<header><h2>More Information</h2></header>
-					<p>
-						Author: Allan Kardec<br>
-						Original Tile: LE SPIRITISME A SA PLUS SIMPLE EXPRESSION
-					</p>
+## Author(s)
+Allan Kardec
 
-					<header><h2>Download</h2></header>
-					<p>
-						TODO: (add download to:) http://www.oconsolador.com.br/linkfixo/bibliotecavirtual/oespiritismoemsuamaissimplesexpressao.pdf<br>
-					</p>
 
-					<header><h2>Where to buy?</h2></header>
-					<p>
-						TODO:
-					</p>
-						
-					<header><h2>Related</h2></header>
-					<p>
-						<a href="/books/allan-kardec/spirits-book">The Spirits Book</a><br>
-						<a href="/books/allan-kardec/gospel-according-spiritism">The Gospel according to Spiritism</a><br>
-						<a href="/books/allan-kardec/genesis">Genesis</a><br>
-						<a href="/books/allan-kardec/heaven-and-hell">Heaven and Hell</a><br>
-					</p>
+## Related Books
 
-				</section>				
+### The Spiritist Codification
+[The Spirits' Book](spirits-book)  
+[The Mediums Book](mediums-book)  
+[The Gospel Explained By The Spiritist Doctrine](gospel-according-spiritism)  
+[Genesis](genesis)  
+[Heaven and Hell](heaven-and-hell)  
 
-			</div>			
-		</section>
-		
-	</article>
+## See also
+[About Allan Kardec]()  
+TODO
+
+
+
+<a href="/books/allan-kardec" class="button">Back to Allan Kardec Books</a>
+<a href="/books" class="button">Back to All Books</a>
+
+

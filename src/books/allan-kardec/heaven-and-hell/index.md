@@ -22,6 +22,10 @@ There were also communications from many other types of spiritual miscreant. Som
 Allan Kardec wrote, in Le Revue Spirite (Spiritist Journal) of September 1865:
 > “The title of this work clearly indicates its objective. There, we compiled all the elements needed to enlighten man about his destiny. As in our other writings about the Spiritist Doctrine, we have introduced no product of any preconceived system or of any personal notion, which would have no authority. Everything there is deduced from observation and agreement of facts.”
 
+## Author(s)
+Allan Kardec
+
+
 ## Additional Information
 [Table of Contents](contents)  
 [Main Concepts](concepts)  
@@ -39,5 +43,8 @@ TODO:
 
 
 ## See Also
-
 TODO
+
+<a href="/books/allan-kardec" class="button">Back to Allan Kardec Books</a>
+<a href="/books" class="button">Back to All Books</a>
+
