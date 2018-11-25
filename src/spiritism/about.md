@@ -13,5 +13,8 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 
 
 ## See Also
+[Spiritism - Science, Philosophy and Religion](science-philosophy-religion)
 
-TODO
+
+<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/history" class="button">Next: History of Spiritism</a>

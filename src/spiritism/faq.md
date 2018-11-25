@@ -314,3 +314,6 @@ TODO: Add Source
 ## See Also
 
 TODO
+
+<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/codification" class="button">Next: The Codification</a>

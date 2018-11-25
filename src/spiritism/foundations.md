@@ -65,3 +65,7 @@ TODO
 
 ## Suggested Reading
 TODO
+
+
+<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/teachings" class="button">Next: Teachings</a>

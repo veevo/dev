@@ -41,3 +41,7 @@ TODO
 
 ## Suggested Reading
 TODO
+
+
+<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/backlash" class="button">Next: Backlash to the Codification</a>

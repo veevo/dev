@@ -87,3 +87,7 @@ TODO
 
 ## Suggested Reading
 TODO
+
+
+<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/how-to-study" class="button">Next: How to Study</a>

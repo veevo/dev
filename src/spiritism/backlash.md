@@ -26,3 +26,7 @@ TODO
 
 ## Suggested Reading
 TODO
+
+
+<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/why-it-endured" class="button">Next: Why it endured</a>

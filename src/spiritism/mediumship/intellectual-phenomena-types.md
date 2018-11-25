@@ -56,3 +56,8 @@ TODO
 ## Suggested Reading
 TODO
 
+
+
+<a href="/spiritism/mediumship" class="button">Back to Mediumship</a>
+<a href="/spiritism/" class="button">Back to Spiritism</a>
+

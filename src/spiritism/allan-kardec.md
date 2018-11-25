@@ -18,3 +18,6 @@ TODO
 
 ## Suggested Reading
 TODO
+
+
+<a href="/spiritism" class="button">Back to Spiritism</a>

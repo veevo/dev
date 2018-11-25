@@ -89,3 +89,7 @@ TODO
 
 ## Suggested Reading
 TODO
+
+
+<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/foundations" class="button">Next: Foundations</a>
