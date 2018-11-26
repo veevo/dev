@@ -6,7 +6,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## What is the perispirit?
-[Spirit](/about/spirit) [incarnated](/about/incarnation) in a [material body](/about/physical-body). The [perispirit](/about/perispirit) is the semi-material body that unites the Spirit to the physical body.
+[Spirit](/about/spirits) [incarnated](/about/incarnation) in a [material body](/about/physical-body). The [perispirit](/about/perispirit) is the semi-material body that unites the Spirit to the physical body.
 
 In addition to the corporeal world inhabited by incarnate Spirits, which are Human Beings, there exists the spiritual world, inhabited by discarnate Spirits.
 

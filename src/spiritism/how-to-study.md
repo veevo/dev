@@ -44,4 +44,4 @@ TODO
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/backlash" class="button">Next: Backlash to the Codification</a>
+<a href="/spiritism/how-to-practice" class="button">Next: Spiritism - How to Practice</a>

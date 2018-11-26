@@ -7,14 +7,14 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 ## What is God?
 
-God is the Supreme Intelligence, first cause of all things. God is eternal, immutable, immaterial, unique, omnipotent, supremely just and good. 
+»  God is the supreme intelligence and primary cause of all things.
 
-### God's Laws
+»  God is eternal, immutable, unique, omnipotent, supremely just and good.
 
-All the Laws of Nature are [Divine Laws](/divine-laws) because God is their author. They cover both the physical and moral laws
+»  The universe is a creation of God. It encompasses all beings, whether they be rational or irrational, animate or inanimate, material or immaterial.
 
-### The Universe and God
-The Universe is God’s creation. It encompasses all rational and non-rational beings, both animate and inanimate, [material](/about/material-world) and [immaterial](/about/spiritual-world). 
+»  All the laws of nature are [Divine Laws](/divine-laws) because God is their author. They cover both the physics and moral laws. 
+
 
 
 ## See Also

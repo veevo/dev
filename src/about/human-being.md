@@ -7,7 +7,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 ## A Human according to Spiritism
 
-Human Being is a [Spirit](/about/spirit) [incarnated](/about/incarnation) in a [material body](/about/physical-body). The [perispirit](/about/perispirit) is the semi-material body that unites the Spirit to the [physical body](/about/physical-body).
+Human Being is a [Spirit](/about/spirits) [incarnated](/about/incarnation) in a [material body](/about/physical-body). The [perispirit](/about/perispirit) is the semi-material body that unites the Spirit to the [physical body](/about/physical-body).
 
 In addition to the [material world](/about/material-world) inhabited by incarnate Spirits, which are Human Beings, there exists the spiritual world, inhabited by discarnate Spirits.
 

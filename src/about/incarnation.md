@@ -20,12 +20,12 @@ layout: default
 					<a href="#" class="image featured"><img src="images/pic04.jpg" alt="" /></a>
 					<header><h3>A Human according to Spiritism</h3></header>
 					<p>
-						Human Being is a <a href="/about/spirit">Spirit</a> <a href="/about/incarnation">incarnated</a> in a material body.
+						Human Being is a <a href="/about/spirits">Spirit</a> <a href="/about/incarnation">incarnated</a> in a material body.
 						The <a href="/about/perispirit">perispirit</a> is the semi-material body that unites the Spirit to the physical body.
 					</p>
 					<p>
 						In addition to the corporeal world inhabited by incarnate Spirits, which are Human Beings, there exists the 
-						<a href="/about/spiritual-world">spiritual world</a>, inhabited by discarnate Spirits.
+						<a href="/about/spiritsual-world">spiritual world</a>, inhabited by discarnate Spirits.
 					</p>
 
 					Human Beings are given the free will to act, but they must answer for the consequences of their actions.

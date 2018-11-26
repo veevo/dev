@@ -90,4 +90,4 @@ TODO
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/how-to-study" class="button">Next: How to Study</a>
+<a href="/spiritism/not-spiritism" class="button">Next: Spiritist - What it is NOT</a>

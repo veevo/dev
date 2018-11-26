@@ -5,10 +5,6 @@ title: History
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Introduction
-The below was written by Allan Kardec in the 1860s, giving his personal explanation of the circumstances that led him to write the Spiritist codification.
-
-
 ## The History of Spiritism
 
 By the year 1848, several strange phenomena were gaining notoriety in the United States, consisting in noises, raps and movement of objects with no apparent cause. They would happen spontaneously, several times, with a characteristic intensity and frequency.  However, it soon became clear that these phenomena could also occur through the presence of certain people whom were known as ”mediums”.  These people could provoke the phenomena at will, making experiments possible. Such experiments were made using tables, not because these objects are more favorable than others, but because they were more convenient, movable, and because it was easier to sit around them than any other furniture. In this way the rotation of tables was achieved, and subsequently, movements in all directions: jumps, turns, fluctuations, violent strokes etc. These phenomena were originally called ‘table dancing’ or ‘table turning’.
@@ -78,9 +74,9 @@ It is true that Spiritism opposes certain beliefs such as eternal punishments, t
 As the souls are the spirits, one can not deny the existence of the spirits without denying the souls. If one admits to the existence of souls or spirits, the question is then reduced to its purest expression: Can the souls of the dead communicate with the living? Spiritism proves the affirmative by material facts. What proof can be given to the contrary ? If it is so, all negations will not impede that it continues to be, since one deals with no system or theory but with nature’s law. Now then, humankind’s will is powerless before nature’s law and whether one wants to or not, its consequences must be accepted as well as human’s beliefs and habits adequate themselves to them.
 
 ## Source
-Translated into English by A. L. Xavier Jr. and Carol de Macedo.
-
-Based on the essay “O Espiritismo em sua mais simples expressão” by A. Kardec, 2nd ed., FEESP (1989).
+Written by Allan Kardec in the 1860s, giving his personal explanation of the circumstances that led him to write the Spiritist codification.  
+Translated into English by A. L. Xavier Jr. and Carol de Macedo.  
+Based on the essay “O Espiritismo em sua mais simples expressão” by A. Kardec, 2nd ed., FEESP (1989).  
 
 
 ## See Also
@@ -92,4 +88,4 @@ TODO
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/foundations" class="button">Next: Foundations</a>
+<a href="/spiritism/backlash" class="button">Next: Backlash to the Codification</a>

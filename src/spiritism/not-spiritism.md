@@ -55,3 +55,4 @@ TODO: Add - www.explorespiritism.com/SPIRITIST CENTER ACTIVITIES.htm
 TODO
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/history" class="button">Next: History of Spiritism</a>

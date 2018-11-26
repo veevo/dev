@@ -12,7 +12,7 @@ layout: default
 			Spiritism reveals that the Laws of Nature cover both laws of physics and ethical laws. These divine moral and physical laws are those that govern our existences and the rest of the universe. Here are a very brief summery of each:
 
 			There are two types of divine laws: Phisycal and Moral.
-			Phisycal laws govern the <a href="/about/material-world">material worlds</a>, while Moral laws govern the <a href="/about/spiritual-world">spiritual</a> worlds
+			Phisycal laws govern the <a href="/about/material-world">material worlds</a>, while Moral laws govern the <a href="/about/spiritsual-world">spiritual</a> worlds
 		</header>
 			
 		<!-- One -->
