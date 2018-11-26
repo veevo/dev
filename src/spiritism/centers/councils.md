@@ -25,7 +25,6 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 
 
 ## See Also
-
 TODO
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>

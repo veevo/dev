@@ -21,5 +21,5 @@ Fraternal assistance is a friendly counseling service offered to those who come 
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/centers" class="button">Back to Spiritism Centers</a>
+<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="community-outreach" class="button">Next: Community Outreach</a>

@@ -25,5 +25,5 @@ Many centers offer meetings or study groups for the youth, as well, with lessons
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/centers" class="button">Back to Spiritism Centers</a>
+<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="study-groups" class="button">Next: Class and Study Groups</a>

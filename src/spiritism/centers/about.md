@@ -5,7 +5,7 @@ title: About
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## About Spiritist Centers
+## What are Spiritist Centers
 
 You may wonder where those who follow Spiritism go to meet, study, work, and pray together.
 
@@ -24,25 +24,17 @@ A Spiritist center is more than just a place to study. It is a place to pray, le
 
 Spiritist centers cover an extremely broad spectrum in terms of size, number, and scope of activities.  There are some centers with as few as 10 or 20 people, others with hundreds, and even, in some cases, thousands of members.  Still, there are some basic activities common to most centers, regardless of size.
 
-Typical Activities at a Spiritist Center are:
-<a href="public-meetings">Public Meetings, </a>
-<a href="fluidic-therapy">Fluidic Therapy, </a>
-<a href="children-youth-studies">Children's and Youth Studies, </a>
-<a href="study-groups">Class and Study Groups, </a>
-<a href="mediumship-sessions">Mediumship Sessions, </a>
-<a href="fraternal-assistance">Fraternal Assistance, </a>
-<a href="community-outreach">Community Outreach</a>
+
+## Next
+Know the activities that occour in a Spiritist Center:  
+[Public Meetings](public-meetings)  
+[Fluidic Therapy](fluidic-therapy)  
+[Children's and Youth Studies](children-youth-studies)  
+[Class and Study Groups](study-groups)  
+[Mediumship Sessions](mediumship-sessions)  
+[Fraternal Assistance](fraternal-assistance)  
+[Community Outreach](community-outreach)  
 
 
-## See Also
-[Spiritist Center Activities - Public Meetings](public-meetings)  
-[Spiritist Center Activities - Fluidic Therapy](fluidic-therapy)  
-[Spiritist Center Activities - Children's and Youth Studies](children-youth-studies)  
-[Spiritist Center Activities - Class and Study Groups](study-groups)  
-[Spiritist Center Activities - Mediumship Sessions](mediumship-sessions)  
-[Spiritist Center Activities - Fraternal Assistance](fraternal-assistance)  
-[Spiritist Center Activities - Community Outreach](community-outreach)  
-
-
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="public-meetings" class="button">Next: Public Meetings</a>

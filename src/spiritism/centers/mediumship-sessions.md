@@ -21,5 +21,5 @@ These meetings, which are not open to the public, are held with a consistent gro
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/centers" class="button">Back to Spiritism Centers</a>
+<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="fraternal-assistance" class="button">Next: Fraternal Assistance</a>

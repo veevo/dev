@@ -21,5 +21,5 @@ Many Spiritist centers offer weekly classes or study groups.  The duration of su
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/centers" class="button">Back to Spiritism Centers</a>
+<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="mediumship-sessions" class="button">Next: Mediumship Sessions</a>

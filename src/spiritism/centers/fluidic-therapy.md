@@ -23,5 +23,5 @@ You can read more about Fluidic Therapy by reading the section titled "Intro to 
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/centers" class="button">Back to Spiritism Centers</a>
+<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="children-youth-studies" class="button">Next: Children's and Youth Studies</a>
