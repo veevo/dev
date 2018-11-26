@@ -19,14 +19,19 @@ You can find the following teachings on this section:
 [Backlash to the Codification](backlash)  
 [Spiritism - Why it Endured](why-it-endured)  
 
+### The Spiritist Codification
+[Spiritism - The Codification](codification)  
+[Allan Kardec](/profiles/allan-kardec)  
+
 ### Studying Spiritism
 [Spiritism - How to Study](how-to-study)  
 [Spiritism - How to Practice](how-to-practice)  
 
 ## See Also
 [Spiritism - Science, Philosophy and Religion](science-philosophy-religion)  
+[Spiritism - Advanced Topics](advanced)  
 [FAQ](faq)
 
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/about" class="button">Next: Spiritism - Itroduction</a>
+<a href="/spiritism/about" class="button">Next: Spiritism - Introduction</a>

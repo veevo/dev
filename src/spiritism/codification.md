@@ -5,11 +5,16 @@ title: The Codification
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## About the Codification
+## Spiritism - The Codification
 
 Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+### Books
+[The Spirits Book](/books/allan-kardec/spirits-book)  
+[The Mediums Book](/books/allan-kardec/mediums-book)  
+[Gospel According to Spiritism](/books/allan-kardec/gospel-according-spiritism)  
+[Genesis](/books/allan-kardec/genesis)  
+[Heaven and Hell](/books/allan-kardec/heaven-and-hell)  
 
 
 ## See Also
@@ -17,4 +22,5 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 TODO
 
 <a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/how-to-study" class="button">Next: How to study Spiritism</a>
 
