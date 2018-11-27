@@ -53,5 +53,5 @@ TODO
 
 
 <a href="/books/divaldo-franco" class="button">Back to Divaldo Franco Books</a>
-<a href="/books" class="button">Back to all Books</a>
+<a href="/books" class="button">All Books</a>
 

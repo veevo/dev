@@ -48,5 +48,5 @@ TODO
 
 
 <a href="/books/chico-xavier" class="button">Back to Chico Xavier Books</a>
-<a href="/books" class="button">Back to all Books</a>
+<a href="/books" class="button">All Books</a>
 
