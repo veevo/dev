@@ -11,23 +11,25 @@ In his attempt to popularize Spiritism and make its spreading easier and quicker
 
 This is one of those booklets. It is hoped that Spiritist readers will find that this unpretentious work enriches their knowledge of the Spiritist Doctrine.
 
+### Contents
+A History of Spiritism  
+Summary of the Spirits' Teachings  
+Maxims Taken from the Spirits' Teachings  
+
+
 ## Author(s)
 Allan Kardec
 
 
-## Related Books
-
-### The Spiritist Codification
-[The Spirits' Book](spirits-book)  
-[The Mediums Book](mediums-book)  
-[The Gospel Explained By The Spiritist Doctrine](gospel-according-spiritism)  
-[Genesis](genesis)  
-[Heaven and Hell](heaven-and-hell)  
+## Related
+[The Spirits Book](../spirits-book)  
+[The Mediums Book](../mediums-book)  
+[The Gospel according to Spiritist](../gospel-according-spiritism)  
+[Heaven and Hell](../heaven-and-hell)  
+[Genesis](../genesis)  
 
 ## See also
-[About Allan Kardec]()  
 TODO
-
 
 
 <a href="/books/allan-kardec" class="button">Back to Allan Kardec Books</a>

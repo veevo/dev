@@ -12,9 +12,7 @@ The Spiritist Review was written and published by Allan Kardec from January 1858
 ## Author(s)
 Allan Kardec
 
-## Related Books
-
-### The Spiritist Codification
+## Related
 [The Spirits' Book](spirits-book)  
 [The Mediums Book](mediums-book)  
 [The Gospel Explained By The Spiritist Doctrine](gospel-according-spiritism)  
@@ -22,7 +20,6 @@ Allan Kardec
 [Heaven and Hell](heaven-and-hell)  
 
 ## See also
-[About Allan Kardec]()  
 TODO
 
 

@@ -14,13 +14,13 @@ Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur m
 [The Spirits' Book](spirits-book)  
 [The Mediums Book](mediums-book)  
 [The Gospel Explained By The Spiritist Doctrine](gospel-according-spiritism)  
-[Genesis](genesis)  
 [Heaven and Hell](heaven-and-hell)  
+[Genesis](genesis)  
 
 ### Other books
-[The Spiritist Review](the-spiritist-review)  
-[The Spiritism on its simplest expression](spiritism-simplest-expression)  
 [What is Spiritism?](what-is-spiritism)  
+[The Spiritism on its simplest expression](spiritism-simplest-expression)  
+[The Spiritist Review](the-spiritist-review)  
 
 ## See also
 [About Allan Kardec]()  

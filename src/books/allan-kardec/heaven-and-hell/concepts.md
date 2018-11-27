@@ -1,6 +1,6 @@
 ---
 layout: default-md
-section: Books / Allan Kardec
+section: Books
 title: Heaven and Hell 
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---

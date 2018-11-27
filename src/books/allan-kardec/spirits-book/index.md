@@ -1,33 +1,41 @@
 ---
 layout: default-md
-section: Books / Allan Kardec
+section: Books
 title: The Spirits Book
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
+
 ## About the book
-The Spirits’ Book ("Le Livre des Esprits" in its original French title) was published on April 18, 1857. The book was structured as a collection of FAQs, grouped by theme, occasionally interrupted by lengthier articles on specific subjects.
+This book of questions and answers is the first book of the Spiritist Doctrine that resulted from Allan Kardec's work in comparing and analyzing numerous messages from different spirits, through various mediums, finally compiling this collection of information received from superior spirits and publishing it under their directive (see our History section for more information).  
 
-Because Rivail was an experienced educator and writer he managed to present a large amount of information in a way that was and continues to be easily understood by the adept and casual reader alike. It was so successful that a second edition, augmented with yet more material, was printed the following year and the name Alan Kardec became a household word all over the continent.
+This book lays out the basic philosophic principles of the Spiritist Doctrine, teaching us about the immortality of the soul, the nature of the spirit and the incorporeal world, the relationship between the material and spiritual worlds, the moral laws, the present life, and the future of humanity.
 
-The publication of The Spirits’ Book caused something such a sensation in France not least because its ‘author’ was a sober, respected intellectual, but also because it contained ‘spirit communications’ that answered his questions in relation to every subject from the internal structure of matter to the nature of God, human ethics, the universe and the place of humankind within it. Indeed, the contents of The Spirits’ Book was probably not the sort of stuff that the public had been led to expect from the mediumship craze that had, over the space of only nine years, swept across America and Europe after being initiated by two children!” 
+### Author Notes
+This is not a personal work of Allan Kardec, who says himself in the prologue:
+> "The Spirits tell us that the time appointed by Providence for a universal recognition of their existence has now come.  They have stated that their mission, as messengers and instruments of God, is to inaugurate a new era of regeneration for the human race. This book is a compilation of their teachings. It has been written at the request and under the dictation of advanced spirits for the purpose of establishing a rational philosophy, free from prejudices and pre-conceived notions. It contains nothing that is not the expression of the Spirits' thought and that has not been submitted to their approval."
+
+After you have read The Spirits’ Book, you will no longer have any reason to fear death.  The Spirits’ Book will provide you with the answers to nearly all the questions you may have with regards to the origin, nature and destiny of each and every soul on Earth – and those of other worlds as well. It also addresses the issues of God, creation, moral laws and the nature of spirits and their relationships with humans.
+
 
 ## Author(s)
-Allan Kardec
+Book Title: The Spirits’ Book¹  
+Author: Allan Kardec  
+First Published: Paris, 1857, with 2nd edition also by Kardec in 1860  
 
 
 ## Additional Information
-
 [Table of Contents](contents)  
 [Main Concepts](concepts)  
+[History of the Book](history)  
 
 
 ## Related
-
-[The Spirits Book]()  
-[The Mediums Book]()  
-[The Gospel according to Spiritist]()  
-[Heaven and Hell]()  
+[The Spirits Book](../spirits-book)  
+[The Mediums Book](../mediums-book)  
+[The Gospel according to Spiritist](../gospel-according-spiritism)  
+[Heaven and Hell](../heaven-and-hell)  
+[Genesis](../genesis)  
 
 
 ## Buy
@@ -40,4 +48,5 @@ TODO
 
 <a href="/books/allan-kardec" class="button">Back to Allan Kardec Books</a>
 <a href="/books" class="button">Back to All Books</a>
+<a href="/spiritism" class="button">Back to Spiritism</a>
 

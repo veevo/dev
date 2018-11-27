@@ -1,6 +1,6 @@
 ---
 layout: default-md
-section: Books / Allan Kardec
+section: Books
 title: The Mediums Book
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---

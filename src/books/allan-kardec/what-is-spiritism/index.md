@@ -20,14 +20,13 @@ Allan Kardec
 ## Related Books
 
 ### The Spiritist Codification
-[The Spirits' Book](spirits-book)  
-[The Mediums Book](mediums-book)  
-[The Gospel Explained By The Spiritist Doctrine](gospel-according-spiritism)  
-[Genesis](genesis)  
-[Heaven and Hell](heaven-and-hell)  
+[The Spirits Book](../spirits-book)  
+[The Mediums Book](../mediums-book)  
+[The Gospel according to Spiritist](../gospel-according-spiritism)  
+[Heaven and Hell](../heaven-and-hell)  
+[Genesis](../genesis)  
 
 ## See also
-[About Allan Kardec]()  
 TODO
 
 
