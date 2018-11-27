@@ -1,28 +1,23 @@
 ---
 layout: default-md
-section: Books
-title: Emmanuel
+section: Profile
+title: Paul of Tarsus
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Bibliography
+## Biography
 
 Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
 
 Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
 
-
-### Novels
-[Paul and Stephen](paul-and-stephen)  
-[Two Thousand Years Ago](two-thousand-years-ago)  
+## Source
+TODO:: Add Source
 
 
-### Other books
+## Suggested Reading
+[Paul and Stephan](/books/emmanuel/paul-and-stephen)
+
+
+## See Also
 TODO
-
-## See also
-TODO
-
-<a href="/books/emmanuel" class="button">Emmanuel - Bibliography</a>
-<a href="/books" class="button">All Books</a>
-
