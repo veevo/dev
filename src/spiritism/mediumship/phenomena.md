@@ -5,7 +5,7 @@ title: Phenomena
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Introduction to Mediumship
+## Information on Phenomena
 In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 
 ### Basic Concepts
@@ -14,11 +14,6 @@ In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputat
 [Intellectual phenomena](intellectual-phenomena)  
 [Intellectual phenomena types](intellectual-phenomena-types)  
 
-### Common Questions
-[Mediumship - Dangers](dangers)  
-[Mediumship - Expected Behavior](behavior)  
-[Mediumship - Frauds](frauds)  
-[Mediumship in children](mediumship-children)  
 
 
 ## See Also
