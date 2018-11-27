@@ -1,16 +1,14 @@
 ---
 layout: default-md
 section: Books
-title: Andre Luis
+title: André Luis
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Bibliography
+Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue.
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
-
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
-
+More about [André Luis](/profiles/andre-luis)
 
 ### Novels
 [Nosso Lar](nosso-lar)  
@@ -25,12 +23,21 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 [And Life Goes On](and-life-goes-on)  
 
 
+### Instructive
+[Disobsession](disobsession)  
+
+
+### Inspirational
+[Christian Agenda](christian-agenda)  
+[Green Light](green-light)  
+
+
 ### Other books
 TODO
 
 ## See also
 TODO
 
-<a href="/books/andre-luis" class="button">Andre Luis Bibliography</a>
+<a href="/books/andre-luis" class="button">André Luis - Bibliography</a>
 <a href="/books" class="button">All Books</a>
 

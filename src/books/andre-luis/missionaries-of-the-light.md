@@ -33,5 +33,5 @@ First Published: 1945
 [Sex and Destiny](sex-and-destiny)  
 [And Life Goes On](and-life-goes-on)  
 
-<a href="/books/andre-luis" class="button">Andre Luis Bibliography</a>
+<a href="/books/andre-luis" class="button">Andre Luis - Bibliography</a>
 <a href="/books" class="button">All Books</a>

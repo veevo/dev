@@ -17,6 +17,11 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 [Two Thousand Years Ago](two-thousand-years-ago)  
 
 
+### Inspirational Messages
+[Our Daily Bread](our-daily-bread)  
+[The Pathway, the Truth and the Life](pathway-truth-life)  
+
+
 ### Other books
 TODO
 

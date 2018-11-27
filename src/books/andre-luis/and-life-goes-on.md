@@ -29,5 +29,5 @@ First Published: 1968
 [Action and Reaction](action-and-reaction)  
 [Sex and Destiny](sex-and-destiny)  
 
-<a href="/books/andre-luis" class="button">Andre Luis Bibliography</a>
+<a href="/books/andre-luis" class="button">Andre Luis - Bibliography</a>
 <a href="/books" class="button">All Books</a>
