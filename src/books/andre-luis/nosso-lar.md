@@ -32,5 +32,8 @@ First Published: 1944
 [Sex and Destiny](sex-and-destiny)  
 [And Life Goes On](and-life-goes-on)  
 
+## Related
+[Watch: Astral City (based on the book Nosso Lar - A Spiritual Home)](/movies/astral-city)
+
 <a href="/books/andre-luis" class="button">Andre Luis - Bibliography</a>
 <a href="/books" class="button">All Books</a>

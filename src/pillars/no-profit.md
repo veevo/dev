@@ -13,5 +13,12 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 
 
 ## See Also
-
 TODO
+
+
+## Our Pillars
+<a href="/pillars/spiritism" class="button">Spiritism</a>
+<a href="/pillars/community" class="button">Community</a>
+<a href="/pillars/no-profit" class="button">Not for Profit</a>
+<a href="/pillars/openness" class="button">Openness</a>
+
