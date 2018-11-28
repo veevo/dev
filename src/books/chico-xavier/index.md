@@ -59,8 +59,12 @@ Francisco Xavier, José Herculano Pires and Several Spirits
 [A Primer on Being Good](a-primer-on-being-good)  
 Francisco Xavier and Mei Mei (Spirit)  
  
- 
+## Books about Chico
+[Chico Xavier: Medium of the Century](/books/other-authors/chico-xavier-medium-of-the-century)  
+Guy Lyon Playfair  
 
+[Endearing Gems from Francisco Cândido Xavier](/books/other-authors/gems-from-chico-xavier)  
+Collected works from Francisco Cândido Xavier
 
 ## DVDs
 [Pinga Fogo](pinga-fogo)  
