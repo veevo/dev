@@ -31,17 +31,11 @@ If study groups or Spiritist Centers are out of reach or you wish to begin study
 
 – If you are serious about the study of these books understand that even in study groups each book of the codification is studied more than once. Each time they are studies something new will be learned.
 
-## Source
+### Source
 TODO: Add ref to SGNY
 
 
-## See Also
-TODO
 
-
-## Suggested Reading
-TODO
-
-
+<a href="/spiritism/why-it-endured" class="button">Previous: Why it endured</a>
 <a href="/spiritism" class="button">Back to Spiritism</a>
 <a href="/spiritism/how-to-practice" class="button">Next: Spiritism - How to Practice</a>

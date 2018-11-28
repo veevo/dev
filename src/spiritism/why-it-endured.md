@@ -36,13 +36,7 @@ In conclusion Rivail’s scientific mind allowed him to accurately filter throug
 TODO: Add ref to SGNY
 
 
-## See Also
-TODO
 
-
-## Suggested Reading
-TODO
-
-
+<a href="/spiritism/backlash" class="button">Previous: Backlash to the Codification</a>
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/codification" class="button">Next: Spiritism - The Codification</a>
+<a href="/spiritism/how-to-study" class="button">Next: How to Study Spiritism</a>

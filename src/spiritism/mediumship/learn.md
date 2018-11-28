@@ -10,6 +10,7 @@ Mediumship is one of the pillars of Spiritism. Know from the link below some of 
 
 ### Basic Concepts
 [What is mediumship](about)  
+[Types of communications](communications)  
 [The evolution of the mediumship](mediumship-evolution)  
 [Practices For Improving the Mediumship](mediumship-practices)  
 

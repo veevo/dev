@@ -54,18 +54,11 @@ Prayer makes Human Beings better. Whoever prays with fervor and confidence grows
 
 
 
-## Source
+### Source
 From the original “Get to Know Spiritism, a new era for Humanity” by CEI (International Spiritist Council)
 
 
 
-## See Also
-TODO
-
-
-## Suggested Reading
-TODO
-
-
+<a href="/spiritism/about" class="button">Previous: Introduction</a>
 <a href="/spiritism" class="button">Back to Spiritism</a>
 <a href="/spiritism/teachings" class="button">Next: Teachings</a>

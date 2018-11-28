@@ -88,6 +88,6 @@ TODO
 ## Suggested Reading
 TODO
 
-
+<a href="/spiritism/foundations" class="button">Previous: Foundations</a>
 <a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/not-spiritism" class="button">Next: Spiritist - What it is NOT</a>
+<a href="/spiritism/codification" class="button">Next: The Codification</a>

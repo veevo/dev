@@ -23,8 +23,11 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 »  Spiritism respects all religions, values all efforts towards the practice of goodness and recognizes that "a true person of goodness is one who fulfils the laws of justice, love and charity in their purest forms."  
 
-## See Also
+
+### See Also
 [Spiritism - Science, Philosophy and Religion](science-philosophy-religion)
 
 
+<a href="/spiritism/how-to-study" class="button">Previous: How to Study Spiritism</a>
 <a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="/spiritism/how-to-study" class="button">Next: How to Study Spiritism</a>

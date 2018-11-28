@@ -79,13 +79,8 @@ Translated into English by A. L. Xavier Jr. and Carol de Macedo.
 Based on the essay “O Espiritismo em sua mais simples expressão” by A. Kardec, 2nd ed., FEESP (1989).  
 
 
-## See Also
-TODO
 
 
-## Suggested Reading
-TODO
-
-
+<a href="/spiritism/not-spiritism" class="button">Previous: What Spiritism is NOT</a>
 <a href="/spiritism" class="button">Back to Spiritism</a>
 <a href="/spiritism/backlash" class="button">Next: Backlash to the Codification</a>

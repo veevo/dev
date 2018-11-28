@@ -30,7 +30,7 @@ The religious aspect stems from the moral ties between ourselves, and others, an
 
 
 
-## See Also
+### See Also
 [Spiritism - Science, Philosophy and Religion](science-philosophy-religion)
 
 

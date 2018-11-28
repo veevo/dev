@@ -5,13 +5,14 @@ title: Learn
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## A simple guide to Learn Spiritism
-You can find the following teachings on this section:  
+## Learn Spiritism
+We prepared a summary of the Spiritist Doctrine as described below. You can find the following teachings on this section:
 
 ### Basic Concepts
 [Spiritism - Itroduction](about)  
 [Spiritism - Foundations](foundations)  
 [Spiritism - Teachings](teachings)  
+[Spiritism - The Codification](codification)  
 [Spiritist - What it is NOT](not-spiritism)  
 
 ### History
@@ -19,17 +20,13 @@ You can find the following teachings on this section:
 [Backlash to the Codification](backlash)  
 [Spiritism - Why it Endured](why-it-endured)  
 
-### The Spiritist Codification
-[Spiritism - The Codification](codification)  
-[Allan Kardec](/profiles/allan-kardec)  
 
 ### Studying Spiritism
 [Spiritism - How to Study](how-to-study)  
 [Spiritism - How to Practice](how-to-practice)  
 
-## See Also
+### See Also
 [Spiritism - Science, Philosophy and Religion](science-philosophy-religion)  
-[Spiritism - Advanced Topics](advanced)  
 [FAQ](faq)
 
 

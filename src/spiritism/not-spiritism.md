@@ -54,5 +54,7 @@ TODO: Add - www.explorespiritism.com/SPIRITIST CENTER ACTIVITIES.htm
 ## See Also
 TODO
 
+
+<a href="/spiritism/codification" class="button">Previous: The Codification</a>
 <a href="/spiritism" class="button">Back to Spiritism</a>
 <a href="/spiritism/history" class="button">Next: History of Spiritism</a>
