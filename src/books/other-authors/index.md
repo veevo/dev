@@ -42,14 +42,8 @@ Richard Simonetti
 [Mediumship: Life and Communication](mediumship-life-and-communication)  
 José Herculano Pires  
 
-[Memoirs of a Suicide](memoirs-of-a-suicide)  
-Yvonne Pereira and Camilo Cândido Botelho (Spirit)
-
 [Obsession, Passes, Counseling](obsession-passes-counseling)  
 José Herculano Pires  
-
-[On the Canvas of the Infinite](on-the-canvas-of-the-infinite)  
-Yvonne Pereira; Bezerra de Menezes and Camilo Castelo Branco (Spirits)  
 
 [Our Children Are Spirits](our-children-are-spirits)  
 Hermínio C. Miranda  

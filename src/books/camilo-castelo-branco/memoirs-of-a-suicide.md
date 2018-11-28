@@ -39,6 +39,6 @@ TODO
 TODO
 
 
-<a href="/books/other-authors" class="button">Back to Other Authors</a>
+<a href="/books/camilo-botelho" class="button">Camilo Castelo Branco - Bibliography</a>
 <a href="/books" class="button">All Books</a>
 
