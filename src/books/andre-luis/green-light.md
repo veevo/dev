@@ -23,7 +23,6 @@ Medium: Francisco Cândido Xavier
 
 ## See Also
 [Christian Agenda](christian-agenda)  
-[Green Light](green-light)  
 
 
 <a href="/books/andre-luis" class="button">Andre Luis - Bibliography</a>

@@ -27,7 +27,7 @@ More about [André Luis](/profiles/andre-luis)
 [Disobsession](disobsession)  
 
 
-### Inspirational
+### Inspirational Messages
 [Christian Agenda](christian-agenda)  
 [Green Light](green-light)  
 

@@ -6,7 +6,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## Overview
-[Back cover] This book presents a description of the spirit after the death of the physical body and demonstrates that the mental state directly impacts our existence in the spiritual world.
+This book presents a description of the spirit after the death of the physical body and demonstrates that the mental state directly impacts our existence in the spiritual world.
 
 In twenty six chapters, the book brings the story of real characters, who receive the help of spiritual friends upon discarnation. Those friends encourage them to renew themselves spiritually through study and work in order for them to prepare themselves to review and untangle the meaning of the lives they have just finished, therefore enabling them to pursue a more constructive course of behavior for their future.
 

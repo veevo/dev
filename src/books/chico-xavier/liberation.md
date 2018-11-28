@@ -6,7 +6,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## Overview
-[Back cover] In this compelling narrative, André Luiz emphasizes the work of high order spirits in the effort to convert the spirit Gregorio to the Good, an effort that culminates with the unforgettable reencounter with his mother – herself a highly evolved spirit – wherein he surrenders to the irresistible call of Love. The book also contains information on how unhappy spirits act as they try to involve incarnates in their wiles.
+In this compelling narrative, André Luiz emphasizes the work of high order spirits in the effort to convert the spirit Gregorio to the Good, an effort that culminates with the unforgettable reencounter with his mother – herself a highly evolved spirit – wherein he surrenders to the irresistible call of Love. The book also contains information on how unhappy spirits act as they try to involve incarnates in their wiles.
 
 The spirit author tells of the intercession of high order spirits on behalf of human beings, demonstrating the divine compassion that grants to all the blessed opportunity to free themselves by means of study, labor and persevering service in the practice of the Good.
 

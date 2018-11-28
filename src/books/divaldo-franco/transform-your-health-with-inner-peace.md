@@ -7,7 +7,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 ## Transform Your Health with Inner Peace
 
-[Back cover] Peace is all we need! This book is the result of true efforts to create a new climate of awareness on health fostered by inner peace. At the 10th anniversary of the Spiritist Society of Baltimore, Divaldo Franco launched the first Peace and You movement in the United States, which was held in Baltimore, MD, on October 19, 2008. The main theme of the event was "Transform Your Health with Inner Peace."
+Peace is all we need! This book is the result of true efforts to create a new climate of awareness on health fostered by inner peace. At the 10th anniversary of the Spiritist Society of Baltimore, Divaldo Franco launched the first Peace and You movement in the United States, which was held in Baltimore, MD, on October 19, 2008. The main theme of the event was "Transform Your Health with Inner Peace."
 
 Divaldo Franco hosted the event in the presence of the following guest speakers: renowned scientist Gary E. Schwartz, Ph. D., acclaimed writer and broadcaster Zohara Meyerhoff Hieronimus; New Thought spiritual leader Rev. Dr. Jeffrey Proctor, and General of the Brazilian Air Force and Counselor of the Brazilian Spiritist Federation Jorge Godinho Nery. Each one of the speakers received the Peace and You Award from the Ambassador of Peace, Divaldo Franco, for their efforts to movements of goodness and peace in their fields of activity. May the amazing words and actions of these peacemaking speakers uplift you and help you nourish the peacemaker within.
 

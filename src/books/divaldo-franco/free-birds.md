@@ -7,7 +7,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 ## Free Birds
 
-[Back cover] Rabindranath Tagore’s extraordinary sensibility, through Divaldo Franco’s psychography, rewards us with beautiful poems, a real cascade of light, overflowing with tenderness and love! The noble Spirit-poet says
+Rabindranath Tagore’s extraordinary sensibility, through Divaldo Franco’s psychography, rewards us with beautiful poems, a real cascade of light, overflowing with tenderness and love! The noble Spirit-poet says
 > "My songs are living poems of love releasing themselves from the tight prison of emotion from whence they are born and conquering the expanse like birds of happiness."
 
 These songs move our souls and fill our hearts with joy, stimulating our sensibilities for the constant practice of good.

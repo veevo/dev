@@ -6,7 +6,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## Overview
-[Back cover] This novel offers information about the relationship that exists in the activities of the spirit on the two planes of life. Renewing his interest in our inner improvement, André Luiz tells the moving story of Amaro, Zulmira, Odila, and other characters, recounting the events of their previous lives from the time of Brazil’s War with Paraguay (1864-1870) until the days of old Rio de Janeiro (early 1900s).
+This novel offers information about the relationship that exists in the activities of the spirit on the two planes of life. Renewing his interest in our inner improvement, André Luiz tells the moving story of Amaro, Zulmira, Odila, and other characters, recounting the events of their previous lives from the time of Brazil’s War with Paraguay (1864-1870) until the days of old Rio de Janeiro (early 1900s).
 
 In its preface, Emmanuel assures us that "The basic pictures of the narrative are intimately familiar to us," such as family dysfunctions, the torment of jealousy, and the daily struggle for moral progress. Each page of this book discloses new knowledge and emotions.
 

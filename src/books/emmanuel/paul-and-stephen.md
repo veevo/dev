@@ -25,6 +25,10 @@ Medium: Francisco Cândido Xavier
 
 ## See Also
 [Two Thousand Years Ago](two-thousand-years-ago)  
+[Fifty Years Later](fifty-years-later)  
+[Hail, Christ!](hail-christ)  
+[Renunciation](renunciation)  
+
 
 
 <a href="/books/emmanuel" class="button">Emmanuel - Bibliography</a>

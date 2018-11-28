@@ -13,13 +13,22 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 
 
 ### Novels
-[Paul and Stephen](paul-and-stephen)  
 [Two Thousand Years Ago](two-thousand-years-ago)  
+[Fifty Years Later](fifty-years-later)  
+[Paul and Stephen](paul-and-stephen)  
+[Hail, Christ!](hail-christ)  
+[Renunciation](renunciation)  
 
 
 ### Inspirational Messages
+[Heart and Soul](heart-and-soul)  
+[Living Spring](living-spring)  
+[Money](money)  
+[On the Way to the Light](on-the-way-to-the-light)  
 [Our Daily Bread](our-daily-bread)  
 [The Pathway, the Truth and the Life](pathway-truth-life)  
+[Thought and Life](thought-and-life)  
+
 
 
 ### Other books

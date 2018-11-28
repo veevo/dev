@@ -7,7 +7,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 ## Obsession
 
-[Back cover] 
+
 >"I approached her and noticed she felt my presence… I touched her and she shivered… I grabbed her arms and they became my arms. I got a little dizzy and she swayed. I thought and she responded. I lifted her and we walked together… Then, through her I slapped his face, crazy with hatred, overjoyed to find her insane with me, the two of us acting as one. And we are still one, and we’re going to remain so."
 
 This is, in his own words, how a discarnate spirit took possession of a high society girl exactly on her fifteenth birthday party.

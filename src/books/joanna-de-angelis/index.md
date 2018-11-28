@@ -6,11 +6,28 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## Bibliography
+[Joanna de Ângelis](/profiles/joanna-de-angelis) is highly accomplished and experienced in educational and evangelical work. She has been dedicating herself for several incarnations to the work of [Jesus](/about/jesus).
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Through [Divaldo Franco](/profiles/divaldo-franco)’s psychographic work, Joanna de Ângelis has channeled 58 works, which, in turn, have led to six others through adaptation by different authors. Fifty-seven of those books have been translated into ten languages, and five were transcribed into Braille. 
+Besides these works, she has created thousands of beautiful messages.
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
 
+### Instructive
+[Adolescence and Life](adolescence-and-life)  
+[After the storm](after-the-storm)  
+[Existential Conflicts](existential-conflicts)  
+[Family Constellation](family-constellation)  
+[Open Your Heart & Find Happiness](open-your-heart)  
+[Self-Discovery, An Inner Search](self-discovery)  
+[The Psychology of Gratitude](the-psychology-of-gratitude)  
+
+
+### Inspirational Messages
+[Child of God](child-of-god)  
+[Happy Life](happy-life)  
+[Living and Loving](living-and-loving)  
+[Recipes for Peace](recipes-for-peace)  
+  
 
 ## See Also
 TODO

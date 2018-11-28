@@ -5,11 +5,11 @@ title: Happy Life
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Overview
-
-[Back Cover] Millions of hearts thirsting for love and understanding are seeking guidelines to relieve their anxieties and uncertainties.
+## Description
+Millions of hearts thirsting for love and understanding are seeking guidelines to relieve their anxieties and uncertainties.
 
 In this short but grand work, spiritual author Joanna de Ângelis assists them in their search for a happy life by providing 200 messages that bear encouragement, optimism, and hope. This book will bring new vitality to all whose objective is to attain a happy life.
+
 
 ## Author(s)
 Divaldo P. Franco and Joanna de Ângelis (spirit)

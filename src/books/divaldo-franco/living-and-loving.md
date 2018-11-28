@@ -5,8 +5,7 @@ title: Living and Loving
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Overview
-
+## Description
 Inspirational messages to promote health and wellbeing. The authors dedicated thesepages to the growing number of people who are disappointed with life, and love, and also to all bitter souls, hoping they may help themselves to reconsider pessimistic attitudes, start a new life of love, and to have enough love to be able to live happiness.
 
 ## Author(s)

@@ -5,7 +5,7 @@ title: On the Way to the Light
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Overview
+## Description
 Those who are trying to understand our world and its origins will find the answers in this book.
 
 In this notable work of historic synthesis, the spiritual author highlights the most relevant events, situations, and individuals who significantly contributed to the progress of humanity throughout time by analyzing the missions of spirits such as Krishna, Buddha, Plato, Muhammad, the Hebrew Prophets, the Apostles, Paul of Tarsus, St. Francis of Assisi, Luther, and Allan Kardec.
@@ -14,17 +14,13 @@ The book narrates the history of civilization from a Spiritist perspective, show
 
 In this book Emmanuel shows us that we are all on our way to the light by divine determinism!
 
-## Author(s)
-Francisco Xavier and Emmanuel (Spirit)
 
-## From the Publisher
+## About the Book
 Title: 	On the Way to the Light  
 Author(s): 	Francisco C. Xavier and Emmanuel (Spirit)  
 Language: 	English  
 Source: 	Translated from the original edition in Brazilian Portuguese  
-Translation: 	Darrell W. Kimble, Márcia M. Saiz, and Ily Reis  
-Revision: 	—  
-Editing: 	—  
+Translation: 	Darrell W. Kimble, Márcia M. Saiz, and Ily Reis 
 Publisher: 	Edicei of America, LLC  
 Location: 	Miami, FL, U.S.A.  
 Publication Date: 	December 1, 2011 (1st edition)  
@@ -32,12 +28,6 @@ Number of pages: 	208
 ISBN(10): 	85-7945-427-1  
 ISBN(13): 	978-85-7945-427-1  
 	  
-	  
-Book size (H×W×T): 	8⅓” × 5½” × &#0189″ (21.1cm × 14.0cm × 1.3cm)  
-Print type: 	Black font on white background  
-Book format(s): 	Paperback only  
-  
-   
 Original Material:  
 Title: 	A Caminho da Luz  
 Publisher: 	Federação Espírita Brasileira (FEB)  
@@ -48,11 +38,11 @@ Language: 	Brazilian Portuguese
 ## Related Books
 TODO
 
+
 ## See also
-[About Chico Xavier](/profile/chico-xavier)  
 TODO
 
 
-<a href="/books/chico-xavier" class="button">Back to Chico Xavier Books</a>
+<a href="/books/emmanuel" class="button">Emmanuel - Bibliography</a>
 <a href="/books" class="button">All Books</a>
 

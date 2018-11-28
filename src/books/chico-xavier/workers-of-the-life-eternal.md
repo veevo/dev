@@ -6,7 +6,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## Overview
-[Back cover] Five people, who have devoted their entire lives to the practice of the good, are at the end of their physical lives. Due to their merit, they are entitled to the help of a spiritual rescue team. The spiritual author André Luiz, tells about his experience as a member of the team. This is an enthralling narrative that reveals details of the tasks performed by spirits at the moment of the death of the physical body.
+Five people, who have devoted their entire lives to the practice of the good, are at the end of their physical lives. Due to their merit, they are entitled to the help of a spiritual rescue team. The spiritual author André Luiz, tells about his experience as a member of the team. This is an enthralling narrative that reveals details of the tasks performed by spirits at the moment of the death of the physical body.
 
 In this book, André Luiz confirms the principles revealed by the Spiritist Doctrine regarding the existence of the spiritual world, where discarnate spirits dwell, living a new life while preparing to return once again to the earthly journey.
 

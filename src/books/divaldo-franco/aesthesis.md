@@ -7,7 +7,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 ## Aesthesis
 
-[Back cover] The spirit Rabindranath Tagore returns after his discarnation with the same lyricism and poetry, as evidenced in the psychographed work Aesthesis:
+The spirit Rabindranath Tagore returns after his discarnation with the same lyricism and poetry, as evidenced in the psychographed work Aesthesis:
 >"Immortal, before time and beyond eras, I bow down at the window of eternity so that the magic of Your work unites me ever more with You, intoxicating me with happiness…"
 
 >"Wordly richness weighs down on he who possesses it, forcing him lower. The treasure of love lifts him up to fly, free and happy, up the gully of infinity."
