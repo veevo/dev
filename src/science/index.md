@@ -1,17 +1,22 @@
 ---
 layout: default-md
 section: Science
-title: Home
+title: Introduction
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Introduction
+Have you ever asked yourself some of these questions before:  
+Is Earth the only inhabited planet in the Unverse?  
+Do aliens exist?  
+Was Atlantida real?  
+Do ghosts exist?  
+How can't science explain some mysteries in the Egypt and other ancient civilizations?  
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+They are very relevant questions. Unfortunately science still cannot answer these and many other questions. Why?
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+In order to respond those and other questions, let us introduce the basic elements of the Universe.
 
 
-## See Also
+<a href="/science/basic-elements" class="button">Next: Basic Elements of the Universe</a>
 
-TODO
