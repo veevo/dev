@@ -14,6 +14,9 @@ The first part examines various ideas concerning life after death: the purely ma
 
 The second part is a collection of actual communications by happy, average and suffering spirits as well as repentant criminals, hardened spirits, and suicides.  They themselves describe what they experienced at the moment of death and what they are experiencing right now in the afterlife.  
 
+## Author(s)
+[Allan Kardec](/profiles/allan-kardec)
+
 ## About the book
 Book Title:  Heaven and Hell (Divine Justice Explained by the Spiritist Doctrine)  
 Author:  Allan Kardec  

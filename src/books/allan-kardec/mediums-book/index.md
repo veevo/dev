@@ -14,6 +14,9 @@ Since we human beings are in integral part of the interchange between the physic
 
 The Mediums’ Book is the safest manual for all those who dedicate themselves to activities involving communication with the spirit world.  
 
+## Author(s)
+[Allan Kardec](/profiles/allan-kardec)
+
 ## Author Notes
 Allan Kardec describes the book (La Revue Spirite, from 1861) as follows: 
 > "It constitutes the complement to "The Spirits' Book" and contains the experimental piece of Spiritism, just as the latter contains the philosophic piece.  In this work, fruit of a long experience of laborious studies, we sought to clarify all the questions tied to the practice of the manifestations.  In agreement with the Spirit teachings, it contains the theoretic explanation of the diverse phenomena and of the conditions in which they are produced.  But the section pertaining to the development and exercise of mediumship was, on our part, a topic of particular attention and focus." 

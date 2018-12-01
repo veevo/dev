@@ -1,12 +1,11 @@
 ---
 layout: default-md
 section: Mediumship
-title: Practices For Improving The Mediumship
+title: How to improve
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Practices For Improving The Mediumship
-
+## How to improve your mediumship
 Beyond the previous guidelines (from the Evolution Of The Medium section) that every medium should strive for, what we have below are other methods, attitudes and habits that should be followed by both mediums and non-mediums alike.
 
 ### Study of Spiritism
@@ -101,6 +100,7 @@ TODO
 
 
 
-<a href="/spiritism/mediumship" class="button">Back to Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
 
+<a href="" class="button">Previous: </a>
+<a href="learn" class="button">Back to Mediumship</a>
+<a href="" class="button">Next: </a>

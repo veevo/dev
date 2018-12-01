@@ -9,20 +9,26 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 Mediumship is one of the pillars of Spiritism. Know from the link below some of its fundamentals.  
 
 ### Basic Concepts
+[Introduction](intro)  
 [What is mediumship](about)  
-[Types of communications](communications)  
-[The evolution of the mediumship](mediumship-evolution)  
-[Practices For Improving the Mediumship](mediumship-practices)  
+[Causes of mediumship](causes)  
+[Types of communications](types)  
+[Physical mediumship](physical)  
+[Intellectual mediumship](intellectual)  
+
+
+### Advanced Concepts
+[Stages of mediumship](stages)  
+[How to improve your mediumship](how-to-improve)  
+
 
 ### Common Questions
 [Mediumship - Dangers](dangers)  
 [Mediumship - Expected Behavior](behavior)  
 [Mediumship in children](mediumship-children)  
-[Mediumship - Frauds](frauds)  
-
-
-## See Also
+[Mediumship - Frauds](fraud)  
 
 
 
-<a href="/spiritism/advanced" class="button">Back to Advanced</a>
+
+<a href="/spiritism/advanced" class="button">Back to Advanced Topics</a>

@@ -1,11 +1,9 @@
 ---
 layout: default-md
 section: Spiritism
-title: Foundations
+title: The Foundations of Spiritism
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
-
-## The Foundations of the Spiritism
 
 ### God
 * God is the Supreme Intelligence, first cause of all things.

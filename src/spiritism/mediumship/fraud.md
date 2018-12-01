@@ -32,4 +32,6 @@ www.explorespiritism.com/DANGER start.htm
 
 
 
-<a href="/spiritism/advanced" class="button">Back to Advanced</a>
+<a href="" class="button">Previous: </a>
+<a href="learn" class="button">Back to Mediumship</a>
+<a href="" class="button">Next: </a>

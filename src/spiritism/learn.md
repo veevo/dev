@@ -9,7 +9,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 We prepared a summary of the Spiritist Doctrine as described below. You can find the following teachings on this section:
 
 ### Basic Concepts
-[Spiritism - Itroduction](about)  
+[Spiritism - Introduction](about)  
 [Spiritism - Foundations](foundations)  
 [Spiritism - Teachings](teachings)  
 [Spiritism - The Codification](codification)  

@@ -1,12 +1,11 @@
 ---
 layout: default-md
 section: Mediumship
-title: The Evolution Of The Mediumship
+title: Stages of mediumship
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## The Evolution Of The Mediumship
-
+## Different stages of mediumship
 Mediumship is a natural ability in all intelligent beings that develops slowly over countless existences and independently of intellectual and ethical evolution of the medium.
 
 When mediumship ability within any individual reaches a level of evolution in which phenomena of some kind will show itself, that person is then offcialy called ‘a medium’.
@@ -44,11 +43,7 @@ If the Superior Spirits realize that the medium is well intentioned, then the de
 TODO
 
 
-## Suggested Reading
-TODO
-
-
-
-<a href="/spiritism/mediumship" class="button">Back to Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
+<a href="intellectual" class="button">Previous: Intellectual Mediumship</a>
+<a href="learn" class="button">Back to Mediumship</a>
+<a href="how-to-improve" class="button">Next: How to Improve</a>
 

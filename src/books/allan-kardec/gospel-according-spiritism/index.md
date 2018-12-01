@@ -11,6 +11,9 @@ The Gospel according to Spiritism is the third of the five books that compromise
 
 The book contains the essence of the moral teachings of Jesus, thus providing a roof under which followers of all religions- even those who profess no religion at all- can gather, for it offers a sure guide for our inner reforms, which, according to Christ, is indispensable for the spirit on its evolutionary journey to God only by complying fully with the divine laws.
 
+## Author(s)
+[Allan Kardec](/profiles/allan-kardec)
+
 ## About the book
 Book Title: The Gospel According to Spiritism  
 Author: Allan Kardec   

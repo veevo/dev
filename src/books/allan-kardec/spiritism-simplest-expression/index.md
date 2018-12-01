@@ -18,7 +18,7 @@ Maxims Taken from the Spirits' Teachings
 
 
 ## Author(s)
-Allan Kardec
+[Allan Kardec](/profiles/allan-kardec)
 
 
 ## Related
