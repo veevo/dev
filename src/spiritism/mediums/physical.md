@@ -65,6 +65,6 @@ Persons who, by their influence, have the power of developing the faculty of wri
 
 
 
-<a href="who-is-medium" class="button">Previous: Who is a medium</a>
-<a href="mediums" class="button special">About Mediums</a>
-<a href="intellectual-mediums" class="button">Next: Intellectual Mediums</a>
+<a href="who-is" class="button">Previous: Who is a medium</a>
+<a href="./" class="button special">About Mediums</a>
+<a href="intellectual" class="button">Next: Intellectual Mediums</a>

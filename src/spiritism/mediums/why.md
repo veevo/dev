@@ -1,6 +1,6 @@
 ---
 layout: default-md
-section: Mediumship
+section: Mediums
 title: Why are we mediums?
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
@@ -29,6 +29,6 @@ Trough Mediumship a medium can provide healing energy from the spiritual realm t
 [ExploreSpiritism - We're all mediums](http://www.explorespiritism.com/Science_Mediumship_We're%20All_Intro.htm)  
 
 
-<a href="who-is-medium" class="button">Previous: Who is a medium</a>
-<a href="mediums" class="button special">About Mediums</a>
+<a href="who-is" class="button">Previous: Who is a medium</a>
+<a href="./" class="button special">About Mediums</a>
 <a href="spiritual-influences" class="button">Next: Spiritual Influences</a>

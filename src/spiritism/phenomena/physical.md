@@ -84,6 +84,7 @@ TODO
 
 
 
-<a href="/spiritism/mediumship" class="button special">Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
 
+<a href="" class="button">Previous: </a>
+<a href="./" class="button special">Phenomena</a>
+<a href="" class="button">Next: </a>

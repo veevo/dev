@@ -1,6 +1,6 @@
 ---
 layout: default-md
-section: Mediumship
+section: Mediums
 title: Spiritual Influences
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
@@ -40,9 +40,9 @@ TODO
 ## Suggested Reading
 TODO
 
-<a href="about-mediums" class="button">Previous: What is a medium</a>
-<a href="mediums" class="button special">About Mediums</a>
-<a href="types-of-mediums" class="button">Next: Types of Mediums</a>
+<a href="about" class="button">Previous: What is a medium</a>
+<a href="./" class="button special">About Mediums</a>
+<a href="types" class="button">Next: Types of Mediums</a>
 
 
 

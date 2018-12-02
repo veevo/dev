@@ -1,6 +1,6 @@
 ---
 layout: default-md
-section: Mediumship
+section: Spirits
 title: Types of Communication Between Mediums and Spirits
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
@@ -56,7 +56,6 @@ TODO
 TODO
 
 
-
-<a href="/spiritism/mediumship" class="button special">Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
-
+<a href="" class="button">Previous: </a>
+<a href="./" class="button special">Spirits</a>
+<a href="" class="button">Next: </a>

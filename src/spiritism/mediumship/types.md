@@ -14,6 +14,6 @@ The functionality of the mediumistic faculty depends upon its manifestation as o
 [Intellectual mediumship](intellectual)  
 
 <a href="causes" class="button">Previous: Causes of Mediumship</a>
-<a href="learn" class="button special">Mediumship</a>
+<a href="./" class="button special">Mediumship</a>
 <a href="physical" class="button">Next: Physical mediumship</a>
 

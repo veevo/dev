@@ -38,11 +38,11 @@ Rigonatti, Eliseu. "Os Mediuns Curadores" [Curing Mediums].  A Mediunidade Sem L
 
 
 ### Types Of Mediums
-[Physical Mediums](physical-mediums)  
-[Intellectual Mediums](intellectual-mediums)  
-[Curing Mediums](curing-mediums)  
+[Physical Mediums](physical)  
+[Intellectual Mediums](intellectual)  
+[Curing Mediums](curing)  
 
 
-<a href="who-is-medium" class="button">Previous: Physical Mediums</a>
-<a href="mediums" class="button special">About Mediums</a>
-<a href="communication" class="button">Next: How the Communication Happens</a>
+<a href="who-is" class="button">Previous: Physical Mediums</a>
+<a href="./" class="button special">About Mediums</a>
+<a href="evolution" class="button">Next: Evolution of a Medium</a>

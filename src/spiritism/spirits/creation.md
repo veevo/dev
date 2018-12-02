@@ -1,11 +1,11 @@
 ---
 layout: default-md
-section: Mediumship
-title: Spirit Creation And Evolution
+section: Spirits
+title: Creation
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Spirit Creation And Evolution
+## Spirit Creation
 
 Before exploring mediumship in depth the subject of creation and evolution of Spirits needs to be explained. Below is an extremely brief outline of a process discussed in detail in “special Spiritist topics’ section of this guide.
 
@@ -42,6 +42,6 @@ TODO
 
 
 
-<a href="/spiritism/mediumship" class="button special">Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
 
+<a href="./" class="button special">Spirits</a>
+<a href="evolution" class="button">Next: Evolution</a>

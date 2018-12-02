@@ -1,6 +1,6 @@
 ---
 layout: default-md
-section: Mediumship
+section: Mediums
 title: Who is a Medium
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
@@ -29,8 +29,8 @@ TODO
 [ExploreSpiritism - We're all mediums](http://www.explorespiritism.com/Science_Mediumship_We're%20All_Intro.htm)  
 
 
-<a href="about-mediums" class="button">Previous: What is a medium</a>
-<a href="mediums" class="button special">About Mediums</a>
-<a href="why-medium" class="button">Next: Why are we mediums?</a>
+<a href="about" class="button">Previous: What is a medium</a>
+<a href="./" class="button special">About Mediums</a>
+<a href="why" class="button">Next: Why are we mediums?</a>
 
 

@@ -1,11 +1,11 @@
 ---
 layout: default-md
-section: Mediumship
-title: Spirit World and the Material Worlds
+section: Spirits
+title: Types of Worlds
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Spirit World and the Material Worlds
+## Types of Worlds
 
 Spirits, because their envelope (perispirit) is only semi-material, exist in a series of dimensions different from the physical world we interact with in our daily lives. In Spiritism our world is commonly called the ‘material world’ and the dimensions inhabited by Spirits are collectively called ‘the spiritual world’. It is important to understand that the spiritual and material worlds do not exist separately, like different planets in a solar system. Instead, they exist simultaneously occupying the same space in the universe.
 
@@ -61,6 +61,7 @@ TODO
 
 
 
-<a href="/spiritism/mediumship" class="button special">Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
 
+<a href="categories" class="button">Previous: Categories</a>
+<a href="./" class="button special">Spirits</a>
+<!-- <a href="" class="button">Next: </a> -->

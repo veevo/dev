@@ -85,6 +85,6 @@ The case of medical prescriptions is also a form of somnambulic mediumship used 
 [The Mediums Book](/books/allan-kardec/mediums-book), Chapter XVI #187-#189
 
 
-<a href="physical-mediums" class="button">Previous: Physical Mediums</a>
-<a href="mediums" class="button special">About Mediums</a>
-<a href="curing-mediums" class="button">Next: Curing Mediums</a>
+<a href="physical" class="button">Previous: Physical Mediums</a>
+<a href="./" class="button special">About Mediums</a>
+<a href="curing" class="button">Next: Curing Mediums</a>

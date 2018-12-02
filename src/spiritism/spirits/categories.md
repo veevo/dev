@@ -1,7 +1,7 @@
 ---
 layout: default-md
-section: Mediumship
-title: Categories of Spiritis
+section: Spirits
+title: Categories
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
@@ -99,6 +99,6 @@ TODO
 
 
 
-<a href="/spiritism/mediumship" class="button special">Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
-
+<a href="evolution" class="button">Previous: Evolution</a>
+<a href="./" class="button special">Spirits</a>
+<a href="types-of-world" class="button">Next: Types of World</a>

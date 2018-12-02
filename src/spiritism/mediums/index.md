@@ -1,0 +1,35 @@
+---
+layout: default-md
+section: Spiritism
+title: Mediums
+subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+---
+
+## Information about Mediums
+In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+
+### Basic Concepts
+[What is a medium](about)  
+[Who is a medium](who-is)  
+[Why are we mediums?](why)  
+[Spiritual Influences](influences)  
+
+
+### Advanced Concepts
+[Types of mediums](types)  
+[Physical mediums](physical)  
+[Intellectual mediums](intellectual)  
+[Curing mediums](curing)  
+
+### Common Questions
+[Evolution of a Medium](evolution)  
+[Expected qualities from a Medium](qualities)  
+[Misconception: Are Mediums Superior?](superiority)  
+
+
+
+
+<a href="../advanced" class="button special">Advanced Topics</a>
+<a href="../mediumship" class="button">Mediumship</a>
+<a href="../phenomena" class="button">Phenomena</a>
+<a href="../spirits" class="button">Spirits</a>

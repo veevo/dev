@@ -1,6 +1,6 @@
 ---
 layout: default-md
-section: Mediumship
+section: Mediums
 title: Misconception about Superiority
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
@@ -29,5 +29,5 @@ TODO
 TODO
 
 
-<a href="medium-evolution" class="button">Previous: Evolution of a Medium</a>
-<a href="mediums" class="button special">About Mediums</a>
+<a href="evolution" class="button">Previous: Evolution of a Medium</a>
+<a href="./" class="button special">About Mediums</a>

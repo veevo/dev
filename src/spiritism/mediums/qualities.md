@@ -1,24 +1,12 @@
 ---
 layout: default-md
-section: Mediumship
-title: The evolution of a Medium
+section: Mediums
+title: Expected Qualities
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## The evolution of a Medium
-
-Once mediumship of any type has shown itself, it begins a life long commitment that requires deep personal growth and modification, not just learning about Spiritism through books or a Spiritist Center.
-
-Because of the Law of Affinity mentioned earlier, the spirits attracted to a medium will reflect and provoke the very best and the very worst of that medium. This will force the medium to make a profound personal choice.
-
-The Law of Free Will assures every person the right to choose whatever path they wish. So a medium has every right to neglect their ability, to use it for personal economic benefit, or to attract lower spirits that will encourage and share in the mediums worst vices. Though they need never forget that the Law of Cause and Effect assures that everyone has to deal with the consequences of their choices and the effects those choices have on others.
-
-If a medium makes the choice to use their ability to do good, without self-interest, the amount of Spiritual evolution and atonements of past mistakes that will result from this choice is immense. The joy and personal satisfaction that comes from doing good will make all the sacrifices needed worthwhile. Spirit friends, teachers and of course God will open doors for the medium, help them endure the daily trials and many become guides that will be with them every day of their lives.
-
-Once the medium discarnates he/she will know the wonders that will come from this evolution. They will find themselves surrounded by loved ones and all those the medium has helped. A feeling of liberation and cleansing will become their new constant way of being, now liberated from the weight of many past ethical debts. Their perispirit, now less material will allow them to enjoy greater freedom and opportunities in their time in the spiritual world.
-
-## Qualities a Medium should have
-Below are exerts from Eliseu Rigonatti books Development of Mediumship,Qualities of a Good Medium, Mediumship Without Tears, and Studying Mediumship (Sao Paulo: Editora Pensamento Ltda) on the kind of ethical progress a medium must strive for:
+## Expected qualities from a Medium
+Below are exerts from `Eliseu Rigonatti` books `Development of Mediumship: Qualities of a Good Medium, Mediumship Without Tears, and Studying Mediumship` (Sao Paulo: Editora Pensamento Ltda) on the kind of ethical progress a medium must strive for:
 
 ### Seriousness in purpose and use of the mediumship
 The serious mediums understand that their faculty has been given to them as a gift by which they can progress spiritually, through their assistance to those in need (both incarnate and discarnate) and in their cooperation in the dissemination of the instructive and inspiring messages. Therefore, they only use their faculties for good and useful ends. They do not exploit their brethren of the Spirit realm with requests for help in material matters or inferior spiritual desires, nor do they exercise their faculty to satisfy the curious and indifferent or for any other futile purpose.
@@ -69,5 +57,5 @@ TODO
 
 
 <a href="communication" class="button">Previous: How the Communication Happens</a>
-<a href="mediums" class="button special">About Mediums</a>
-<a href="mental-influence" class="button">Next: Mental Influence</a>
+<a href="./" class="button special">About Mediums</a>
+<a href="superiority" class="button">Next: Are Mediums Superior?</a>

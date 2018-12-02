@@ -42,6 +42,6 @@ www.explorespiritism.com/Science_Mediumship_WhatIs_Organic%20and%20Spiritual.htm
 [Intellectual mediumship](intellectual)  
 
 <a href="about" class="button">Previous: What is Mediumship</a>
-<a href="learn" class="button special">Mediumship</a>
+<a href="./" class="button special">Mediumship</a>
 <a href="types" class="button">Next: Types of mediumship</a>
 

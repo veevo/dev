@@ -25,7 +25,7 @@ TODO
 TODO
 
 
-<a href="about" class="button">Previous: Introduction to Mediumship</a>
-<a href="learn" class="button special">Mediumship</a>
+<a href="about" class="button">Previous: Introduction</a>
+<a href="./" class="button special">Mediumship</a>
 <a href="causes" class="button">Next: Causes of Mediumship</a>
 

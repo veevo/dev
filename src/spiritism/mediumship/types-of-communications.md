@@ -27,5 +27,5 @@ In applying to these communications the qualification of instructive, we imply t
 
 
 <a href="intellectual" class="button">Previous: Intellectual mediumship</a>
-<a href="learn" class="button special">Mediumship</a>
+<a href="./" class="button special">Mediumship</a>
 <a href="stages" class="button">Next: Stages of mediumship</a>

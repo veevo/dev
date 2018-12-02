@@ -12,7 +12,7 @@ Mediumship is one of the pillars of Spiritism. Know from the link below some of 
 [Introduction](intro)  
 [What is mediumship](about)  
 [Causes of mediumship](causes)  
-[Types of communications](types)  
+[Types of mediumship](types)  
 [Physical mediumship](physical)  
 [Intellectual mediumship](intellectual)  
 
@@ -20,11 +20,13 @@ Mediumship is one of the pillars of Spiritism. Know from the link below some of 
 ### Advanced Concepts
 [Types of Communications](types-of-communications)  
 [Stages of mediumship](stages)  
+[How the Communication Happens](communication)  
 [How to improve your mediumship](how-to-improve)  
 
 
 ### Common Questions
 [Mediumship - Dangers](dangers)  
+[Mediumship - Mental Influence](mental-influence)  
 [Mediumship - Expected Behavior](behavior)  
 [Mediumship in children](mediumship-children)  
 [Mediumship - Frauds](fraud)  
@@ -34,6 +36,6 @@ Mediumship is one of the pillars of Spiritism. Know from the link below some of 
 
 
 <a href="../advanced" class="button special">Advanced Topics</a>
-<a href="mediums" class="button">Mediums</a>
-<a href="phenomena" class="button">Phenomena</a>
-<a href="spirits" class="button">Spirits</a>
+<a href="../mediums" class="button">Mediums</a>
+<a href="../phenomena" class="button">Phenomena</a>
+<a href="../spirits" class="button">Spirits</a>

@@ -18,6 +18,6 @@ www.explorespiritism.com/SCIENCE start.htm
 
 
 
-<a href="learn" class="button special">Mediumship</a>
+<a href="./" class="button special">Mediumship</a>
 <a href="about" class="button">Next: What is mediumship</a>
 
