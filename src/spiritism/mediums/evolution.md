@@ -38,4 +38,4 @@ TODO
 
 <a href="communication" class="button">Previous: How the Communication Happens</a>
 <a href="./" class="button special">About Mediums</a>
-<a href="qualities" class="button">Next: Qualities</a>
+<a href="virtues" class="button">Next: Virtues Expected in Mediums</a>

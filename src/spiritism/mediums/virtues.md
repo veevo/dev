@@ -44,11 +44,24 @@ Learning is a slow, life long process. The point is to strive for a tiny bit of 
 The medium should live their life as best they can and every evening ask themselves, “Have I learned anything today?” “Have I done good today?” “What mistakes have I made today?” They need to be honest in answering those questions and let the answers be their guide for the next day.
 
 
+## Recommended Bibliography
+Rigonatti, Eliseu. "O Desenvolvimento da Mediunidade" [Development of Mediumship]. A Mediunidade Sem Lagrimas [Mediumship Without Tears]. Sao Paulo: Editora Pensamento Ltda. 2000. 24-25.
+
+Rigonatti, Eliseu. "Qualidades de Um Bom Medium" [Qualities of a Good Medium]. A Mediunidade Sem Lagrimas [Mediumship Without Tears]. Sao Paulo: Editora Pensamento Ltda. 2000. 39-40.  
+
+Rigonatti, Eliseu. "Self Criticism." A Mediunidade Sem Lagrimas [Mediumship Without Tears]. Sao Paulo: Editora Pensamento Ltda. 2000. 119-112. 
+
+Peralva, Martins. "Mandato Mediunico" [Mandate of Mediumship] Estudando A Mediunidade [Studying Mediumship]. Rio de Janeiro-RJ, Brazil: Federação Espírita Brasileira [Brazilian Spiritist Federation].1998 (20th ed). 131-137.
+
+Kardec, Allan. "Mental And Moral Influence of the Medium" and "Special Mediums." The Mediums' Book. 2nd ed (1st edition FEB). Trans. Anna Blackwell (translated 1876). Ed. Livraria Espírita Allan Kardec. Brasilia-DF, Brazil:  Federação Espírita Brasileira [Brazilian Spiritist Federation}. 1986. 260-265 and 209-214 (sect. 196 & 197).
+
+
 ## Source
 [The Evolution Of The Medium](http://www.sgny.org/spiritism-guide/mediumship/medium-evolution/)
 
+
 ## See Also
-TODO
+[Our list of Virtues](/virtues)
 
 
 ## Suggested Reading
@@ -56,6 +69,6 @@ TODO
 
 
 
-<a href="communication" class="button">Previous: How the Communication Happens</a>
+<a href="evolution" class="button">Previous: Evolution of a Medium</a>
 <a href="./" class="button special">About Mediums</a>
 <a href="superiority" class="button">Next: Are Mediums Superior?</a>

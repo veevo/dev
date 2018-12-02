@@ -29,5 +29,6 @@ TODO
 TODO
 
 
-<a href="evolution" class="button">Previous: Evolution of a Medium</a>
+
+<a href="virtues" class="button">Previous: Virtues Mediums should have</a>
 <a href="./" class="button special">About Mediums</a>

@@ -23,7 +23,7 @@ In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputat
 
 ### Common Questions
 [Evolution of a Medium](evolution)  
-[Expected qualities from a Medium](qualities)  
+[Virtues Mediums should have](virtues)  
 [Misconception: Are Mediums Superior?](superiority)  
 
 
