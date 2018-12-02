@@ -14,5 +14,7 @@ Progress is vital to the evolution of a society. Which means that the scientific
 As for the individual the Law of Progress means that a person is always learning and evolving. A person can get caught up in obsessions and destructive behavior but they can never forget those lessons that have truly been learned or loose the evolution gained from such learning. 
 
 ## See Also
-
 TODO
+
+
+<a href="/divine-laws" class="button">All Divine Laws</a>

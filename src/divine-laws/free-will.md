@@ -11,5 +11,7 @@ Human Beings are given the free will to act, but they must answer for the conseq
 When it is time for us to reincarnate we even choose our next existence and the trials that we will learn from in that existence. Even the nature of our death and length of our lives are in our hands. 
 
 ## See Also
-
 TODO
+
+
+<a href="/divine-laws" class="button">All Divine Laws</a>

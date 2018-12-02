@@ -11,5 +11,7 @@ All things in the material world, everything from a human body to the worlds in 
 Now the forms of destruction caused by war and murder are not seen as part of the law of destruction. Life is sacred, and the intentional taking of a life is always a violation of divine law. And as such has clear and rational consequences in order for those involved to learn from such errors in judgment. 
 
 ## See Also
-
 TODO
+
+
+<a href="/divine-laws" class="button">All Divine Laws</a>

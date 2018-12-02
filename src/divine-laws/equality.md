@@ -13,5 +13,7 @@ As part of our evolution we will be reincarnated countless times and in countles
 All spirits who incarnate/reincarnate on an earthly world are basically on the same level of evolution. Once that basic level of evolution has been achieved, the spirit no longer needs to reincarnate in a human form. It is also important to realize that those who cling to the idea of superiority and inferiority are not those who are searching for the path to their own ethical and intellectual evolution.
 
 ## See Also
-
 TODO
+
+
+<a href="/divine-laws" class="button">All Divine Laws</a>

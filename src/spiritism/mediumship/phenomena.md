@@ -1,11 +1,11 @@
 ---
 layout: default-md
 section: Mediumship
-title: Phenomena
+title: Mediunic Phenomena
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Information on Phenomena
+## Information on Mediunic Phenomena
 In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 
 ### Basic Concepts
@@ -17,7 +17,12 @@ In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputat
 
 
 ## See Also
+TODO
 
 
 
-<a href="/spiritism/advanced" class="button">Back to Advanced</a>
+
+<a href="../advanced" class="button special">Advanced Topics</a>
+<a href="learn" class="button">Mediumship</a>
+<a href="mediums" class="button">Mediums</a>
+<a href="spirits" class="button">Spirits</a>

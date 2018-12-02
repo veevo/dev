@@ -7,17 +7,15 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 ## Types Of Mediums
 
-Obviously the two main categories of mediumistic phenomena Physical & Intelligent directly correspond to two main types of mediums:
+The two main categories of [mediumistic phenomena](phenomena) are: **physical & intelligent**. From that, derive the two main types of mediums: physical and intellectual. Let's understand them.
 
-### Physical Mediums
-Mediums who have a tendency to physical manifestations of Spirit communications through the giving of ectoplasm.
+## Physical Mediums
+Mediums who have a tendency to physical manifestations of Spirit communications through the giving of [ectoplasm](/about/ectoplasm).
 
-### Intellectual Mediums
-Mediums who have a tendency to intellectual manifestations of Spirit communications through the bonding of perispirits.
 
-(The Mediums Book Chapter 16 #187 – #188
-
-## Other types of mediums
+## Intellectual Mediums
+Mediums who have a tendency to intellectual manifestations of Spirit communications through the bonding of perispirits.  
+The Mediums Book Chapter 16 #187 – #188
 
 ### Sensitive Mediums
 Persons who feel the presence of spirits by a peculiar impression, general or local, vague or undecided. Most of these distinguish good or evil spirits by the nature of the impression caused by them.
@@ -65,7 +63,7 @@ Another special category within types of mediums are those which reflects the et
 
 The Mediums Book Chapter 15 # 196-197
 
-Imperfect Mediums.
+## Imperfect Mediums
 
 ### Mediums who are obsessed
 those who cannot rid themselves of importunate, deceptive spirits, but who are fully aware of; and regret, this obsession.
@@ -125,10 +123,9 @@ TODO
 
 
 ## Suggested Reading
-TODO
+[The Mediums Book](/books/allan-kardec/mediums-book)  
 
 
-
-<a href="/spiritism/mediumship" class="button">Back to Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
-
+<a href="who-is-medium" class="button">Previous: Who is a medium</a>
+<a href="mediums" class="button">About Mediums</a>
+<a href="medium-evolution" class="button">Next: Evolution of a Medium</a>

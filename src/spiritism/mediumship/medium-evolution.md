@@ -68,6 +68,6 @@ TODO
 
 
 
-<a href="/spiritism/mediumship" class="button">Back to Mediumship</a>
-<a href="/spiritism/" class="button">Back to Spiritism</a>
-
+<a href="types-of-mediums" class="button">Previous: Types of mediums</a>
+<a href="mediums" class="button">About Mediums</a>
+<a href="medium-superiority" class="button">Next: Misconception: Medium Superioriority</a>

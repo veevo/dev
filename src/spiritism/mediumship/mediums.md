@@ -10,19 +10,22 @@ In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputat
 
 ### Basic Concepts
 [What is a medium](about-mediums)  
-[Types of mediums](medium-types)  
-[The evolution of a Medium](medium-evolution)  
+[Who is a medium](who-is-medium)  
+[Why are we mediums?](why-medium)  
+[Spiritual Influences](spiritual-influences)  
 
+
+### Advanced Concepts
+[Types of mediums](types-of-mediums)  
+[Evolution of a Medium](medium-evolution)  
 
 ### Common Questions
-[Mediumship - Dangers](dangers)  
-[Mediumship - Expected Behavior](behavior)  
-[Mediumship - Frauds](frauds)  
-[Mediumship in children](mediumship-children)  
-
-
-## See Also
+[Misconception: Are Mediums Superior?](medium-superiority)  
 
 
 
-<a href="/spiritism/advanced" class="button">Back to Advanced</a>
+
+<a href="../advanced" class="button special">Advanced Topics</a>
+<a href="learn" class="button">Mediumship</a>
+<a href="phenomena" class="button">Phenomena</a>
+<a href="spirits" class="button">Spirits</a>

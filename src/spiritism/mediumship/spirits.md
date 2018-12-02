@@ -19,4 +19,9 @@ Mediumship is one of the pillars of Spiritism. Know from the link below some of 
 
 
 
-<a href="/spiritism/advanced" class="button">Back to Advanced</a>
+
+
+<a href="../advanced" class="button special">Advanced Topics</a>
+<a href="learn" class="button">Mediumship</a>
+<a href="mediums" class="button">Mediums</a>
+<a href="spirits" class="button">Spirits</a>
