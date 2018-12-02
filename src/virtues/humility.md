@@ -6,11 +6,16 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## What is Humility
+The spirits teach us that pride is the most influential moral imperfection and continuously warn their students of its signs and consequences. In avoiding the downfalls caused by pride, the good medium remembers that he is only a simple instrument of others employed under God's will, and, therefore, does not assume any merit for the communications that he receives, or for the healing energies that he helps bring to another.
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+One also recognizes that he is not infallible, and when duped by deceitful spirits, he understand that this happened as a result of a fault in his character and/or his conduct.  The humble medium is willing to regularly practice self-criticism in order to recognize his own mistakes and avoid becoming unbalanced − through excessive enthusiasm, apathy toward results, or being at mercy of unenlightened spirits who may plan for his failure. In addition to practicing self-criticism, the good medium is also open to constructive criticism from trust-worthy friends and mentors, and even seeks out such advice and mentoring.
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+
 
 ## See Also
 
 TODO
+
+
+
+<a href="./" class="button special">All Virtues</a>
