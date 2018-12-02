@@ -30,7 +30,7 @@ TODO
 
 
 <a href="about-mediums" class="button">Previous: What is a medium</a>
-<a href="mediums" class="button">About Mediums</a>
+<a href="mediums" class="button special">About Mediums</a>
 <a href="why-medium" class="button">Next: Why are we mediums?</a>
 
 

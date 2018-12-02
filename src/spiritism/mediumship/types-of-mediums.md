@@ -5,18 +5,16 @@ title: Types Of Mediums
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Types Of Mediums
-
+## Introduction
 The two main categories of [mediumistic phenomena](phenomena) are: **physical & intelligent**. From that, derive the two main types of mediums: physical and intellectual. Let's understand them.
 
-## Physical Mediums
-Mediums who have a tendency to physical manifestations of Spirit communications through the giving of [ectoplasm](/about/ectoplasm).
+## Categories Of Mediums
+[Physical Mediums](physical-mediums)  
+[Intellectual Mediums](intellectual-mediums)  
+[Curing Mediums](curing-mediums)  
 
 
-## Intellectual Mediums
-Mediums who have a tendency to intellectual manifestations of Spirit communications through the bonding of perispirits.  
-The Mediums Book Chapter 16 #187 – #188
-
+## Types Of Mediums
 ### Sensitive Mediums
 Persons who feel the presence of spirits by a peculiar impression, general or local, vague or undecided. Most of these distinguish good or evil spirits by the nature of the impression caused by them.
 
@@ -115,17 +113,10 @@ those who understand that the true medium has a mission to fulfill, and that he/
 ### Safe mediums
 those who, in addition to their power, are worthy of confidence on account of their personal excellence and the elevated nature of the spirits who assist them, and who are thus the least likely to be deceived. We shall see hereafter that this security does not depend in any way upon the honorability of the names assumed by the communicating spirits.
 
-## Source
-[Types Of Mediums](http://www.sgny.org/spiritism-guide/mediumship/medium-types/)
-
-## See Also
-TODO
 
 
-## Suggested Reading
-[The Mediums Book](/books/allan-kardec/mediums-book)  
 
 
-<a href="who-is-medium" class="button">Previous: Who is a medium</a>
-<a href="mediums" class="button">About Mediums</a>
-<a href="medium-evolution" class="button">Next: Evolution of a Medium</a>
+<a href="who-is-medium" class="button">Previous: Physical Mediums</a>
+<a href="mediums" class="button special">About Mediums</a>
+<a href="physical-mediums" class="button">Next: Physical Mediums</a>

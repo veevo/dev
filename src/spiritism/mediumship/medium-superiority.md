@@ -30,5 +30,4 @@ TODO
 
 
 <a href="medium-evolution" class="button">Previous: Evolution of a Medium</a>
-<a href="mediums" class="button">About Mediums</a>
-<a href="types-of-mediums" class="button">Next: Types of Mediums</a>
+<a href="mediums" class="button special">About Mediums</a>

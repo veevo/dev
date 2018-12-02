@@ -17,7 +17,12 @@ In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputat
 
 ### Advanced Concepts
 [Types of mediums](types-of-mediums)  
+[Physical mediums](physical-mediums)  
+[Intellectual mediums](intellectual-mediums)  
+[Curing mediums](curing-mediums)  
+[How the Communication Happens](communication)  
 [Evolution of a Medium](medium-evolution)  
+[Mental Influence](mental-influence)  
 
 ### Common Questions
 [Misconception: Are Mediums Superior?](medium-superiority)  

@@ -30,5 +30,5 @@ Trough Mediumship a medium can provide healing energy from the spiritual realm t
 
 
 <a href="who-is-medium" class="button">Previous: Who is a medium</a>
-<a href="mediums" class="button">About Mediums</a>
+<a href="mediums" class="button special">About Mediums</a>
 <a href="spiritual-influences" class="button">Next: Spiritual Influences</a>

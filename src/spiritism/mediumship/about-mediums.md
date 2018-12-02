@@ -24,5 +24,5 @@ Possession of this ability to become an intermediary between two dimensions (the
 [ExploreSpiritism: We're all mediums](http://www.explorespiritism.com/Science_Mediumship_We're%20All_Intro.htm)  
 
 
-<a href="mediums" class="button">About Mediums</a>
+<a href="mediums" class="button special">About Mediums</a>
 <a href="who-is-medium" class="button">Next: Who is a Medium</a>

@@ -68,6 +68,6 @@ TODO
 
 
 
-<a href="types-of-mediums" class="button">Previous: Types of mediums</a>
-<a href="mediums" class="button">About Mediums</a>
-<a href="medium-superiority" class="button">Next: Misconception: Medium Superioriority</a>
+<a href="communication" class="button">Previous: How the Communication Happens</a>
+<a href="mediums" class="button special">About Mediums</a>
+<a href="mental-influence" class="button">Next: Mental Influence</a>
