@@ -11,8 +11,13 @@ Click below to learn more about what Spiritism has to say about spirits and the 
 ### Basic Concepts
 [Spirits - Creation](creation)  
 [Spirits - Evolution](evolution)  
-[Spirits - Categories](categories)  
-[Types of World](types-of-world)  
+[Categories of Spirits](categories)  
+[Imperfect Spirits](imperfect)  
+[Good Spirits](good)  
+[Pure (Christic) Spirits](pure)  
+[Communication - Inferior Spirits](inferior-communication)  
+[Communication - Superior Spirits](superior-communication)  
+[Types of Worlds](types-of-world)  
 
 
 

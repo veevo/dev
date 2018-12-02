@@ -62,6 +62,6 @@ TODO
 
 
 
-<a href="categories" class="button">Previous: Categories</a>
+<a href="superior-communication" class="button">Previous: Superior Spirits</a>
 <a href="./" class="button special">Spirits</a>
 <!-- <a href="" class="button">Next: </a> -->
