@@ -18,6 +18,7 @@ Mediumship is one of the pillars of Spiritism. Know from the link below some of 
 
 
 ### Advanced Concepts
+[Types of Communications](types-of-communications)  
 [Stages of mediumship](stages)  
 [How to improve your mediumship](how-to-improve)  
 

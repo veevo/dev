@@ -26,6 +26,6 @@ TODO
 
 
 <a href="about" class="button">Previous: Introduction to Mediumship</a>
-<a href="learn" class="button">Back to Mediumship</a>
+<a href="learn" class="button special">Mediumship</a>
 <a href="causes" class="button">Next: Causes of Mediumship</a>
 

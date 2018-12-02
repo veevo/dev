@@ -44,6 +44,6 @@ TODO
 
 
 <a href="intellectual" class="button">Previous: Intellectual Mediumship</a>
-<a href="learn" class="button">Back to Mediumship</a>
+<a href="learn" class="button special">Mediumship</a>
 <a href="how-to-improve" class="button">Next: How to Improve</a>
 
