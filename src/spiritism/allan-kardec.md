@@ -20,4 +20,4 @@ TODO
 TODO
 
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>

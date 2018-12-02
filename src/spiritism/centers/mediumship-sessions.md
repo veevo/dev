@@ -20,6 +20,6 @@ These meetings, which are not open to the public, are held with a consistent gro
 [Spiritist Center Activities - Community Outreach](community-outreach) 
 
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="fraternal-assistance" class="button">Next: Fraternal Assistance</a>

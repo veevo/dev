@@ -37,6 +37,6 @@ TODO: Add ref to SGNY
 
 
 
-<a href="/spiritism/backlash" class="button">Previous: Backlash to the Codification</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/how-to-study" class="button">Next: How to Study Spiritism</a>
+<a href="backlash" class="button">Previous: Backlash to the Codification</a>
+<a href="learn" class="button special">Learn Spiritism</a>
+<a href="why-practice" class="button">Next: Why practice Spiritism</a>

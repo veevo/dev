@@ -56,5 +56,5 @@ TODO
 
 
 <a href="/spiritism/codification" class="button">Previous: The Codification</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/history" class="button">Next: History of Spiritism</a>

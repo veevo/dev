@@ -43,4 +43,4 @@ TODO
 
 <a href="inferior-communication" class="button">Previous: Inferior Spirits</a>
 <a href="./" class="button special">Spirits</a>
-<a href="types-of-world" class="button">Next: Types of World</a>
+<a href="types-of-world" class="button">Next: Types of Worlds</a>

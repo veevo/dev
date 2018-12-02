@@ -24,6 +24,6 @@ Many centers offer meetings or study groups for the youth, as well, with lessons
 [Spiritist Center Activities - Community Outreach](community-outreach) 
 
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="study-groups" class="button">Next: Class and Study Groups</a>

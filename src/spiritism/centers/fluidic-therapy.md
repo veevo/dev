@@ -22,6 +22,6 @@ You can read more about Fluidic Therapy by reading the section titled "Intro to 
 [Spiritist Center Activities - Community Outreach](community-outreach) 
 
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="children-youth-studies" class="button">Next: Children's and Youth Studies</a>

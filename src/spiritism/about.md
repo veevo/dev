@@ -34,5 +34,5 @@ The religious aspect stems from the moral ties between ourselves, and others, an
 [Spiritism - Science, Philosophy and Religion](science-philosophy-religion)
 
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/foundations" class="button">Next: Spiritism - Foundations</a>

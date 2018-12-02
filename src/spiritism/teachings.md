@@ -89,5 +89,5 @@ TODO
 TODO
 
 <a href="/spiritism/foundations" class="button">Previous: Foundations</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/codification" class="button">Next: The Codification</a>

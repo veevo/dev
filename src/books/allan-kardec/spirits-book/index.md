@@ -48,5 +48,5 @@ TODO
 
 <a href="/books/allan-kardec" class="button">Allan Kardec Bibliography</a>
 <a href="/books" class="button">All Books</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 

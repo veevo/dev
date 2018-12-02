@@ -28,6 +28,6 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 [Spiritism - Science, Philosophy and Religion](science-philosophy-religion)
 
 
-<a href="/spiritism/how-to-study" class="button">Previous: How to Study Spiritism</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
-<a href="/spiritism/how-to-study" class="button">Next: How to Study Spiritism</a>
+<a href="/spiritism/how-to-study" class="button">Previous: How to Study</a>
+<a href="learn" class="button special">Learn Spiritism</a>
+<a href="/spiritism/science-philosophy-religion" class="button">Next: Science, Philosophy and Religion</a>

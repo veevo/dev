@@ -58,5 +58,5 @@ From the original “Get to Know Spiritism, a new era for Humanity” by CEI (In
 
 
 <a href="/spiritism/about" class="button">Previous: Introduction</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/teachings" class="button">Next: Teachings</a>

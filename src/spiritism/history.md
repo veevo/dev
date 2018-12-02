@@ -82,5 +82,5 @@ Based on the essay “O Espiritismo em sua mais simples expressão” by A. Kard
 
 
 <a href="/spiritism/not-spiritism" class="button">Previous: What Spiritism is NOT</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/backlash" class="button">Next: Backlash to the Codification</a>

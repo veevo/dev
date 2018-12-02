@@ -37,5 +37,5 @@ TODO: Add ref to SGNY
 
 
 <a href="/spiritism/why-it-endured" class="button">Previous: Why it endured</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/how-to-practice" class="button">Next: Spiritism - How to Practice</a>

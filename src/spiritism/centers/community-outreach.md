@@ -21,5 +21,5 @@ Spiritist centers often organize different activities, sometimes as one-time eve
 [Spiritist Center Activities - Community Outreach](community-outreach) 
 
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>

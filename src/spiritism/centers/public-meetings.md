@@ -20,6 +20,6 @@ These meetings are an excellent way for those who are new to Spiritism to learn 
 [Spiritist Center Activities - Fraternal Assistance](fraternal-assistance)  
 [Spiritist Center Activities - Community Outreach](community-outreach) 
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
 <a href="fluidic-therapy" class="button">Next: Fluidic Therapy</a>

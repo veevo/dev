@@ -29,5 +29,5 @@ TODO
 
 
 <a href="/spiritism/history" class="button">Previous: History of Spiritism</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/why-it-endured" class="button">Next: Why it endured</a>

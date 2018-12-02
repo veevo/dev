@@ -22,6 +22,7 @@ We prepared a summary of the Spiritist Doctrine as described below. You can find
 
 
 ### Studying Spiritism
+[Spiritism - Why should we practice?](why-practice)  
 [Spiritism - How to Study](how-to-study)  
 [Spiritism - How to Practice](how-to-practice)  
 
@@ -30,5 +31,5 @@ We prepared a summary of the Spiritist Doctrine as described below. You can find
 [FAQ](faq)
 
 
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="./" class="button special">Spiritism - Main Topics</a>
 <a href="/spiritism/about" class="button">Next: Spiritism - Introduction</a>

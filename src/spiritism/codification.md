@@ -18,6 +18,6 @@ Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur m
 
 
 <a href="/spiritism/teachings" class="button">Previous: Teachings</a>
-<a href="/spiritism" class="button">Back to Spiritism</a>
+<a href="learn" class="button special">Learn Spiritism</a>
 <a href="/spiritism/not-spiritism" class="button">Next: What Spiritism is NOT</a>
 
