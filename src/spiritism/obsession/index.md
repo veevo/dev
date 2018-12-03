@@ -1,24 +1,19 @@
 ---
 layout: default-md
 section: Fluidic Therapy
-title: Fluidic Therapy
+title: Spiritual Obsession
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Information about Fluidic Therapy
+## Information about Spiritual Obsession
 In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 
 ### Concepts
 [Introduction](intro)  
-[Energy Imbalance](imbalance)  
-[Magnetism](magnetism)  
-[Magnetic Action](magnetic-action)  
-[The Healing Process](healing)  
-[Passes](passes)  
-[Fluidified Water](fluidified-water)  
-[Study](study)  
-[Bibliography](bibliography)  
-
+[Definition](definition)  
+[Mode of Action](mode-of-action)  
+[Progression](progression)  
+[Recommended Bibliography](bibliography)  
 
 
 <a href="../advanced" class="button special">Advanced Topics</a>
