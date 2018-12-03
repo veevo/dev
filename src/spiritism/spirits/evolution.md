@@ -45,4 +45,4 @@ TODO
 
 <a href="creation" class="button">Previous: Creation</a>
 <a href="./" class="button special">Spirits</a>
-<a href="categories" class="button">Next: Categories</a>
+<a href="physical-nature" class="button">Next: Physical Nature</a>

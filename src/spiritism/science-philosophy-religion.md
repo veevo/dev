@@ -5,16 +5,15 @@ title: SCIENCE, PHILOSOPHY AND RELIGION
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Introduction
+## Spiritsm: SCIENCE, PHILOSOPHY or RELIGION?
+We are at the dawn of the Third Millennium and there are many persons who have as yet not come to know or understand the [Jesus](/profile/jesus). At a time in which so much scientific knowledge is available to us, our hearts are still thirsting. Because of that, let's review what **Spiritism: Science, Philosophy and Religion** means on the third millennium.
 
-We are at the dawn of the Third Millennium and there are many persons who have as yet not come to know or understand the [Master Jesus](/profile/jesus). At a time in which so much scientific knowledge is available to us, our hearts are still thirsting. Because of that, let's review what SPIRITISM: SCIENCE, PHILOSOPHY AND RELIGION means on the THIRD MILLENNIUM.
+Let us get a little deeper into this theme: It was that same Master, who had promised to send us the [Consoler](/about/consoler), to teach mankind all things and to call to mind all that he had said. [Spiritism](/spiritism) has come at the predicted time to fulfill Christ’s promise. Through its triple aspect, Science, Philosophy and Religion, it has come to satiate us and to show us the way to Light, Tolerance and Love.
 
-Let us get a little deeper into this theme: It was that same Master, who had promised to send us the [Consoler](/about/consoler), to teach mankind all things and to call to mind all that he had said. Spiritism has come at the predicted time to fulfill Christ’s promise. Through its triple aspect, Science, Philosophy and Religion, it has come to satiate us and to show us the way to Light, Tolerance and Love.
-
-[Kardec](/profiles/allan-kardec) worked a lot for the purity of the [doctrine](/spiritism). It was born out of intensive and persistent work; years of observation, scrutinization and confirmation. It was not dictated empirically. Without a doubt it was meticulously organized by a great man. You can just imagine Kardec sitting at his usual table being oriented by [the Spirit of Truth](/about/spirit-of-truth) and His Phalange, of constant workers receiving this information, yet formulating intensive questions for clarification and accuracy.
+[Allan Kardec](/profiles/allan-kardec) worked a lot for the purity of the [doctrine](/spiritism). It was born out of intensive and persistent work; years of observation, scrutinization and confirmation. It was not dictated empirically. Without a doubt it was meticulously organized by a great man. You can just imagine Kardec sitting at his usual table being oriented by [the Spirit of Truth](/about/spirit-of-truth) and His Phalange, of constant workers receiving this information, yet formulating intensive questions for clarification and accuracy.
 
 ## Science
-Let us analyze then its three aspects. In its first aspect, [Science](/science), Spiritism gives us as basis: the knowledge of the [invisible world](/about/spiritual-world), in the center of which we live. It exposes the laws that govern the invisible world and its relationships with the corporeal world. It reveals the nature and the study of the beings that inhabit it, and the human beings” destiny after and beyond death.
+Let us analyze then its three aspects. In its first aspect, [Science](/science), Spiritism gives us as basis: the knowledge of the [invisible world](/about/spiritual-world), in the center of which we live. It exposes [the laws](/divine-laws) that govern the invisible world and its relationships with the corporeal world. It reveals the nature and the study of the beings that inhabit it, and the human beings” destiny after and beyond death.
 
 Science and [Spiritism](/spiritism) complement one another. Science without Spiritism is unable to explain certain specific phenomena. The same applies to Spiritism. It would not have had credibility without the confirmation by Science.
 
@@ -37,7 +36,7 @@ The Spiritist Doctrine, we admit, is relatively new, as it is only 152 years old
 [Jussara Korngold](/profiles/jussara-korngold)
 
 ## Source
-[Spiritism: Science, Philosophy and Religion](http://www.sgny.org/pdf/03sspr.pdf)
+[SGNY: Spiritism: Science, Philosophy and Religion](http://www.sgny.org/pdf/03sspr.pdf)
 
 
 ## See Also

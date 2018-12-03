@@ -6,8 +6,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## Spirit Creation
-
-Before exploring mediumship in depth the subject of creation and evolution of Spirits needs to be explained. Below is an extremely brief outline of a process discussed in detail in “special Spiritist topics’ section of this guide.
+The exact, intimate nature and origin of spirits is still unknown to us. Even the intelligent spirits that communicate to us are unable to explain it, either from their own ignorance, or due to the inability of our language to express it. What we do know is that spirits are a creation of God, that God has existed and created from all eternity, that the creation of spirits is ongoing, and that the existence of spirits has no end [1]. The spirits tell us [2] that each spirit is created in an equal state of simplicity and unawareness, whereby it's mission is of "self-enlightenment and gradual achievement of perfection through the pursuit of knowledge and truth", acquired through the experiences of trials and atonements undergone over the course of multiple, material, existences.  
 
 God creates a Spirit by uniting a ‘soul’ (intelligent individual element) with the semi-material perispirit. Once created the Spirit is simple and unaware, but even then already endowed with several instinctive understandings critical to its future. The first is a rudimentary understanding of its creator; it understands that one divine creator does exist and that it is the progeny of this creator. Second, the ability to communicate with its creator through prayer and seek guidance from God. Third, an understanding of right and wrong in its most simplistic terms.
 
@@ -29,6 +28,11 @@ This Spirit has now evolved to the point when it is assigned even bigger tasks b
 
 The exact details of Spirit evolution beyond this point have never been fully revealed because the limitations of human language preclude an accurate explanation by the spirit teachers. The following is what the spirit teachers have volunteered: The time comes when the spirit has evolved to a point when it can perceive God in God’s true form and the fully evolved spirit now again return to it’s creator.
 
+## References
+[1] "The Spirits Book", questions 78-80; 83
+[2] "The Spirits Book", question 155
+
+
 
 ## Source
 [Spirit Creation And Evolution](http://www.sgny.org/spiritism-guide/mediumship/spirit-evolution/)
@@ -43,5 +47,6 @@ TODO
 
 
 
+<a href="introduction" class="button">Previous: Introduction</a>
 <a href="./" class="button special">Spirits</a>
 <a href="evolution" class="button">Next: Evolution</a>
