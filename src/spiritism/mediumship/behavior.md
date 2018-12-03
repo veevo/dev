@@ -29,6 +29,6 @@ Again, the key to protection from spirits of an inferior nature is continuous st
 
 
 
-<a href="" class="button">Previous: </a>
+<a href="suspension" class="button">Previous: Suspension of the mediumship</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="fraud" class="button">Next: Fraud</a>

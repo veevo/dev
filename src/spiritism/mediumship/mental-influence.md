@@ -22,7 +22,7 @@ Rigonatti, Eliseu. "Mediuns Videntes" [Seeing Mediums] A Mediunidade Sem Lagrima
 Schubert, Suely Caldas. "A Videncia" [Sight]. Mediunidade: Caminho Para Ser Feliz [Mediumship: The Path to Happiness]. Votuporanga- SP, Brazil. Casa Editora Espírita "Pierre-Paul Didier". 1999. 152-159. 
 
 ## Source
-[The Evolution Of The Medium](http://www.sgny.org/spiritism-guide/mediumship/medium-evolution/)
+[SGNY: The Evolution Of The Medium](http://www.sgny.org/spiritism-guide/mediumship/medium-evolution/)
 
 
 ## See Also
@@ -33,6 +33,6 @@ TODO
 TODO
 
 
-<a href="medium-evolution" class="button">Previous: Evolution of a Medium</a>
-<a href="mediums" class="button special">About Mediums</a>
-<a href="medium-superiority" class="button">Next: Misconception: Medium Superioriority</a>
+<a href="dangers" class="button">Previous: Dangers</a>
+<a href="./" class="button special">Mediumship</a>
+<a href="children" class="button">Next: Mediumship in children</a>

@@ -32,6 +32,6 @@ Luiz, André (spirit Author) / Xavier, Francisco Cândido (Medium). "Psicofonia 
 [ExploreSpiritism.com: Mediumship: Control of Communications](//www.explorespiritism.com/Science_Mediumship_Control_Responsibility.htm)
 
 
-<a href="" class="button">Previous: </a>
+<a href="communication" class="button">Previous: How the Communication Happens</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="how-to-develop" class="button">Next: Developing mediumship</a>

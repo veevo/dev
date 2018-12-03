@@ -35,6 +35,5 @@ Of course no positive work, from the most basic to the most advanced, can come f
 TODO
 
 
-<a href="" class="button">Previous: </a>
+<a href="mental-influence" class="button">Previous: Mental Influence</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>

@@ -48,6 +48,6 @@ TODO
 
 
 
-<a href="" class="button">Previous: </a>
+<a href="how-to-improve" class="button">Previous: How to improve</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="lack-of" class="button">Next: Lack of Ostensiveness</a>

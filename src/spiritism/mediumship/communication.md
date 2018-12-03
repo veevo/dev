@@ -49,6 +49,6 @@ This process can be initiated automatically, since the medium is like an antenna
 
 
 
-<a href="" class="button">Previous: </a>
+<a href="types-of-communications" class="button">Previous: Types of Communications</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="communication-control" class="button">Next: Controlling the Communication</a>

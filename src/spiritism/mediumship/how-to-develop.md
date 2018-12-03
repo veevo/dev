@@ -72,6 +72,6 @@ TODO
 
 
 
-<a href="" class="button">Previous: </a>
+<a href="communication-control" class="button">Previous: Controlling the Communication</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="how-to-improve" class="button">Next: How to improve</a>

@@ -20,4 +20,4 @@ www.explorespiritism.com/Science_Mediumship_WhatIs_Physical%20vs.%20Intellectual
 
 <a href="physical" class="button">Previous: Physical mediumship</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="stages" class="button">Next: Stages of mediumship</a>
+<a href="types-of-communications" class="button">Next: Types of Communications</a>

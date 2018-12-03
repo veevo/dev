@@ -1,11 +1,11 @@
 ---
 layout: default-md
 section: Spiritism
-title: Mediumship Frauds
+title: Fraud in Mediumship 
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Mediumship and Frauds
+## Fraud in Mediumship 
 Some skeptics or critics are weary of the practice of mediumship because they are very suspicious of fraud, either in the manifestation itself or in the identification of a spirit who is said to have communicated.   We must be rational here and understand that just as there are deceptive people in all walks of life and all kinds of activities, they are at play in the practice of mediumship as well.  Some are not mediums at all and seek only to put on a show or to make a dollar at someone else's expense.  Others may actually be mediums but may use their abilities inappropriately or even mix truth with untruth out of self interest.  Likewise, deceit can originate from both the medium and the communicating spirits.  Even when the faculty is legitimate, if he/she is not careful, any true medium can be duped by a dishonest spirit.   
 
 Spiritism teaches us how to do our part to protect against the fraudulent practices and deceitful communications.  Trustworthy, Spiritist mediums:
@@ -32,6 +32,6 @@ www.explorespiritism.com/DANGER start.htm
 
 
 
-<a href="" class="button">Previous: </a>
+<a href="behavior" class="button">Previous: Expected Behavior</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="ethics" class="button">Next: Ethics</a>

@@ -35,6 +35,6 @@ TODO
 
 
 
-<a href="" class="button">Previous: </a>
+<a href="ostensive" class="button">Previous: Ostensiveness</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="suspension" class="button">Next: Suspension</a>

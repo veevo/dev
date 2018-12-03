@@ -31,13 +31,16 @@ Mediumship is one of the pillars of Spiritism. Know from the link below some of 
 [Lack of Ostensive mediumship](lack-of)  
 [Suspension of the mediumship](suspension)
 
+### Utilizing the Mediumship
+[Mediumship - Expected Behavior](behavior)  
+[Mediumship - Fraud](fraud)  
+[Mediumship - Ethics](ethics)  
+[Mediumship - Utilization](utilization)  
 
 ### Common Questions
 [Mediumship - Dangers](dangers)  
 [Mediumship - Mental Influence](mental-influence)  
-[Mediumship - Expected Behavior](behavior)  
-[Mediumship in children](mediumship-children)  
-[Mediumship - Frauds](fraud)  
+[Mediumship in children](children)  
 
 
 

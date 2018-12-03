@@ -101,6 +101,6 @@ TODO
 
 
 
-<a href="communication" class="button">Previous: How the Communication Happens</a>
+<a href="how-to-develop" class="button">Previous: How to develop</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="suspension" class="button">Next: Suspension of the mediumship</a>
+<a href="ostensive" class="button">Next: Ostensive mediumship</a>
