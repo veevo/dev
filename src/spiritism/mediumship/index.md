@@ -1,7 +1,7 @@
 ---
 layout: default-md
 section: Spiritism
-title: Learn about Mediumship
+title: Mediumship
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
@@ -12,16 +12,24 @@ Mediumship is one of the pillars of Spiritism. Know from the link below some of 
 [Introduction](intro)  
 [What is mediumship](about)  
 [Causes of mediumship](causes)  
+[Stages of mediumship](stages)  
+
+### Types of Mediumship
 [Types of mediumship](types)  
 [Physical mediumship](physical)  
 [Intellectual mediumship](intellectual)  
 
-
-### Advanced Concepts
+### About the Communication
 [Types of Communications](types-of-communications)  
-[Stages of mediumship](stages)  
 [How the Communication Happens](communication)  
+[Controlling the Communication](communication-control)  
+
+### Developing the Mediumship
+[How to develop your mediumship](how-to-develop)  
 [How to improve your mediumship](how-to-improve)  
+[Ostensive mediumship](ostensive)  
+[Lack of Ostensive mediumship](lack-of)  
+[Suspension of the mediumship](suspension)
 
 
 ### Common Questions

@@ -101,6 +101,6 @@ TODO
 
 
 
-<a href="" class="button">Previous: </a>
+<a href="communication" class="button">Previous: How the Communication Happens</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="suspension" class="button">Next: Suspension of the mediumship</a>

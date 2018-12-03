@@ -49,6 +49,6 @@ This process can be initiated automatically, since the medium is like an antenna
 
 
 
-<a href="curing-mediums" class="button">Previous: Curing Mediums</a>
-<a href="mediums" class="button special">About Mediums</a>
-<a href="medium-evolution" class="button">Next: Evolution of a Medium</a>
+<a href="" class="button">Previous: </a>
+<a href="./" class="button special">Mediumship</a>
+<a href="" class="button">Next: </a>

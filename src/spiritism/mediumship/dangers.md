@@ -19,6 +19,6 @@ So, to answer the questions above, yes, there actually is a potential danger in 
 
 
 
-<a href="" class="button">Previous: </a>
+<a href="suspension" class="button">Previous: Suspension of the mediumship</a>
 <a href="./" class="button special">Mediumship</a>
-<a href="" class="button">Next: </a>
+<a href="mental-influence" class="button">Next: Mental Influence</a>

@@ -57,11 +57,12 @@ Kardec, Allan. "Mental And Moral Influence of the Medium" and "Special Mediums."
 
 
 ## Source
-[The Evolution Of The Medium](http://www.sgny.org/spiritism-guide/mediumship/medium-evolution/)
+[ExploreSpiritism.com: Mediumship - essential practices ](//www.explorespiritism.com/Science_Mediumship_Essential%20Practices_Intro.htm)
 
 
 ## See Also
-[Our list of Virtues](/virtues)
+[Veevo.org: Our list of Virtues](/virtues)
+[SGNY: The Evolution Of The Medium](http://www.sgny.org/spiritism-guide/mediumship/medium-evolution/)
 
 
 ## Suggested Reading
@@ -69,6 +70,6 @@ TODO
 
 
 
-<a href="evolution" class="button">Previous: Evolution of a Medium</a>
+<a href="behavior" class="button">Previous: Expected Behavior</a>
 <a href="./" class="button special">About Mediums</a>
-<a href="superiority" class="button">Next: Are Mediums Superior?</a>
+<a href="evolution" class="button">Next: Evolution of a Medium</a>

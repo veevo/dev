@@ -45,4 +45,4 @@ Rigonatti, Eliseu. "Os Mediuns Curadores" [Curing Mediums].  A Mediunidade Sem L
 
 <a href="who-is" class="button">Previous: Physical Mediums</a>
 <a href="./" class="button special">About Mediums</a>
-<a href="evolution" class="button">Next: Evolution of a Medium</a>
+<a href="behavior" class="button">Next: Expected Behavior</a>

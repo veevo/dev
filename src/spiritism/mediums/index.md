@@ -15,15 +15,19 @@ In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputat
 [Spiritual Influences](influences)  
 
 
-### Advanced Concepts
+### Types of mediums
 [Types of mediums](types)  
 [Physical mediums](physical)  
 [Intellectual mediums](intellectual)  
 [Curing mediums](curing)  
 
-### Common Questions
-[Evolution of a Medium](evolution)  
+### Behavior and Development
+[Expected Behavior from a Medium](behavior)  
 [Virtues Mediums should have](virtues)  
+[Evolution of the Mediumship](evolution)  
+
+
+### Common Questions
 [Misconception: Are Mediums Superior?](superiority)  
 
 

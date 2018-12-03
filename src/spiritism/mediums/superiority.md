@@ -30,5 +30,5 @@ TODO
 
 
 
-<a href="virtues" class="button">Previous: Virtues Mediums should have</a>
+<a href="evolution" class="button">Previous: Evolution of the Mediumship</a>
 <a href="./" class="button special">About Mediums</a>

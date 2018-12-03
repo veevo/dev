@@ -1,11 +1,11 @@
 ---
 layout: default-md
 section: Mediums
-title: The evolution of a Medium
+title: Evolution of the Mediumship
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## The evolution of a Medium
+## The evolution of the Mediumship
 
 Once mediumship of any type has shown itself, it begins a life long commitment that requires deep personal growth and modification, not just learning about Spiritism through books or a Spiritist Center.
 
@@ -36,6 +36,6 @@ TODO
 
 
 
-<a href="communication" class="button">Previous: How the Communication Happens</a>
+<a href="virtues" class="button">Previous: Virtues Expected</a>
 <a href="./" class="button special">About Mediums</a>
-<a href="virtues" class="button">Next: Virtues Expected in Mediums</a>
+<a href="superiority" class="button">Next: About Medium Superiority</a>
