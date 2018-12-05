@@ -61,7 +61,6 @@ TODO
 
 
 
-
-<a href="superior-communication" class="button">Previous: Superior Spirits</a>
-<a href="./" class="button special">Spirits</a>
-<!-- <a href="" class="button">Next: </a> -->
+<a href="intro" class="button">Previous: Introduction</a>
+<a href="./" class="button special">Inhabited Worlds</a>
+<a href="primitive" class="button">Next: Primitive Worlds</a>
