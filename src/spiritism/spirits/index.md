@@ -1,11 +1,11 @@
 ---
 layout: default-md
 section: About
-title: Spirits and Spiritual Worlds
+title: Spirits
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Information about Spirits and Spiritual Worlds
+## Information about Spirits
 Click below to learn more about what Spiritism has to say about spirits and the spiritual world.
 
 ### Creation and Evolution of Spirits
@@ -27,11 +27,13 @@ Click below to learn more about what Spiritism has to say about spirits and the 
 [Communication - Superior Spirits](superior-communication)  
 
 ### The Spiritual Body
-[The Perispirt](perispirit)  
+[Perispirt](perispirit)  
+[Perispirt - Characteristics](perispirit-characteristics)  
+[Perispirt - Functions](perispirit-functions)  
+[Vital Principle](vital-principle)  
 
-### Spiritual Worlds
-[Types of Worlds](types-of-world)  
-
+### Other Topics
+[Spiritual Influence](influence)  
 
 
 

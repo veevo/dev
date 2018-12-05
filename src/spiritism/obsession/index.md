@@ -15,6 +15,9 @@ In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputat
 [Progression](progression)  
 [Recommended Bibliography](bibliography)  
 
+### Other Topics
+[Spiritual Influence](/spiritism/spirits/influence)  
+
 
 <a href="../advanced" class="button special">Advanced Topics</a>
 <a href="../mediumship" class="button">Mediumship</a>
