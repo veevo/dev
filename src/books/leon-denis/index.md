@@ -6,7 +6,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## Bibliography
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue.
+Among the great apostles of Spiritism, the extraordinarily powerful presence of Léon Denis deserves a very distinctive place, particularly, in view of having been the logical follower of Allan Kardec's work.  Being devoted to the profound study of Spiritism, in its triple aspect, incorporating science, philosophy, and religion, he expended a great deal of effort particular emphasis on its philosophical aspects.
 
 More about [Léon Denis](/profiles/leon-denis)
 

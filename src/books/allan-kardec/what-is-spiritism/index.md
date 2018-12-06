@@ -30,6 +30,6 @@ Allan Kardec
 TODO
 
 
-<a href="/books/allan-kardec" class="button">Allan Kardec Bibliography</a>
-<a href="/books" class="button">All Books</a>
+<a href="/books" class="button special">All Books</a>
+<a href="/books/allan-kardec" class="button">Author Bibliography</a>
 
