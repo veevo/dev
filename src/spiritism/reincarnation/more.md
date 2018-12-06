@@ -1,19 +1,16 @@
 ---
 layout: default-md
 section: Reincarnation
-title: Considerations
+title: Additional Considerations
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
-
-## Additional Considerations
- 
-
+## Other important Considerations
 ### Progression by Law
 
 By law, all spirits, proceeding at their own pace, will eventually progress through all phases. A spirit, out of laziness or ill-intentions, may remain stationary for some period, but, thanks to God's merciful support, it never remains in that state permanently. Likewise, spirits never regress in their evolution . The spirits tell us (#s 118 of "The Spirits' Book") that "as [spirits] advance, they understand the things that slow their progress. When a spirit finishes a trial, it learns a lesson it will never forget."
 
 
-### Always the Right Road
+### The Right Path
 
 Question # 120 of the "The Spirits' Book" asks, "Do all spirits have to taste evil to arrive at good?" The spirits answered, "not evil, but unawareness" meaning that a spirit who uses its free will to make good choices will progress much faster, but nevertheless, as Kardec later comments (discussion #127), "even those who follow the right road from the beginning do not attain a state of perfection immediately because they still have to acquire the knowledge and experience that goes with this state." He compares this to the development of a child, whereby even the most precocious, mature, and well-behaved child, must still pass through youth to reach adulthood. spirits who follow the right road will be rewarded, however, for they will arrive sooner at perfection; their imperfections will be fewer and their suffering will be less.
 

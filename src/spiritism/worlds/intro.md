@@ -29,4 +29,4 @@ TODO
 
 
 <a href="./" class="button special">Inhabited Worlds</a>
-<a href="Types of Worlds" class="button">Next: </a>
+<a href="types" class="button">Next: Types of Worlds</a>

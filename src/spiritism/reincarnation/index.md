@@ -14,29 +14,36 @@ Click below to learn more about what Spiritism has to say about reincarnation.
 [Progress throught Reincarnations](progress)  
 [Reaping the Harvest](harvest)  
 [Trials and Missions](trials-and-missions)  
-[Final Considerations](more)  
-
+[Other Considerations](more)  
 
 ### The Theory of Reincarnation
-[Theory of Reincarnation - Introduction](theory/)  
-[Theory of Reincarnation - Philosophic Argument](theory/philosophy)  
-[Theory of Reincarnation - Spiritual Communications](theory/communications)  
-[Theory of Reincarnation - Scientific Investigation](theory/science)  
+[Introduction to the Theory of Reincarnation](theory/)  
+[Philosophic Argument](theory/philosophy)  
+[Confirmation through Spiritual Communications](theory/communications)  
+[Scientific Investigation](theory/science)  
 
 
-
-### Spiritual Support
-[Spiritual Support - Introduction](support/)  
-[Spiritual Support - Equality](support/equality)  
-[Spiritual Support - Forgetfulness of the Past](support/past)  
-[Spiritual Support - Spiritual Guides](support/guides)  
-
+### The Spiritual Support for Reincarnation
+[Divine Support](support/)  
+[Equality](support/equality)  
+[Forgetfulness of the Past](support/past)  
+[Help of Spiritual Guides](support/guides)  
 
 
+### Planning, Living and Returning form a reincarnation
+[Planning a Reincarnation](planning)  
+[Conception and Birth](conception)  
+[Childhood](childhood)  
+[The adult Life](adult-life)  
+[Material Death](death)  
+[Separation of Spirit and Body](separation-spirit-body)  
+[Confusion and Awakening](awakening)  
+[Where we go after death](where-we-go)  
 
-### The Journey
-
-
+### Common Questions
+[What happens when I sleep](sleep)  
+[Forgetfulness of the Past](forgetfulness)  
+[How should I behave on someone's death](reactions)  
 
 
 <a href="../advanced" class="button special">Advanced Topics</a>
