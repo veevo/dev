@@ -15,4 +15,4 @@ And in order for human societies to function and thrive they must have laws. Of 
 TODO
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

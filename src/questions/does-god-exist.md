@@ -1,7 +1,7 @@
 ---
 layout: default-md
 section: Questions
-title: Suicide
+title: Does God exist?
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 

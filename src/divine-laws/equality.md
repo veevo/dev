@@ -12,8 +12,11 @@ As part of our evolution we will be reincarnated countless times and in countles
 
 All spirits who incarnate/reincarnate on an earthly world are basically on the same level of evolution. Once that basic level of evolution has been achieved, the spirit no longer needs to reincarnate in a human form. It is also important to realize that those who cling to the idea of superiority and inferiority are not those who are searching for the path to their own ethical and intellectual evolution.
 
+Everyone is governed by the same natural laws, sharing the same fragility, subject to the same sufferings. All Spirits are created equal. The variety of human talents and the differences in our moral and intellectual characters result from our stages in spiritual development, not from differences in creation. Men and women are equal before God in their understanding of good and bad and their ability to evolve. They compliment one another through their differences in physical strength and emotional awareness. Special treatment of either is a violation of the law of justice. Social inequalities are of human construction and will decrease as humans evolve morally. Economic inequalities have different causes, and absolute equality is impossible given the diversity in human talent and character. What matters most is how we act given what we have, and societies do have the responsibility, not to create an absolute equality in the distribution of wealth, but to see that all its members are educated and given the opportunity to develop their ethical judgment. Earthly trials are found in both poverty, which tests our resignation, as well as in power, social status, and wealth, which test our usage of such advantages with respect to others and our resistance to negative temptations. 
+
+
 ## See Also
 TODO
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

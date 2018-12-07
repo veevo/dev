@@ -13,11 +13,11 @@ We prepared a summary of the Spiritist Doctrine as described below. You can find
 [Spiritism - Foundations](foundations)  
 [Spiritism - Teachings](teachings)  
 [Spiritism - The Codification](codification)  
-[Spiritist - What it is NOT](not-spiritism)  
+[Spiritism - What it is NOT](not-spiritism)  
 
 ### History
 [Spiritism - History](history)  
-[Backlash to the Codification](backlash)  
+[Spiritism - Backlash to the Codification](backlash)  
 [Spiritism - Why it Endured](why-it-endured)  
 
 
@@ -26,8 +26,13 @@ We prepared a summary of the Spiritist Doctrine as described below. You can find
 [Spiritism - How to Study](how-to-study)  
 [Spiritism - How to Practice](how-to-practice)  
 
-### See Also
-[Spiritism - Science, Philosophy and Religion](science-philosophy-religion)  
+### Science, Philosophy and Religion
+[Spiritism: Science, Philosophy or Religion?](science-philosophy-religion)  
+[The scientific aspect of Spiritism](science/)  
+[The philosophic aspect of Spiritism](philosophy/)  
+[The religious aspect of Spiritism](religion/)  
+
+### Common Questions
 [FAQ](faq)
 
 

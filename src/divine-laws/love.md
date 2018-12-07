@@ -12,4 +12,4 @@ Love is the basis of all of God’s laws and gifts God has given us. It is the d
 TODO
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

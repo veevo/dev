@@ -14,4 +14,4 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 [Spiritism: Reincarnation - The harvest](/spiritism/reincarnation/harvest)
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

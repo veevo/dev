@@ -13,4 +13,4 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 TODO
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

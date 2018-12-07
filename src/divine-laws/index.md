@@ -6,9 +6,9 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## About Divine Laws
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Natural law, divine law, is comprised of the unchanging, eternal laws that govern the universe ̶ both the laws of nature that govern our physical realm, and which are studied by our scientific researchers, as well as the ethical laws, or rules for proper, moral action, the essence of which is contained in the instruction to love your neighbor and do for him what you’d wish for you.
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+God’s law is written in the conscience of each one of us, but over time, has been forgotten or misunderstood, which is why it must be revealed to us once again. The sprits tell us that, one day, everyone will fully comprehend the law, for that is the destiny toward which progress is inevitably leading us¹.
 
 
 ## Our List of Divine Laws

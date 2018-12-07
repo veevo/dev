@@ -24,5 +24,5 @@ In a book called [Genesis](/books/allan-kardec/genesis), [Allan Kardec](/profile
 
 
 
-<a href="/science/matter" class="button">Previous: Matter</a>
-<a href="/science/spirit" class="button">Next: Spirit</a>
+<a href="/spiritism/science/matter" class="button">Previous: Matter</a>
+<a href="/spiritism/science/spirit" class="button">Next: Spirit</a>

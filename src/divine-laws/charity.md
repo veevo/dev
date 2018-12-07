@@ -12,4 +12,4 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 TODO
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

@@ -16,4 +16,4 @@ All spirits who incarnate/reincarnate on an earthly world are basically on the s
 [Mediunic Communication](/spiritism/mediumship/communication)
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

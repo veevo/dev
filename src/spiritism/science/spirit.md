@@ -1,11 +1,11 @@
 ---
 layout: default-md
-section: Science
-title: Spirit
+section: Spiritism
+title: The Scientifict Aspect
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## The 3 Basic Elements of the Universe - Spirit
+## Spirit
 The essential nature of spirit has yet to be revealed to humans. But one can think of a spirit as “the intelligent principle of the universe” with their individual qualities, virtues, deffects and particular intelligence.
 
 Spirit is not matter. However, the union between spirit and matter is necessary to provide the spirit with tools to manifest itself, learn and progress. From the human perspective, since our senses aren’t designed to perceive spirits apart from matter, this union is also necessary for the manifestation of intelligent activity.  
@@ -17,5 +17,5 @@ Spirits can be either **incarnate** (incorporated in a material body and living 
 
 
 
-<a href="/science/matter" class="button">Previous: Matter</a>
-<a href="/science/cosmic-fluid" class="button">Next: The Cosmic Fluid</a>
+<a href="matter" class="button">Previous: Matter</a>
+<a href="cosmic-fluid" class="button">Next: The Cosmic Fluid</a>

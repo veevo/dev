@@ -12,4 +12,4 @@ To put it simply, it says that ignorant people will be attracted to other ignora
 TODO
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

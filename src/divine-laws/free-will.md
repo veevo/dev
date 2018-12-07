@@ -14,4 +14,4 @@ When it is time for us to reincarnate we even choose our next existence and the 
 TODO
 
 
-<a href="/divine-laws" class="button">All Divine Laws</a>
+<a href="/divine-laws" class="button special">All Divine Laws</a>

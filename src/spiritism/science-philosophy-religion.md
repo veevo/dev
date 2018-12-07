@@ -6,7 +6,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 ---
 
 ## Spiritsm: SCIENCE, PHILOSOPHY or RELIGION?
-We are at the dawn of the Third Millennium and there are many persons who have as yet not come to know or understand the [Jesus](/profile/jesus). At a time in which so much scientific knowledge is available to us, our hearts are still thirsting. Because of that, let's review what **Spiritism: Science, Philosophy and Religion** means on the third millennium.
+We are at the dawn of the Third Millennium and there are many persons who have as yet not come to know or understand [Jesus](/profile/jesus). At a time in which so much scientific knowledge is available, our hearts still thirst. Let's review what Spiritism and its triple aspect of Science, Philosophy and Religion means on the third millennium.
 
 Let us get a little deeper into this theme: It was that same Master, who had promised to send us the [Consoler](/about/consoler), to teach mankind all things and to call to mind all that he had said. [Spiritism](/spiritism) has come at the predicted time to fulfill Christ’s promise. Through its triple aspect, Science, Philosophy and Religion, it has come to satiate us and to show us the way to Light, Tolerance and Love.
 
@@ -15,7 +15,7 @@ Let us get a little deeper into this theme: It was that same Master, who had pro
 ## Science
 Let us analyze then its three aspects. In its first aspect, [Science](/science), Spiritism gives us as basis: the knowledge of the [invisible world](/about/spiritual-world), in the center of which we live. It exposes [the laws](/divine-laws) that govern the invisible world and its relationships with the corporeal world. It reveals the nature and the study of the beings that inhabit it, and the human beings” destiny after and beyond death.
 
-Science and [Spiritism](/spiritism) complement one another. Science without Spiritism is unable to explain certain specific phenomena. The same applies to Spiritism. It would not have had credibility without the confirmation by Science.
+Science and [Spiritism](/spiritism) complement one another. Science without Spiritism is unable to explain certain specific [phenomena](phenomena/). The same applies to Spiritism. It would not have had credibility without the confirmation by Science.
 
 ## Philosophy
 Its second aspect, [Philosophy](/philosophy), focuses on the moral consequences that occur between the relationships of the [spiritual world](/spiritual-world) with the [physical world](/material-world). It studies the [communications](/spiritism/mediumship/communications) with the spiritual world, deducing with logic and reasoning the foundations of Science and of Religion, as follow:
@@ -42,5 +42,7 @@ The Spiritist Doctrine, we admit, is relatively new, as it is only 152 years old
 ## See Also
 [What is Spiritism](about)
 
-<a href="/spiritism" class="button">Go to Spiritism</a>
-<a href="/spiritism/learn" class="button">Go to Introduction to Spiritism</a>
+<a href="learn" class="button special">Spiritism</a>
+<a href="science/" class="button">Science</a>
+<a href="philosophy/" class="button">Philosophy</a>
+<a href="religion/" class="button">Religion</a>
