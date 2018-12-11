@@ -1,7 +1,7 @@
 ---
 layout: default-md
 section: Spiritism
-title: Learn
+title: Learn Spiritism
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
@@ -14,6 +14,7 @@ We prepared a summary of the Spiritist Doctrine as described below. You can find
 [Spiritism - Teachings](teachings)  
 [Spiritism - The Codification](codification)  
 [Spiritism - What it is NOT](not-spiritism)  
+[FAQ](faq)
 
 ### History
 [Spiritism - History](history)  
@@ -22,7 +23,7 @@ We prepared a summary of the Spiritist Doctrine as described below. You can find
 
 
 ### Studying Spiritism
-[Spiritism - Why should we practice?](why-practice)  
+[Spiritism - Why practice?](why-practice)  
 [Spiritism - How to Study](how-to-study)  
 [Spiritism - How to Practice](how-to-practice)  
 
@@ -31,9 +32,6 @@ We prepared a summary of the Spiritist Doctrine as described below. You can find
 [The scientific aspect of Spiritism](science/)  
 [The philosophic aspect of Spiritism](philosophy/)  
 [The religious aspect of Spiritism](religion/)  
-
-### Common Questions
-[FAQ](faq)
 
 
 <a href="./" class="button special">Spiritism - Main Topics</a>
