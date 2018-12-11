@@ -5,11 +5,11 @@ title: The Third Revelation
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Introduction
+# Definition
+Alma [latim: anima, do grego: anemos= sopro, emanação, ar] - É o ser imaterial, distinto e individual, unido ao corpo que lhe serve de invólucro temporário isto é, o Espírito em estado de encarnação, e que somente pertence à espécie humana. Unido ao corpo material pela encarnação, o Espírito constitui o homem; de forma que no homem há três coisas: a alma propriamente dita, ou princípio inteligente; o perispírito, ou envoltório fluídico da alma; o corpo, ou envoltório material.
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+A alma dos vegetais é dita simplesmente vital. A dos animais é dita instintiva, por ser dotada de inteligência instintiva. A alma do Homem é dita espírita ou moral, por ser dotada de livre arbítrio. Percebe-se que a alma dos animais é ao mesmo tempo vital e instintiva, enquanto a do Homem é algo mais, visto que, neste último, sua propriedade espécie-específica é distinta pelo alto grau de desenvolvimento de que é tomada a inteligência pelo livre arbítrio. Embora o corpo físico do Homem obedeça a padrões classificatórios que lhe chamariam de pertencente ao Reino Animal, do ponto de vista moral, o Homem é senhor de um próprio reino, o Hominal. (Bezerra de Menezes, "A Loucura sob Novo Prima").
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
 
 ### Properties of the Soul
 Immortal

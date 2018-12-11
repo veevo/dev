@@ -1,16 +1,14 @@
 ---
 layout: default-md
 section: About
-title: The Third Revelation
+title: Expiação
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Introduction
+# Definition
+Expiação [do latim expiatione] – Segundo a Doutrina Espírita, é a purgação purificadora do mal que infeccionou o Espírito. Até que os últimos vestígios da falta desapareçam, a expiação consiste nos sofrimentos físicos e morais que lhe são conseqüentes, seja na vida atual, seja na vida espiritual após a morte, ou ainda em nova existência corporal. Ela serve sempre de prova, mas nem sempre a prova é uma expiação. Provas e expiações, entretanto, são sempre sinais de relativa inferioridade do Espírito. 
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
-
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
 
 ## See Also
+Prova.
 
-TODO

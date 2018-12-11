@@ -9,7 +9,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 
 ETHICS is considered by many to be a somewhat esoteric topic. What most do understand about ethics is that it has something to do with good and bad, and that it is a controversial topic. Ethics has two aspects, first its definition: what does ethics mean. How what is ethical and not ethical can be identified. Second, its practice: the practical application, evolution and modification of a persons ethical code of conduct.
 
-## DEFINITION OF ETHICS
+# Definition OF ETHICS
 
 Simply, ethics is the rational understanding of what is correct behavior and what is not correct behavior. Ethics is usually defined by its identification with Religion, Culture and/or the Law. In truth these definitions are all too limiting.
 

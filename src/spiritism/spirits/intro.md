@@ -12,7 +12,7 @@ Allan Kardec, Spiritism Easily Explained
 
 As Allan Kardec said, an erroneous idea still prevails about spirits, which supposes them  to be vague and indefinite beings.  In truth, however, they are beings similar to ourselves. They do not even constitute a distinct creation or population, for in fact, we humans are all spirits, only we are presently incarnated in material bodies as part of the process of reincarnation. Those spirits referred to as "spirits of the dead", "spirits of the invisible world", even "ghosts", are only spirits or souls who were once incarnated in a human body and are, at the time of reference, free from the earthly flesh.
 
-### Definition
+## Definition
 
 Spirit, as it is referred to in our web's section on the scientific aspect of Spiritism, is defined as the intelligent principle of the universe (matter being the other major element).  In this section here, however, we are referring to individual spirits, as defined in "The Spirits' Book", as "the intelligent beings of creation." These intelligent beings, then, are the individualization of that intelligent principle, and they populate the invisible realms of the universe. 
 

@@ -12,6 +12,7 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 
 ## See Also
 [Spiritism: Reincarnation - The harvest](/spiritism/reincarnation/harvest)
+[Casuality](/about/casuality)
 
 
 <a href="/divine-laws" class="button special">All Divine Laws</a>

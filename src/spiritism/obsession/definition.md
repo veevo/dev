@@ -5,7 +5,7 @@ title: Definition
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Definition
+# Definition
 Within the context of Spiritism, we use the term obsession, as Suely Caldas Schubert writes, to identify the situation in which "someone, discarnate or incarnate, exercises a negative mental constriction over someone else, for whatever reason, by means of subtle suggestion, inducement, or coercion, and with the objective of dominion, a process which is continuously repeated on Earth, as well as in the inferior spiritual planes."
 
 The presence of a spiritual obsession always indicates a moral deficiency, in both the obsessed and the obsessor. Likewise, spirits who obsess others are always of an inferior nature, just as elevated or superior spirits are always noble in their sentiments and behaviors. The latter to try to advise us in our thoughts and actions, but such an influence is always positive, and they never seek to impose their will over our own.
