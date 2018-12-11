@@ -5,7 +5,7 @@ title: Cristina Cabral
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Biography
+# Biography
 Cristina Cabral was born in Brazil and grew up in a family of artists, surrounded by writers and musicians. At the age of fifteen, Cristina discovered her love for working with kids while putting together puppet shows for the local children. At seventeen, she wrote a stage adaptation of the children’s book "Três Voltas Pra Esquerda" (Three Spins to the Left), originally written by Stella Carr.
 
 Ms. Cabral currently coordinates the Department of Children, Youth, and Family at the Allan Kardec Spiritist Center in Danbury, Connecticut. Cristina is also one of the creators and organizers of the Annual Spiritist Educators Workshop.
@@ -20,4 +20,4 @@ TODO
 ## See Also
 TODO
 
-<a href="/profiles" class="button">Back to profiles</a>
+<a href="/profiles" class="button">All profiles</a>

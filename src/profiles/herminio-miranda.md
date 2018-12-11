@@ -13,4 +13,4 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 ## See Also
 TODO
 
-<a href="/profiles" class="button">Back to profiles</a>
+<a href="/profiles" class="button">All profiles</a>

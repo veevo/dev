@@ -5,7 +5,7 @@ title: Elsa Rossi
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Biography
+# Biography
 Elsa Rossi has a degree in Art from the Faculty of Fine Arts from the University of São Paulo, São Paulo, Brazil.
 
 She has written poems since her school days, and after the birth of her three children. she began to utilize children’s stories with the participation from her children, making use of everyday situations to exemplify moral lessons. In this way, she has created educational stories to stress the benefit of not lying, not fighting with other children, and of forgiving each other and having patience.
@@ -22,4 +22,4 @@ TODO
 ## See Also
 TODO
 
-<a href="/profiles" class="button">Back to profiles</a>
+<a href="/profiles" class="button">All profiles</a>

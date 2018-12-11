@@ -5,8 +5,30 @@ title: Emmanuel
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Biography
+# Biography
+Emmanuel é o nome do Espírito que tutelou a atividade mediúnica de Francisco Cândido Xavier, o maior médium psicógrafo de sempre, com mais de 400 obras psicografadas.
 
+Ao tempo da passagem de Jesus pela Terra, chamou-se Públio Lentulus Cornélio, um senador romano. Ao que se sabe, foi a única autoridade que efetuou perfeita descrição do Mestre Jesus, através da célebre carta, publicada em numerosas línguas, autêntica obra-prima. Encontrou-O, pessoalmente, solicitando-Lhe auxílio para a cura de sua filha Flávia, que, supomos, estaria leprosa. Desencarnou em Pompéia, no ano 79, vítima das lavas do Vesúvio. Anos depois, reencarnaria como judeu na Grécia, em Éfeso, já não mais sob a toga de orgulhoso senador romano, mas sim na estamenha do modesto escravo Nestório, que, na idade madura, participava das reuniões secretas dos cristãos nas catacumbas de Roma.
+
+Podemos conhecer melhor a história desse Espírito através das suas obras: Há Dois Mil Anos e Cinqüenta Anos Depois, transmitidas mediunicamente através de Chico Xavier. Estes livros constituem obras-primas singulares da literatura mediúnica e histórica.
+
+Elias Barbosa diz-nos que Emmanuel, o mentor espiritual estimado e respeitado de Chico Xavier, foi a personalidade de Manoel da Nóbrega, renascido em 18 de outubro de 1517, em Sanfins, Entre Douro e Minho, Portugal, quando reinava D. Manuel I, o Venturoso. Inteligência privilegiada, ingressou na Universidade de Salamanca, Espanha, aos 17 anos, e, com 21, inscreve-se na Faculdade de Cânones da Universidade de Coimbra, freqüentando aulas de Direito Canônico e Filosofia. Em 14 de Junho de 1541, em plena mocidade, recebe a láurea doutoral.
+
+Mais tarde, a 25 de Janeiro de 1554, seria um dos principais fundadores da grande metrópole São Paulo. Foi também o fundador da cidade de Salvador, Bahia, a primeira capital do Brasil.
+
+A informação de que Emmanuel teria sido o Padre Manoel da Nóbrega, foi dada pelo próprio Emmanuel em várias comunicações através da mediunidade idônea e segura de Francisco Cândido Xavier.
+
+No início da atividade mediúnica de Chico, nos anos trinta, ainda sem se identificar, disse-lhe que gostaria de trabalhar com ele durante longos anos, mas que necessitaria de três condições básicas para o fazer: (primeiro requisito) disciplina, (segundo requisito) disciplina, e (terceiro requisito) disciplina. O que foi plenamente cumprido por Chico Xavier, tanto no que se refere ao seu mandato mediúnico quanto à sua vida profissional, a serviço do Estado, como funcionário público, até o instante de sua aposentadoria. Além disso, Emmanuel, no início de sua nobre missão junto ao Chico Xavier, disse-lhe que se alguma vez ele o aconselhasse algo que não estivesse de acordo com as palavras de Jesus e Kardec, deveria esquecê-lo, permanecendo fiel a Jesus e Kardec.
+
+Emmanuel fez também parte da falange do Espírito da Verdade que trouxe à Terra o Cristianismo restaurado, definição sua da Doutrina Espírita. No Evangelho segundo o Espiritismo, Allan Kardec inseriu uma mensagem de Emmanuel, recebida em Paris, 1861, intitulada O Egoísmo (Cap. XI, Item 11).
+
+Para além dos dois livros históricos citados, temos ainda várias dezenas de outros, dos quais destacamos: Paulo e Estevão , obra que, segundo Herculano Pires, justificaria, por si só, a missão mediúnica de Francisco Cândido Xavier; Ave, Cristo e Renúncia, livros estes que, juntamente com os citados anteriormente, ajudam-nos a entender o nascimento do Cristianismo e sua gradual distorção histórica. Outrossim, estes cinco livros são baseados em fatos históricos verdadeiros. Emmanuel também foi considerado o quinto evangelista, pela superior interpretação do pensamento de Jesus. Em prol disso, basta a análise dos seguintes livros de sua autoria, pela mediunidade de Chico Xavier: Caminho, Verdade e Vida , Pão Nosso , Vinha de Luz e Fonte Viva.
+
+Há, ainda, a necessidade de registrar outras obras de Emmanuel, transmitidas através de Chico Xavier,  e que são preciosas: A Caminho da Luz , que nos relata a história da civilização à luz do Espiritismo, e Emmanuel, livro constituído por diversas dissertações importantes sobre Ciência, Religião e Filosofia, que preocupam a Humanidade.
+
+
+
+# English
 Emmanuel, written exactly as is, with a double ” m ” is the name of the spirit, in the original French “L’Evangile Selon le Spiritisme,” in a message dated in Paris, in 1861 and inserted in the chap. XI, item 11 of the mentioned work, entitled “Selfishness.”
 
 The name became well-known, among the Brazilian spiritists, due to the psychographed works of the medium, Francisco Cândido Xavier. According to him, it was in the year 1931 that, at a regular meeting at the Spiritist Center that the kind spirit Emmanuel, first appeared to him.
@@ -63,8 +85,8 @@ Thus, the initial “E” of Francisco Cândido Xavier’s mentor was derived fr
 
 
 ## Source
-Allan Kardec (Excerpted From Posthumous Works)
-TODO:: Add link to SGNY
+Allan Kardec (Excerpted From Posthumous Works) | TODO:: Add link to SGNY   
+[O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/emmanuel.html)
 
 ## Bibliography
 TODO: Add link
@@ -73,4 +95,4 @@ TODO: Add link
 ## See Also
 TODO
 
-<a href="/profiles" class="button">Back to profiles</a>
+<a href="/profiles" class="button">All profiles</a>

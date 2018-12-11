@@ -5,7 +5,7 @@ title: Ismael
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Biography
+# Biography
 TODO:
 
 ### Ismael and Chico Xavier
@@ -19,4 +19,4 @@ TODO:
 ## See Also
 TODO:
 
-<a href="/profiles" class="button">Back to profiles</a>
+<a href="/profiles" class="button">All profiles</a>

@@ -5,8 +5,7 @@ title: William Crookes
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Biography
-
+# Biography
 “I am attacked by two very opposite sects – the scientists and the know-nothings. Both laugh at me, calling me ‘the frogs’ dancing master’. Yet I know a have discovered one of the greatest forces in nature”. Galvani, discoverer of electricity
 
 William Crookes was born on 17 June, 1832 in London . He studied at the Royal College of Chemistry and became one of the most important scientists of the XIX century, both in the field of Physics and in Chemistry. He combined private experimental research with business. He also edited several photographic and scientific journals. Having inherited a large fortune from his father, he devoted himself from 1856 entirely to scientific work of various kinds at his private laboratory in London . In 1861, he discovered the metallic chemical element thallium. This led him indirectly to the invention of the radiometer in 1875. He later developed a vacuum tube (the precursor of the X-ray tube). His studies of cathode rays were fundamental in the development of atomic physics. He was knighted in 1897 and received the Order of Merit in 1910. He was also a Fellow of the Royal Society, becoming its president between 1913 and 1915.
@@ -22,11 +21,12 @@ When Crookes started to report about his experiments to the scientific community
 Sir William Crookes died in London on 4 April 1919 .
 
 ## Source
-Natural and Supernatural, by Brian Inglis, Prism – Unity Press
-Encyclopedia Britannica, the Oxford Talking Dictionary.
-TODO:: Add link to SGNY
+Natural and Supernatural, by Brian Inglis, Prism – Unity Press  
+Encyclopedia Britannica, the Oxford Talking Dictionary.  
+TODO:: Add link to SGNY  
 
 ## See Also
+[William Crookes - O Consolador (pt-BR)](www.oconsolador.com.br/linkfixo/biografias/williancrookes.html)
 TODO
 
-<a href="/profiles" class="button">Back to profiles</a>
+<a href="/profiles" class="button">All profiles</a>

@@ -18,4 +18,4 @@ Whether spiritist or not, we should all strive to learn from the pages of his li
 ## See Also
 TODO
 
-<a href="/profiles" class="button">Back to profiles</a>
+<a href="/profiles" class="button">All profiles</a>

@@ -5,7 +5,7 @@ title: Andrew Jackson Davis
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Biography
+# Biography
 
 Andrew Jackson Davis is often referred to as the John the Baptist of Modern Spiritualism; for it was he who firmly set into place and definitively proclaimed the coming revelation of Spirit communion.
 
@@ -49,4 +49,4 @@ By Rev. Simeon
 ## See Also
 TODO
 
-<a href="/profiles" class="button">Back to profiles</a>
+<a href="/profiles" class="button">All profiles</a>
