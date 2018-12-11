@@ -1,12 +1,12 @@
 ---
 layout: default-md
 section: About
-title: 
+title: Hipnologia
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 # Definition
-
+Hipnologia [do grego hýpnos= sono + -logo(s)= ciência + -ia] – Tratado acerca do sono e seus efeitos.
 
 ## See Also
 TODO

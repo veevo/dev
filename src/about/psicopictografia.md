@@ -1,12 +1,12 @@
 ---
 layout: default-md
 section: About
-title: Psicose
+title: Psicopictografia
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 # Definition
-Psicose [do grego psyché= alma + -ose] - Designação comum às doenças mentais; psicopatia.
+Psicopictografia - Faculdade mediúnica de fazer pinturas ou desenhos utilizando as mãos do médium psicopictógrafo. 
 
 
 ## See Also
