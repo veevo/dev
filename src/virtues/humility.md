@@ -5,6 +5,10 @@ section: Virtues
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
+# Definition
+Humildade [do latim humilitate] - 1. Virtude que nos dá o sentimento da nossa fraqueza e que proporciona a consciência das nossas próprias imperfeições. 2. Modéstia, simplicidade. 3. Pobreza. 4. Respeito, reverência.
+
+
 ## What is Humility
 The spirits teach us that pride is the most influential moral imperfection and continuously warn their students of its signs and consequences. In avoiding the downfalls caused by pride, the good medium remembers that he is only a simple instrument of others employed under God's will, and, therefore, does not assume any merit for the communications that he receives, or for the healing energies that he helps bring to another.
 

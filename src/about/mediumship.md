@@ -1,17 +1,15 @@
 ---
 layout: default-md
 section: About
-title: Mediumship
+title: Mediunidade
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## What is Mediumship?
-
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
-
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
-
+# Definition
+Mediunidade [do latim medium + -idade] – 1. Faculdade que a quase totalidade das pessoas possuem, umas mais outras menos, de sentirem a influência ou ensejarem a comunicação dos Espíritos, tanto que Allan Kardec afirma serem raros os que não possuem rudimentos de mediunidade. 2. Em alguns, essa faculdade é ostensiva e necessita ser disciplinada, educada; em outros, permanece latente, podendo manifestar-se episódica e eventualmente. Ver: medianimidade.
 
 ## See Also
-
 TODO
+
+## Source
+[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

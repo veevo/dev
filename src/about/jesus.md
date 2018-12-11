@@ -5,8 +5,13 @@ title: Jesus
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
-## Who is Jesus?
+# Definition
+Jesus – O ser mais perfeito que Deus ofereceu aos homens para lhes servir de modelo e guia.
 
+O espírito de maior grau ou patente evolutiva já encarnado no planeta terra. Segundo a doutrina espírita, Jesus é o "administrador" espiritual do planeta e de todos os espíritos que nele se encontram, sejam encarnados ou não. Sob sua tutela estão todos os espíritos aqui existentes. Trata-se de uma entidade espiritual de altíssima evolução moral cujas faculdades morais e espirituais jamais poderiamos definir em nossa linguagem.
+
+
+## Who is Jesus?
 Jesus is the "greatest model of charity and moral perfection that we have to follow" [1].
 
 He is the Guide and Model for all Humankind.
@@ -18,6 +23,18 @@ The morality of Christ, as contained in the Gospels, is the pathway for the secu
 ### References
 The Spirits' Book, Question 625
 
-## See Also
+## Recommended Bibliography
+"O sublime peregrino", obra psicografada pelo médium Hercílio Maes e ditada pelo espírito Ramatís,  
+"O evangelho segundo o espiritismo" de Allan Kardec,  
+"O evangelho á luz do cosmo" psicografado p/ Hercílio Maes e ditado p/ Ramatís  
+"Jesus dos 13 aos 30 anos" de Francisco Klörs Werneck   
+"O Novo Testamento"  
 
+
+## See Also
 TODO
+
+
+## Source
+[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
+
