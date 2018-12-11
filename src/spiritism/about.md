@@ -3,7 +3,9 @@ layout: default-md
 section: Spiritism
 title: Introduction
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+crumbtitle: Legal
 ---
+
 
 ## WHAT IS SPIRITISM ?
 

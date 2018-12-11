@@ -1,7 +1,7 @@
 ---
 layout: default-md
 section: Divine Laws
-title: Home
+title: Laws
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 

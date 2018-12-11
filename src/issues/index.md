@@ -1,7 +1,7 @@
 ---
 layout: default-md
 section: Issues
-title: Home
+title: Issues
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 

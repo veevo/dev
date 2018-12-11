@@ -10,3 +10,9 @@ github_username:  veevo
 
 # Build settings
 markdown: kramdown
+
+breadcrumbs:
+  root:
+    hide: false  # show breadcrumbs on root/home page
+    image: false # Show image or title text
+    
