@@ -3,7 +3,7 @@ layout: default-md
 section: Spiritism
 title: Introduction
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-crumbtitle: Legal
+date: '2018-11-03 19:00:00 -07:00'
 ---
 
 

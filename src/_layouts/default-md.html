@@ -11,26 +11,26 @@
     <!-- Main -->
     <article id="main">
 
-      <header class="special container">
-        <span class="icon fa-heart"></span>
-        <h2>{{ page.section }} | <strong>{{ page.title }}</strong></h2>
-        <p>{{ page.subtitle }}</p>
-      </header>
-
-      <!-- One -->
+      <!-- Main Section -->
       <section class="wrapper style4 container">
 
-        {% include nav-breadcrumbs.html %}
+        {% include content/nav-breadcrumbs.html %}
+
+        <!-- Header -->
+        <div class="content-head">
+          <h1>{{ page.title }}</h1>
+          <p>{{ page.subtitle }}</p>
+          <hr />
+          {% include content/meta.html %}
+        </div>
 
         <!-- Content -->
         <div class="content">
           <section>
             {{ content }}
+            {% include content/share-bar.html %}
+            </section>
         </div>
-
-        {% include share-bar.html %}
-
-      </section>
 
     </article>
 

@@ -1,0 +1,9 @@
+{% if page.layout == "default-md" %}
+    {% if post.url %}
+        {% assign path = post.path %}
+    {% else %}
+        {% assign path = page.path %}
+    {% endif %}
+
+    <li><span class="mdl2 mdl2-edit"></span> <a href="{{ site.github.repo }}/edit/master/{{ path }}">Edit Page</a></li>
+{% endif %}
