@@ -35,6 +35,8 @@ Peixotinho sofria de broncopneumonia, enfermidade que lhe causava muitos dissabo
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/franciscopeixoto.html)
 
 ## See Also
-TODO
+[Peixotinho e a Materialização dos Espíritos](https://youtu.be/bl51O_26hxw)
+[Peixotinho - Documentário 1/2](https://youtu.be/inSwo2NRNXE)
+[Peixotinho - Documentário 2/2](https://youtu.be/GlLqYLsrWF4)
 
 <a href="/profiles" class="button">All profiles</a>

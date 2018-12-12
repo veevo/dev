@@ -19,4 +19,4 @@ With magnificent art direction and special effects that have never been seen bef
 [About: Andre Luis](/profiles/andre-luis)  
 
 
-<a href="/movies" class="button">Back to Movies</a>
+<a href="/movies" class="button">All Movies</a>
