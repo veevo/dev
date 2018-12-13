@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: The Way, the Truth, and the Life
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 [Book Cover] This book is part of an outstanding collection that includes Our Daily Bread, Living Fountain, and Vineyard of Light. The collection was dictated by the spirit Emmanuel with the intent of guiding Spiritists towards the practice of Christian principles and of leading them to find inner transformation in the teachings of Jesus, a goal that cannot be postponed.
 
 Throughout the 180 chapters, the spiritual author comments on several verses from the New Testament with amazing brilliance, with his depth of concept and lightness of form springing from every page. Emmanuel shows that Spiritism is based on the lessons of the New Testament and it is an opportunity for work and growth to all who long to renew their minds. "The Way, the Truth and the Life" is nourishment for the spirit, strengthening it towards the daily struggles.

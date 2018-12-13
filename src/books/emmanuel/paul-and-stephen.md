@@ -3,9 +3,13 @@ layout: default-md
 section: Books
 title: Paul and Stephen
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Emmanuel
+medium: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 How did an old man’s trip to the market to buy fist and vegetables lead to a chain of cause and effect events  that would change the religious face the world forever?
 
 Who was [Paul of Tarsus](/profiles/paul-of-tarsus)?

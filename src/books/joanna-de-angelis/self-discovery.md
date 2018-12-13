@@ -3,9 +3,13 @@ layout: default-md
 section: Books
 title: Self-Discovery, An Inner Search
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Joanna de Angelis
+medium: Divaldo Franco
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 Self-Discovery, an Inner Search, can certainly be considered a masterpiece on subject of Spiritist Psychology.  Its spirit-author, Joanna de Ângelis, through the admirable hands of Divaldo P. Franco, brings to the reader what could be considered a doctorate thesis on the topics of the human psyche, its disturbances and deepest causes, as well as effective therapeutics for humanity’s greatest problems.
 
 The book also summarizes a variety of theories in the fields of psychology and psychiatry, combining them with the Spiritist view of the human being and life.  Moreover, Joanna de Ângelis undoubtedly expands upon Allan Kardec’s works.

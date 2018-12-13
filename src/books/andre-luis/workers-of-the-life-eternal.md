@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Workers of the Life Eternal
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 Five people, who devoted their entire lives to the practice of good, are at the end of their physical existences. Due to their merit, they have the help of a spirit rescue team. The spirit Andre Luiz tells about his experience as a member of such a team. This is an enthralling narrative that reveals details of the tasks performed by spirits at the moment of the death of the physical body.
 
 In this book, Andre Luiz confirms the principles revealed by the Spiritist Doctrine regarding the existence of the spirit world, where discarnate spirits dwell, living a new life while preparing to return once again to the earthly journey.

@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Action and Reaction
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 Back cover] In this volume you will find a description of the lower regions of the spiritual realm and the suffering to which the guilty conscience is subjected after death of the physical body.
 
 André Luiz presents studies of real-life cases and offers guidance regarding paying one’s spiritual debts, the law of cause and effect, preparations for reincarnation, collective expiations, and the value of prayer.

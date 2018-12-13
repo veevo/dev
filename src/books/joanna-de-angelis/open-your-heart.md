@@ -3,9 +3,13 @@ layout: default-md
 section: Books
 title: Open Your Heart & Find Happiness
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Joanna de Angelis
+medium: Divaldo Franco
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 Contemporary men and women, seduced by immeasurable ambition for power which grants them luxury, leisure, and pleasure, remain dormant to their serious spiritual responsibilities
 
 Considering such responsibilities to be of secondary importance, and in the vain supposition that they can resolve their inner problems at any time, they transfer their attention and emotions to the outside world, causing great damage to their inner harmony… 

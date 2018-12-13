@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Liberation
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 In this compelling narrative, André Luiz emphasizes the work of high order spirits in the effort to convert the spirit Gregorio to Good, an effort that culminates with the unforgettable reencounter with his mother - herself a highly evolved spirit - wherein he surrenders to the irresistible call of Love.
 
 The book also contains information on how unhappy spirits act as they try to involve incarnates in their wiles.

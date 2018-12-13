@@ -3,6 +3,10 @@ layout: default-md
 section: Books
 title: Action and Reaction   
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
 ## Description

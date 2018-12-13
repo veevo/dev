@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: On the Way to the Light
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 Those who are trying to understand our world and its origins will find the answers in this book.
 
 In this notable work of historic synthesis, the spiritual author highlights the most relevant events, situations, and individuals who significantly contributed to the progress of humanity throughout time by analyzing the missions of spirits such as Krishna, Buddha, Plato, Muhammad, the Hebrew Prophets, the Apostles, Paul of Tarsus, St. Francis of Assisi, Luther, and Allan Kardec.

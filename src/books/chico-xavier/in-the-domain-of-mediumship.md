@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: In the Domain of Mediumship
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 In this book, André Luiz analyzes the various aspects of mediumship, emphasizing the efforts of mediums who are faithful to the spiritual mandate received prior to their reincarnation. He also warns of the risks involved in poor exchanges between the two worlds. It talks about trance, somnambulism, possession, clairvoyance, out-of-body experiences, fascination, psychometry, and the mediumship of physical effect, among others.
 
 It is a technical study of great relevance that discloses the ways in which Spirits act during intricate processes of communication with the incarnate beings. It conveys concepts of spirituality received from enlightened mentors, which contain explanations of philosophical, scientific, and evangelical nature, indispensable to those who are dedicated to the study of mediumship.

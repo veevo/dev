@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Green Light
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 Excerpts from the introduction to the book (as written by the Spirit, Emmanuel)²:
 
 > We all know how important it is to have innermost peace, a peace which gives us safety.  We are all aware that we have been living in an ocean of mental waves with the imperative of adjusting these waves to our own benefit.  It is a vast sea of interchanging vibrations, through which we send and receive power.  The mind acts based on this inevitable exchanging system…

@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Paul and Stephen
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 It is the most famous and thickest novel of the Spiritist literature. The spirit Emmanuel, through the mediumship of Chico Xavier, describes one of the most emblematic moments of early Christianity: the story of Paul of Tarsus, better known as Saint Paul. The richness of the narrative takes the reader to the Galilee of twenty centuries ago, revealing the spiritual events behind the expansion of Christianity. Besides offering new information on Paul’s conversion at the gates of Damascus, his escape to the desert and his travels, the book talks about the relationship between Paul and Stephen, the first martyr of Christianity. Paul and Stephen is considered one of the top ten Spiritist books of the 20th century.
 
 ## Author(s)

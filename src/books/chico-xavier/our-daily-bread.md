@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Our Daily Bread
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 Presently, the distress of everyday life is so compelling that it usually deviates us from the urgent responsibility we should bear towards our spiritual improvement. The stress caused by our customary duties and the unavoidable appeal of the grandeur of the ephemeron pleasures that material life offers attempts to keep us from approaching the real values that will move us towards spiritual progress.
 
 However, as the artisans of our own destiny, we have to take the steps that will inevitably lead us to a higher level of evolvement.

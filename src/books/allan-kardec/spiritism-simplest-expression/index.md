@@ -3,6 +3,10 @@ layout: default-md
 section: Books
 title: Spiritism in its Simplest Expression
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Allan Kardec
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
 ## Bibliography

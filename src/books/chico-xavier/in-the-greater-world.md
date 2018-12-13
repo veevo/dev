@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: In the Greater World
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 In this volume, André Luiz focuses on aspects of life in the spirit world and the communication between discarnates and incarnates, especially during the sleep of the physical body.
 
 The spiritual author explains the causes of mental disturbances and presents their respective spiritual treatments.

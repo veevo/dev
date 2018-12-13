@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Nosso Lar - A Spiritual Home
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 The former physician André Luiz's articulate and compelling reporting reads more like a novel than the detailed, compelling document of after-life existence that it is.  Rarely does one find information about the after-life that is both inspirational and informative - but such is the case here.
 
 The extensive tour that constitutes "Nosso Lar - A Spiritual Home" contains those benchmarks of the after-life familiar to us all; a gate, the light, helpers and splendors.  But these are minor details, it turns out, in  an elaborate journey through a complex, well-organized universe, containing many spiritual levels that, in turn, constitute this spiritual Colony.

@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: In the Realms of Mediumship
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 In this book, André Luiz analyzes the various aspects of [mediumship](/spiritism/mediumship), emphasizing the efforts of mediums faithful to the spiritual mandate received prior to their reincarnation.  He also warns of the risks involved in the poor interchange between the two worlds. 
 
 The book talks about trance, somnambulism, possession, clairvoyance, the out-of-body experience, fascination, psychometry and the mediumship of physical effect, among others.

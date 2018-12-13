@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Sex and Destiny
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 What effects will the sexual experiences and conduct of incarnates have on the immortal spirit in their future life, their destiny?
 
 Rich in detail, the books by Andre Luiz depict the spirit world; how spirits live, their habitats, and the relations of cause and effect that influence the evolutionary trajectory both of incarnates and discarnates, delineating their future life, their destiny.

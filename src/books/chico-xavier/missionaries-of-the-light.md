@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Missionaries of the Light
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 In this volume, André Luiz unveils the secrets of reincarnation and the task of missionary spirits in charge of the rebirth process. The spiritual author affirms that physical death is not the end. He also stresses the importance of self-effort in the struggle for self-improvement.
 
 In twenty chapters, André Luiz talks about his continued learning experience in the spiritual world, the perispirit as a living body that molds the cells that compose the physical body, the reincarnation process, which is guided by high-order spirits, and the different aspects of mediumistic manifestations.

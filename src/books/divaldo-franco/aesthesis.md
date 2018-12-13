@@ -3,9 +3,11 @@ layout: default-md
 section: Books
 title: Aesthesis
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Divaldo Franco
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
-
-## Aesthesis
 
 The spirit Rabindranath Tagore returns after his discarnation with the same lyricism and poetry, as evidenced in the psychographed work Aesthesis:
 >"Immortal, before time and beyond eras, I bow down at the window of eternity so that the magic of Your work unites me ever more with You, intoxicating me with happiness…"

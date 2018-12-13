@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: The Messengers
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 This book unveils that spiritual life after death is always evolving. In 51 chapters, it describes the experiences of a number of spirits who reincarnated with pre-planned endeavors needed for their personal spiritual growth. Moreover, it also deals with subjects such as the Gospel worship at home, the benefits of practicing the good, carelessness regarding one’s spiritual obligations, and fear of death. The spiritual author focuses on the opportunities of service for mediums, warning them about the need to practice at a personal level what they learn in order to avoid returning to the spiritual world without having fulfilled the duties assumed before reincarnating.
 
 ## Author(s)

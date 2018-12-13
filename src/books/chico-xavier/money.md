@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Money
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 This book explains that money is actually a neutral tool in all human endeavors and that it is our stewardship that actually grants it a constructive outcome. It is a collection of thoughts on the importance of money in our lives.
 
 As such, Emmanuel brilliantly shows us that it is our free will that ultimately determines the consequences of what money can do for ourselves and for society in general. Whether used to create jobs and employment, which ultimately gives human beings the ability to provide for themselves, or to improve social and intellectual development, money retains a remarkable similarity to blood: it is only useful when in circulation, and it is vital for progress and the perpetuity of our society.

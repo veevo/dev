@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Missives of Hope
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 This book is a compilation of messages originally published in the Brazilian newspaper “O Diário de São Paulo.” They were later collected for publication as a set of four books.
 
 Each message is the result of a partnership between two of the greatest names in spiritist literature, Francisco Cândido (Chico) Xavier and Prof. José Herculano Pires. The present work has a significant historic value in that it brings together these two great contributors of the spiritist literature for the first time. 

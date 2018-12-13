@@ -3,9 +3,11 @@ layout: default-md
 section: Books
 title: Transform Your Health with Inner Peace
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Divaldo Franco
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
-
-## Transform Your Health with Inner Peace
 
 Peace is all we need! This book is the result of true efforts to create a new climate of awareness on health fostered by inner peace. At the 10th anniversary of the Spiritist Society of Baltimore, Divaldo Franco launched the first Peace and You movement in the United States, which was held in Baltimore, MD, on October 19, 2008. The main theme of the event was "Transform Your Health with Inner Peace."
 

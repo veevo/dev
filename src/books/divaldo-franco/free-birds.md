@@ -3,9 +3,11 @@ layout: default-md
 section: Books
 title: Free Birds
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Divaldo Franco
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
-
-## Free Birds
 
 Rabindranath Tagore’s extraordinary sensibility, through Divaldo Franco’s psychography, rewards us with beautiful poems, a real cascade of light, overflowing with tenderness and love! The noble Spirit-poet says
 > "My songs are living poems of love releasing themselves from the tight prison of emotion from whence they are born and conquering the expanse like birds of happiness."

@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Missionaries of the Light
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 In this volume, Andre Luiz unveils the secrets of reincarnation, revealing the task of missionary spirits in charge of the rebirth process.
 
 The spirit author affirms that physical death is not the end.  He also stresses the importance of self-effort in the struggle for self-empowerment.

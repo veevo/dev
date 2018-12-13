@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Fifty Years Later
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 Emmanuel tells a story that is linked to Christianity in the second century. In this novel, some characters of the novel Two Thousand Years Ago return to their earthly journey as a result of the law of cause and effect.
 
 One of the central characters of that book, the Senator Publius Lentulus, appears in this sequel reincarnated as Nestorius, a slave.

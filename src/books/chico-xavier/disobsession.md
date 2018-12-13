@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Disobsession
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 The faculty of mediumship, with its various manifestations, has been the dominant factor in proving the reality of the afterlife and the transcendental nature of the universe. Through this faculty, a multitude of phenomena has been witnessed, demonstrating to the astonishment of many that intelligence is not merely a product of brain cells.
 
 Among the several types of mediumship known today, psychography is the most often used within Spiritism, especially for the writing of books and messages.

@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Pinga Fogo (DVD)
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 This special two-DVD edition with English subtitles retrieves the historic program Pinga-Fogo with Francisco Xavier, a veritable milestone of the Brazilian Spiritist Movement. It brings more than two hours of extra footage with interviews, documentaries, and bonus information.
 On the evenings of July 28 and December 21 in 1971, the broadcast corporation TV Tupi, channel 4 of São Paulo presented in their news program Pinga-Fogo—loosely translated into "On the line of Fire"—the spiritist medium Francisco Xavier answering questions from news reporters Saulo Gomes, Reali Jr., Helle Alves, and Herculano Pires; the catholic intellectual João de Scantimburgo, and scientist Dr. Hernani Guimarães Andrade.
 

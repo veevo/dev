@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Guidelines for Safety
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Joanna de Angelis
+medium: Divaldo Franco
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
-
-## Guidelines for Safety
 
 Profound and simple questions were important components of the formidable occasions of fortunate learning during the entire period of Jesus Christ’s Gospel.
 

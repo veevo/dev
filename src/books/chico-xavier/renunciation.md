@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Renunciation
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 In what constellation might Alcyone, soul of his soul and life of his life, live?
 
 The sweet Alcyone asks to return to the Earth to accompany the great love of her past, Charles, in a new lifetime of trials, sacrifices, and reparations. In an example of profound devotion to her neighbor, she demonstrates her complete loyalty to assist the one for whom she has interceded so much on the spirit plane.

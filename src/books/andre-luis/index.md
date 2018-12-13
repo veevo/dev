@@ -3,9 +3,11 @@ layout: default-md
 section: Books
 title: André Luis
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-11 13:00:00
+tags: 
+- author
 ---
 
-## Bibliography
 Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue.
 
 More about [André Luis](/profiles/andre-luis)

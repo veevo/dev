@@ -2,10 +2,13 @@
 layout: default-md
 section: Books
 title: The Mystery of Joan of Arc
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: The story of Joan of Arc, told by Spiritist Author, Léon Denis.
+author: Leon Denis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 The story of Joan of Arc, told by Spiritist Author, Léon Denis.
 
 

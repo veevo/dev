@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Heart and Soul
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Overview
 At this time when many have their peace disturbed and countless households are struggling, disarranging and dissolving, thereby aggravating the sufferings of humanity, the world is more than ever in need and eager for solace. Our lives need a light that springs from the heart and soul, no more from the cold and cloudy brain. The lines from this book have flown from the pen of someone who, having made of healthy spiritualism an act of most sacred priesthood, has devoted his entire life to ease the moral and physical pain of his neighbor, both through his actions and his words as a result not only of a theoretical background but through an active practice of goodness. Therefore, the reader shall find in this tome and encouraging message, distributed throughout sixty short chapters on several topics, all converging much like streams of light towards he same ocean of truth, which is God, wherefore they shall quench the thirst of their pilgrim-like souls no matter who they are or from whence they come.
 
 ## Author(s)

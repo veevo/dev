@@ -3,9 +3,13 @@ layout: default-md
 section: Books
 title: Thought and Life
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Emmanuel
+medium: Chico Xavier
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 What part do thoughts play in our lives?
 
 The spiritual writer Emmanuel explains how thoughts act powerfully in shaping our lives: "Today, we are heirs to the positive reflexes from our past experiences, having the mains to change their direction towards true happiness."

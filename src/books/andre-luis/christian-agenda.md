@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: Christian Agenda
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 This book is for the person who seeks the best way to transform his heart, step by step, from darkness into light.  It provides a sound understanding of the consequences and effects of one's attitudes and actions, as well as insight into the behavior of others through beautifully simple and brief statements.
 
 The most remarkable feature about these strikingly relevant, down-to-earth messages is that they were all received through automatic writing by the Brazilian medium Francisco Cândido Xavier, from the Spirit Andre Luiz, with the intention of providing man with clear spiritual discernment.

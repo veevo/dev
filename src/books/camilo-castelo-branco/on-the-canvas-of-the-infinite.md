@@ -3,9 +3,12 @@ layout: default-md
 section: Books
 title: On the Canvas of the Infinite
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Camilo Castelo Branco
+date: 2019-01-11 13:00:00
+tags: 
+- book
 ---
 
-## Description
 This book by Yvonne A. Pereira is divided into two parts.
 In Part One, the spirit Bezerra de Menezes tells “A Sad Story,” which took place in a poverty-stricken community in Rio de Janeiro in the 19th century, and where Palmira, an incarnate spirit, is righting past wrongs by means of trials entailing selflessness and patience.
 
