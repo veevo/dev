@@ -1,12 +1,12 @@
 ---
 layout: default-md
 section: Spiritist Centers
-title: Learn About
+title: Spiritist Center Activities
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2018-12-03 14:36:23
 ---
 
-## Activities offered by Spiritist Centers
-Know the activities that occour in a Spiritist Center.
+The activities that occour in a Spiritist Center are listed below. Click on them to learn more:
 
 [Public Meetings](public-meetings)  
 [Fluidic Therapy](fluidic-therapy)  
@@ -18,7 +18,6 @@ Know the activities that occour in a Spiritist Center.
 
 
 
-## See Also
-TODO
-
-<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
+<a href="/spiritism/" class="button special">Learn Spiritism</a>
+<a href="/spiritism/centers" class="button">Spiritist Centers</a>
+<a href="/spiritism/councils" class="button">Spiritist Councils</a>
