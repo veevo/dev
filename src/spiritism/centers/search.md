@@ -1,7 +1,7 @@
 ---
 layout: default-md
 section: Spiritist Centers
-title: Search
+title: Search Spiritist Centers
 subtitle: Search a Spiritst Center near you
 date: 2018-08-31 14:00:00
 ---
