@@ -3,9 +3,11 @@ layout: default-md
 section: Questions
 title: Is it possible to cure by using prayer?
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-02-01 19:00:00
+tags: 
+- question
 ---
 
-## Introduction
 A common question, and often declared as [miracle](/about/miracles) is: **Is it possible to cure someone just by using the prayer?**
 
 This topic has been researched by [Allan Kardec](/profiles/allan-kardec) and on the book [Genesis](/books/allan-kardec/genesis), he declares:
