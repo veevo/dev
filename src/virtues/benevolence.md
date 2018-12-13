@@ -1,11 +1,13 @@
 ---
 layout: default-md
-title: Virtues
-section: Benevolência
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Benevolence
+section: Virtues
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- virtue
 ---
 
-## Definition
 Benevolência [do latim benevolentia]. Qualidade do que é benevolente. Boa vontade para com alguém; estima e afeto.
 
 

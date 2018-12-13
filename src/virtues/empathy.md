@@ -1,11 +1,13 @@
 ---
 layout: default-md
-title: Empathy
 section: Virtues
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Empathy
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- virtue
 ---
 
-# Definition
 Empatia [do grego empátheia] – Tendência de se colocar no lugar do outro, buscando sentir como se estivesse na mesma situação e circunstância experimentada pela outra pessoa.
 
 ## What is Empathy

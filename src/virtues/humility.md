@@ -1,11 +1,13 @@
 ---
 layout: default-md
-title: Humility
 section: Virtues
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Humility
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- virtue
 ---
 
-# Definition
 Humildade [do latim humilitate] - 1. Virtude que nos dá o sentimento da nossa fraqueza e que proporciona a consciência das nossas próprias imperfeições. 2. Modéstia, simplicidade. 3. Pobreza. 4. Respeito, reverência.
 
 
