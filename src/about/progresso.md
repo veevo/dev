@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Progresso
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Progresso - [do latim progressu]. Movimento para diante. Desenvolvimento gradual de um ser ou de uma atividade. Adiantamento; melhoramento; aperfeiçoamento. 
 
 ## See Also

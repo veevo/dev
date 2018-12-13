@@ -2,10 +2,15 @@
 layout: default-md
 section: About
 title: Doutrinação
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
 
-# Definition
 Doutrinação [do latim doctrina + actione] - Ato ou efeito de doutrinar, orientar e esclarecer Espíritos rebeldes, ignorantes, maus ou refratários àquilo que o doutrinador prega ou ensina.
 
 ## See Also

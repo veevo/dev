@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Quiromancia
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Quiromancia [do grego cheiromantéia] – Adivinhação pela inspeção das mãos.
 
 ## See Also

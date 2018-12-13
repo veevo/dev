@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Monismo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Monismo [do grego mónos + -ismo]- Doutrina filosófica segundo a qual o conjunto das coisas pode ser reduzido à unidade, quer do ponto de vista da sua substância, quer do ponto de vista das leis (lógicas ou físicas) pelas quais o universo se ordena.
 
 

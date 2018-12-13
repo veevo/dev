@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Profeta
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Profeta - [do grego prophétes; latim propheta]. Aquele que prediz por inspiração divina; vidente; adivinho; título dado pelos Maometanos a Mafoma; aquele que faz conjecturas sobre o futuro. 
 
 ## See Also

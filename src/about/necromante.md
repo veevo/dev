@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Necromante
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Necromante [do grego nekrómantis] - Quem quer que faça profissão da Necromancia, isto é, aquele que diz o futuro.
 
 ## See Also

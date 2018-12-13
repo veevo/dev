@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Penas eternas
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Penas eternas – Os Espíritos superiores ensinam que só o bem é eterno, porque é a essência de Deus, e que o mal terá um fim. Por conseqüência deste princípio, combatem a doutrina da eternidade das penas como contrária à idéia que Deus nos dá de sua justiça e de sua bondade.
 
 

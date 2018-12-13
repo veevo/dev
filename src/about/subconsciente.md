@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Subconsciente
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Subconsciente [do latim sub + consciente] - O conjunto dos processos e fatos psíquicos que estão latentes no indivíduo, mas lhe influenciam a conduta e podem facilmente aflorar à consciência: tendências, hábitos, lembranças e conhecimentos.
 
 ## See Also

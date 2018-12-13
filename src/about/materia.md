@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Matéria
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Matéria - Laço que prende o Espírito. Agente, intermediário com o auxílio do qual e sobre o qual atua o Espírito.
 
 ## See Also

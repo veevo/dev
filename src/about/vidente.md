@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Vidente
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Vidente - [do latim vidente].Pessoa dotada de mediunidade de vidência que, lhe permite ver os espíritos e o mundo espiritual. 
 
 ## See Also

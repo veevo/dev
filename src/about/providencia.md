@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Providência
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Providência - [do latim providentia]. Sabedoria suprema, com que Deus tudo dirige. O próprio Deus.
 
 ## See Also

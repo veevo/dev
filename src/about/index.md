@@ -2,20 +2,30 @@
 layout: default-md
 section: About
 title: About
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-## Introduction
+<div>
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+    <h2>All <strong>Topics</strong></h2>
+    <div class="left">
+        <ul>
+            {% for post in site.pages %}
+            {% for tag in post.tags %}
+            {% if tag == "about" %}
+                <li>
+                    <a href="{{ post.url }}">{{ post.title }}</a><br>
+                    <p>{{ post.subtitle }}</p>
+                </li>
+            {% endif %}
+            {% endfor %}
+            {% endfor %}
+            </li>
+        </ul>
+    </div>
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+</section>
 
-## Resources
-Todo :: add list of links...
-
-
-
-## See Also
-
-TODO

@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Zoantropia
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Zoantropia [do latim zo(o)- + antrop(o) + -ia] – 1. Perturbação mental em que o enfermo se acredita convertido num animal. 2. Metamorfose perispíritica, através de processo de indução hipnótica, em que o Espírito desencarnado, ainda inferiorizado, ganha a forma animalesca. 
 
 ## See Also

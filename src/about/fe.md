@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Fé
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Fé [do latim fide] - 1. Crença religiosa. 2. Atitude mental que consiste em crer, a partir de um testemunho considerado fundamental, e com inteiro assentimento, implicando habitualmente um compromisso prático. 3. Confiança, crença. 4. Para a Doutrina Espírita, a fé precisa ser atitude racional, lógica, de acreditar porque compreende.
 
 ## See Also

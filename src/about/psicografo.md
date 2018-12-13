@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Psicógrafo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Psicógrafo [do grego psyké= borboleta, alma + graphó= escrevo] - O que usa a psicografia; médium escrevente.
 
 ## See Also

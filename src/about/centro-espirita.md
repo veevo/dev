@@ -2,10 +2,15 @@
 layout: default-md
 section: About
 title: Centro Espírita
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
 
-# Definition
 Centro Espírita - 1. Casa ou sociedade espírita. 2. Local de reunião dos espíritas, para orar e praticar a Doutrina dos Espíritos. 3. Sociedade civil legalmente constituída, com a finalidade de praticar o Espiritismo.
 
 Denominação dada às instituições que se prestam ao estudo e à prática do espiritismo em sua forma clássica, ou seja, a linha de estudo baseada nos postulados Kardequianos.É necessário dizer que essa denominação é usada , infelizmente, de uma forma errônea por outras instituições que não praticam o espiritismo cristão, assim como ele foi concebido, refiro-me às casas de práticas de umbanda e demais ritos afro-brasileiros.Por erro conceitual ou propositalmente intitulados assim para angariar fiéis incautos oriundos de, ou que procuram, casas espíritas propriamente ditas. Em um centro espírita, em geral, há um cronograma de atividades que se realizam no decorrer de cada semana, possuindo também atividades mensais e ações periódicas de vários fins.São ministradas palestras doutrinárias a respeito do Espiritismo, há sessões de passe magnético assim como sessões de cura espiritual por vários métodos. 

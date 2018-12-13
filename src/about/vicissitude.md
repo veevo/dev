@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Vicissitude
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Vicissitude - [do latim vicissitudine]. Alteração; instabilidade das coisas. 
 
 ## See Also

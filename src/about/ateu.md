@@ -2,10 +2,15 @@
 layout: default-md
 section: About
 title: Ateu
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
 
-# Definition
 Ateu [do grego: atheos, composto de a= privativo, e de theos= Deus: sem Deus, que não crê em Deus] - Aquele que pratica o ateísmo e não crê em Deus ou que não segue religião alguma.
 
 ## See Also

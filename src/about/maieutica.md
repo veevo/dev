@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Maiêutica
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Maiêutica [do grego maieutikós] - Processo dialético e pedagógico, inicialmente usado por Sócrates, em que se multiplicam as perguntas a fim de obter, por indução dos casos particulares e concretos, um conceito geral do objetivo em questão.
 
 ## See Also

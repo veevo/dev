@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Taumaturgo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Taumaturgo [do grego thauma, thaumatos= maravilha + ergon= obra] – Diz-se daqueles que, com ou sem razão, se vangloriam de ter o poder de produzir fenômenos fora das leis da natureza. 
 
 

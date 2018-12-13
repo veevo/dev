@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Espíritos Batedores
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Batedor - Qualidade de certos Espíritos. Os Espíritos batedores são os que revelam sua presença por meio de pancadas e de ruídos de diversas naturezas. 
 
 ## See Also

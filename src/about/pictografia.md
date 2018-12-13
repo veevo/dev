@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Pictografia
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Pictografia [do latim pictu, particípio de pingere= pintar + o + graf(o) + ia] - Pintura ou desenho feito por Espírito através de médium.
 
 ## See Also

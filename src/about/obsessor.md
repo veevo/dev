@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Obsessor
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Obsessor [do latim obsessore] – Espírito inferior, agente eventual ou cármico da obsessão, encarnado ou desencarnado que, em ação irrefletida ou premeditada, domina, persegue, assedia ou importuna, em virtude da sintonia moral estabelecida. Sinônimo de Obsidiante. Ver também: Obsessão.
 
 ## See Also

@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Natureza
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Natureza - [do latim natura]. Conjunto das leis que presidem à existência das coisas e à sucessão dos seres. Força ativa que estabeleceu e conserva a ordem natural de quanto existe. Essência; qualidade; espécie.
 
 ## See Also

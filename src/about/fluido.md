@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Fluido
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Fluido [do latim fluidu] – 1. Fluídico. 2. Diz-se das substâncias líquidas ou gasosas. 3. Que corre ou se expande à maneira de um líquido ou gás.
 
 ## See Also

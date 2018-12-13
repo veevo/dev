@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Loucura
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 O Espiritismo explica a loucura assim como todas as deformações psíquicas do caráter humano pela lei da ação e reação. Um espírito padecedor de loucura, em todas suas formas assim como desvios do caráter como esquizofrenias, personalidades psicóticas, etc, expia por erros pregressos, geralmente graves.
 
 Ninguém nasce louco por obra do destino ou por negligência ou danação de Deus.Explicar assim um estado de loucura em um indivíduo é negar a bondade, a onicognisciência, a infabilidade e a onipotência do mesmo. Por exemplo: um indivíduo mata, estupra, tortura ou comete atrocidades contra o gênero humano em uma encarnação.Fatalmente sua expiação correspondente poderá ser a de apresentar um estado de loucura em uma vida seguinte. Isto porém não é uma regra para a determinação de penas expiatórias.

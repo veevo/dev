@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Inconsciente
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Inconsciente [do latim in + consciente] - Conjunto dos processos e fatos psíquicos que atuam sobre a conduta do indivíduo, mas que escapam ao âmbito da consciência, para a qual não podem ser trazidos por esforço da vontade ou da memória. Podem aflorar, porém, nos sonhos, nos atos falhos, nos estados neuróticos ou psicóticos, ou seja, quando a consciência não está vigilante.
 
 ## See Also

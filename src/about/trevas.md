@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Trevas
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Trevas [do latim tenebra] – 1. Escuridão absoluta. 2. Conforme informa o Espírito André Luiz, as regiões mais inferiores conhecidas no Mundo Espiritual.
 
 ## See Also

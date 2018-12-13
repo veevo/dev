@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Teísmo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Teísmo [do grego teós + -ismo] - Doutrina que admite a existência de um deus, força causal do mundo.
 
 ## See Also

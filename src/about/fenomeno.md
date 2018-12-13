@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Fenômeno
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Fenômeno [do grego phainómenon, do latim phaenomenon] - 1. O que se manifesta aos sentidos ou à consciência 2. Fato de natureza moral ou social. 3. Aquilo que é raro e surpreendente.
 
 ## See Also

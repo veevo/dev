@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Fluidoterapia
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Fluidoterapia [do latim: fluidu + do grego: therapeía] – É o tratamento feito com fluidos: passes, irradiação, água magnetizada.
 
 ## See Also

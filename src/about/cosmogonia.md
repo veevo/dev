@@ -2,10 +2,15 @@
 layout: default-md
 section: About
 title: Cosmogonia
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
 
-# Definition
 Cosmogonia [do grego kosmogonía] - Especulação religiosa, filosófica ou científica sobre a origem do universo.
 
 ## See Also

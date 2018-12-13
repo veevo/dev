@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Sensação
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Sensação - [do latim sensatione]. ação ou função sensorial. Tomada de consciência da alteração interna ou externa de um ou vários sentidos em simultâneo, conduzida pelos nervos ao cérebro. Sensibilidade. Comoção moral; emoção. 
 
 ## See Also

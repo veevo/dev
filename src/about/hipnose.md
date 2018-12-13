@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Hipnose
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Hipnose [do grego hýpnos + -ose] – Estado mental semelhante ao sono, provocado artificialmente, e no qual a pessoa mantém-se capaz de atender às sugestões feitas pelo hipnotizador.
 
 ## See Also

@@ -2,10 +2,14 @@
 layout: default-md
 section: About
 title: Consequentialism
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
-
-## What is Consequentialism?
 
 Theories focusing on the consequences any action might have. Understanding the results of a choice is vital to identifying if it is the ‘right’ choice. Correct consequences only come from correct choices, incorrect consequences must come from incorrect choices.
 

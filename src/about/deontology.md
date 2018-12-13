@@ -2,10 +2,14 @@
 layout: default-md
 section: About
 title: Deontology
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
-
-## What is Deontology?
 
 The correct ethical choices come from an understanding of our ‘moral’ duties and a knowledge of the rules exist to regulate those duties. When we follow our duty, we must be behaving ‘morally’. These duties, rules, and obligations are determined by God. Being ‘moral’ is a matter of obeying God. The consequences of these choices, and/or the personal character of the person are irrelevant. Only the intent of following the moral law and actually obeying these laws without question, is relevant in this school of thought.
 

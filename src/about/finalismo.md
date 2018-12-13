@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Finalismo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Finalismo [do latim finale + -ismo] - Doutrina filosófica que sustenta que, na natureza, nada se faz em vão, que todo o ser tem um fim.
 
 ## See Also

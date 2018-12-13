@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Intelectualismo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Intelectualismo [do latim intellectuale + -ismo] - Doutrina filosófica que exalta o predomínio da inteligência sobre a vontade e o sentiment
 
 ## See Also

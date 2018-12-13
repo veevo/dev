@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Idiossincrasia
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Idiossincrasia [do grego idiosygkrasía] – Característica que individualiza o ser, a sua maneira peculiar de ver, de sentir e de reagir.
 
 ## See Also

@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Fixação mental
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Fixação mental – Obsessão de si mesmo, auto-obsessão.
 
 ## See Also

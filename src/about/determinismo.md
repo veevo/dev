@@ -2,10 +2,15 @@
 layout: default-md
 section: About
 title: Determinismo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
 
-# Definition
 Determinismo [do latim determinare + -ismo] - Teoria que afirma correlações indispensáveis entre fenômenos, um sendo condicionado ao precedente e condicionando os que lhe sucedem.
 
 ## See Also

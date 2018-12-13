@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Perisperma
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Perisperma - [do grego perí + spérma]. Bot. Fina membrana envolvente produzida pelo resto não absorvido da nucela (pequena noz), que fica em redor do embrião e do endosperma de uma semente. 
 
 ## See Also

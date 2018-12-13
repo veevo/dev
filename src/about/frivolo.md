@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Frívolo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Frívolo - [do latim frivolu]. Sem importância, insignificante, fútil, leviano.
 
 ## See Also

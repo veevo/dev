@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Ovóides
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Estágio de degradação a que chegam certos espíritos sofredores-obsessores. O espírito, ligado ao obsediado, de maneira intrínseca no seu afã de prejudicar, adquire uma forma ovóide, assemelhando-se á um ovo de consistência indefinida que se "cola" no corpo de seu alvo distorcendo-lhe pensamentos, opiniões e agindo incessantemente para lhe proporcionar toda sorte de infortúnios.
 
 A ligação de um obsessor-obsediado no nível de ovóide, apesar de não muito freqüente, acontece mais do que se imagina. Ela ocorre quando há uma ligação cármica de dois espíritos em um nível avançadíssimo. Sob vidência, um indivíduo sofrendo a ação de um ovóide aparece com uma "massa" humana colada ao corpo, geralmente nas costas ou na região do abdôme.

@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Mediunato
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Mediunato [do latim medium + actu]- Nome criado pelos Espíritos, para significar a missão providencial dos médiuns, a ação mediúnica que eles desenvolvem durante a reencarnação.
 
 ## See Also

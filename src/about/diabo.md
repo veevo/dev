@@ -2,10 +2,15 @@
 layout: default-md
 section: About
 title: Diabo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
 
-# Definition
 Diabo [do grego diabolos] - delator, acusador, maldizente, caluniador] – Conforme a Doutrina dos Espíritos, constitui-se a personificação do mal; é um ser alegórico, resumindo em si todas as paixões más dos Espíritos imperfeitos. Espírito ou gênio do mal. demônio. Satanás.
 
 ## Related

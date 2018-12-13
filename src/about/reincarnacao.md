@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Reencarnação
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Reencarnação [do latim re + incarnatione] - 1. Volta do Espírito à vida corpórea, em um novo corpo especialmente formado para ele. É progressiva ou estacionária, nunca é retrógrada. 2. Uma das personalidades do Espírito dentro da pluralidade das suas existências.
 
 A reeencarnação pode dar-se imediatamente depois da morte, ou após um lapso de tempo mais ou menos longo, durante o qualo Espírito permanece errante. Pode se dar nesta Terra ou em outras esferas, mas sempre em um corpo humano, e nunca no de um animal. a reencarnação é progressiva ou estacionária; nunca é retrógrada. Em suas novas existências corporais o Espírito pode decair em posição social, mas não como Espírito, isto é, de senhor pode nascer servidor, de príncipe, artífice, de rico, miserável, mas progredindo sempre em ciência e moralidade.

@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Fluídico
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Fluídico [do latim fluidu] - 1. Relativo ou semelhante a fluido. 2. Etérico ou imponderável.
 
 ## See Also

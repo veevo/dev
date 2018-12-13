@@ -2,10 +2,14 @@
 layout: default-md
 section: About
 title: The Cosmic Fluid
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
+date: 2019-02-01 19:00:00
+tags: 
+- about
 ---
-
-## What is The cosmic fluid?
 
 The universal cosmic fluid is, as has already been demonstrated, is the primitive material element, the modifications and transformations of which constitute the innumerable variety of the bodies of nature (Chapter X.)  As a principal element of the universe, it assumes two distinct states: that of etherealization or imponderability, which can be considered its normal primitive state, and that of materialization or ponderability, which is, to some degree, consecutive of the first. The intermediary point between them is that of the transformation of the ethereal fluid into tangible material.  Even at that point of transition, however, there is not an abrupt change from one state to another, whereby we can consider our imponderable fluids as an intermediary condition between the two states (see Chapter IV, items 10 and following).
 

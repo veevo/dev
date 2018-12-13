@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Formas-pensamento
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Formas-pensamento – São as idéias projetadas pela mente humana e materializadas no mundo espiritual, construções substanciais na esfera da alma que se mantêm pela força de sustentação de nossos pensamentos. Ver: Ideoplastia e Imagens-molde.
 
 Considerando que toda e qualquer ação e todo e qualquer pensamento fica registrado na memória vital do espírito e no éter-cósmico, pode-se caracterizar as formas-pensamento como concretizações de pensamentos.Por exemplo: um homem, num ambiente de trabalho, sente inveja de um colega por este se mostrar mais competente, mais esforçado e portanto mais solicitado e admirado, a inveja do primeiro cria no éter cósmico uma forma-pensamento própria do sentimento.Essa forma-pensamento pode possuir forma específica, como a de uma faca, de um homem morto, ou pode possuir forma indefinida caracterizando apenas o sentimento pelo qual ela foi gerada.A forma-pensamento pode se depositar no éter cósmico, ou pode colar-se ao indivíduo invejado, no caso do exemplo supracitado, causando-lhe prejuízos psíquicos e até físicos.

@@ -2,10 +2,12 @@
 layout: default-md
 section: About
 title: Monoideísmo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags:
+- about
 ---
 
-# Definition
 Monoideísmo [do grego mónos + -idéa + -ismo] - Estado de alma em todo o psiquismo que se acha dominado por uma idéia central; fixação em uma única idéia.
 
 
