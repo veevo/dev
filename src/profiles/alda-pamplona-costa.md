@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Alda Pamplona da Costa
-subtitle: 1916 – 2006
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 ## Introduction

@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Benedita Fernandes
-subtitle: 1883 – 1947
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 ## Introduction

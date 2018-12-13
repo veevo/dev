@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Meimei ( Irma de Castro)
-subtitle: 1922 - 1946
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Seu nome de batismo, aqui na terra, foi Irma Castro. Nasceu a 22 de outubro de 1922, em Mateus Leme-MG. Aos 2 anos de idade, transferiu-se para Itaúna-MG com a família, composta pelo pai, mãe e quatro irmãos: Ruth, Carmen, Alaíde e Danilo. Os pais eram Adolfo Castro e Mariana Castro. Com 5 anos, ficou órfã de pai.
 
 Meimei foi desde criança diferente de todos pela sua beleza física e inteligência invulgar. Era alegre, comunicativa, espirituosa, espontânea.

@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Maria de Nazaré
-subtitle: 1900 - 1959
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Junto da cruz, o vulto agoniado de Maria produzia dolorosa e indelével impressão.
 
 Com o pensamento ansioso e torturado, olhos fixos no madeiro das perfídias humanas, a ternura materna regredia ao passado em amarguradas recordações.

@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Batuíra (Antonio G. da Silva)
-subtitle: 1839 – 1909
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 ## Introduction

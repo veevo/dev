@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Leopoldo Machado
-subtitle: 1891- 1957
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Nasceu no Arraial de Cepa Forte, hoje Jandaíra, Bahia, em 30 de setembro de 1891.
 
 Leopoldo Machado, como era conhecido, iniciou-se na Doutrina Espírita pelas mãos abençoadas do inolvidável José Petitinga, no ano de 1915, tornando-se arauto da fé e do trabalho.

@@ -2,13 +2,13 @@
 layout: default-md
 section: Profile
 title: Zilda Gama
-subtitle: 1878 - 1969
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
-Zilda Gama foi uma das mais celebradas médiuns do Brasil.
-
-Nasceu em 11 de março de 1878, em Três Ilhas, em Juiz de Fora (MG)e desencarnou em 10 de janeiro de 1969, no Rio de Janeiro. Era a segunda filha dos 11 filhos de Augusto Cristina da Gama, escrivão de paz, e Elisa Emílio Klörs da Gama, professora estadual.
+Zilda Gama foi uma das mais celebradas médiuns do Brasil. Nasceu em 11 de março de 1878, em Três Ilhas, em Juiz de Fora (MG)e desencarnou em 10 de janeiro de 1969, no Rio de Janeiro. Era a segunda filha dos 11 filhos de Augusto Cristina da Gama, escrivão de paz, e Elisa Emílio Klörs da Gama, professora estadual.
 Fez seus estudos com a própria mãe. Posteriormente, matriculou-se na Escola Normal de São João Del Rei, onde recebeu o diploma de professora primária. Ainda jovem, com apenas 24 anos, ficou órfã dos pais, tendo que assumir a direção da casa, cuidando de cinco irmãos menores e, posteriormente, de outros cinco sobrinhos órfãos.
 
 Foi professora e diretora de escola, sendo agraciada em concursos promovidos pela Secretaria de Educação de Minas Gerais. Ainda jovem, Zilda Gama começou a perceber a presença dos Espíritos. Recebeu mediunicamente mensagens de seu pai e de sua irmã, já desencarnados, que a aconselhavam e a consolavam nos momentos de provações difíceis pelos quais estava passando. Em 1912, recebeu interessante mensagem assinada por Allan Kardec. Após essa manifestação, o Codificador propiciou-lhe outros ensinamentos, os quais foram impressos no livro Diário dos Invisíveis, publicado em 1929.

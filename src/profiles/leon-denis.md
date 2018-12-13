@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: León Denis
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Leon Denis was born in a village called Foug, located in the surroundings of Tours , in France , on January 1st, 1846 , of a humble family. Very early in life out of necessity, he did manual works and had to carry the heavy responsibilities of his family. From his first steps into this world, he sensed that invisible friends assisted him. Instead of participating in plays relating to his youth, he tried to instruct himself as intensely as possible. He read serious works, thus striving through his own efforts, to develop his intelligence, and became a serious and competent self-didactic.
 
 At the age of 18, he commenced to work as a sales representative, and because of this he had take frequent trips. This situation continued up to the time of his reformation and beyond. He adored music, and whenever he had a chance, he would attend operas or concerts. He played well-known arias at the piano and also some accords from his own inspiration. He did not smoke, and was almost exclusively a vegetarian, nor did he indulge in fermented drinks. He found water to be his ideal drink.

@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: William Staiton Moses
-subtitle: 1839 - 1892
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Nascido a 5 de novembro de 1839 em Domington, Inglaterra, William Stainton Moses iniciou seus estudos sob a direção de seu pai e foi em seguida confiado a um professor particular. Em 1855, ingressou na Escola de Gramática de Bedford, onde estudou durante três anos. Aos 23 anos de idade, Stainton Moses voltou para Oxford, onde recebeu seu diploma. Em 1870, sua atenção foi atraída para o Espiritismo durante o tempo em que residiu na casa do Dr. Speers, em Londres.
 
 Dois anos depois, começou a estudar o Doutrina assistindo a algumas sessões espíritas. Numa sessão realizada na residência do casal Speers, tendo Stainton Moses como médium, todos se tornaram convictos da realidade da existência de Espíritos comunicantes, consolidando assim a crença na imortalidade da alma. Durante o periodo ativo da sua mediunidade, o pesquisador ocupou-se da formação de sociedades com o fim de estudar o Espiritismo.

@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Gabriel Delanne
-subtitle: 1857 - 1926
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 # Biography

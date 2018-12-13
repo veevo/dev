@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Yvonne A. Pereira
-subtitle: 1900 - 1984
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Nascida em Rio das Flores (RJ), Yvonne completaria 78 anos de idade no dia 24 de dezembro de 1984, ano em que faleceu. Sua desencarnação ocorreu em março.
 
 Solteira, Yvonne residia com uma irmã e sobrinhos no bairro da Piedade, no Rio, após ter residido nas cidades mineiras de Lavras e Juiz de Fora, o que levou muitos confrades a pensarem que ela tivesse nascido em Minas Gerais, terra de grandes médiuns e vultos notáveis do Espiritismo, como Chico Xavier, Eurípedes Barsanulfo, Abel Gomes e tantos outros.

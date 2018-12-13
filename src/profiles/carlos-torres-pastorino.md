@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Carlos Torres Pastorino
-subtitle: 1910 – 1980
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 ## Introduction

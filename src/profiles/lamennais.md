@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Lamennais, Felicité R. de
-subtitle: 1782 - 1854
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Nascido em uma família burguesa em 19 de junho de 1782, em Saint-Malo, na França, foi brilhante escritor, tornando-se uma figura influente e controversa na história da Igreja francesa. 
 
 Com seu irmão Jean, concebeu a ideia de reviver o Catolicismo Romano como uma chave para a regeneração social. Chegaram a esboçar um programa de reforma em sua obra, Reflexões do estado da Igreja..., em 1808. 

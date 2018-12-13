@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Lins de Vasconcellos
-subtitle: 1891- 1952
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Artur Lins de Vasconcellos Lopes foi expressiva figura do Espiritismo brasileiro.
 
 Franco e combativo, jovial e sereno, sincero e leal, bom e caridoso fazia dessas virtudes uma coisa rotineira em sua vida de relação, sem jamais ostentá-la no convívio com seus companheiros de ideal.

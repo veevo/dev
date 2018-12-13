@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Auta de Souza
-subtitle: 1876 – 1906
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 # Biography

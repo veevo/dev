@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Sebastião Lasneau
-subtitle: 1900 - 1969
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Sebastião Lasneau nasceu em Barra do Piraí,  pequena cidade do Vale do Paraíba, no Estado do Rio de Janeiro, no dia 12 de novembro, de 1900, como filho de Evilásio Antônio Lasneau e Etelvina Santos Lasneau. Desencarnou na mesma cidade em 30 de março de 1969.
 
 Menino pobre, o pequeno Sebastião começou a trabalhar muito cedo em atividades humildes em Paracambi e Mendes, cidades do interior  fluminense, até ser admitido como funcionário da  Estrada de Ferro Central do Brasil, onde permaneceu por vinte anos, aposentando-se por invalidez. Nessa ocasião, exercia as funções de cabineiro na Estação de  Sant´Ana da Barra.

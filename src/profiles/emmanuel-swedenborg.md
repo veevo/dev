@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Emmanuel Swedenborg
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 # Biography

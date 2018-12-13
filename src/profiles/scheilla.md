@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Scheilla
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Peixotinho, em Macaé (RJ), iniciou um trabalho de orações para as vítimas da II Grande Guerra. Foi então que, de repente, chegou lá e se materializou um Espírito chamado Rodolfo*, que contou que era de uma família legitimamente espírita, morando na Alemanha. Ele teve de servir na guerra como oficial-médico e o pai dele, Dr. Fritz, muito reservado, educado, severo, muito autêntico, que passou muitas ideias humanitárias aos filhos, havia lhe dito: − Matar nunca. Ao que Rodolfo respondeu: − Pai, não é isso, vou servir como médico.
 
 Em certa ocasião, o Dr. Rodolfo foi chamado como oficial para integrar um pelotão de fuzilamento. Ele, então, disse: − A minha missão é salvar, não matar. E, de acordo com o regulamento militar, ele passou a ser considerado criminoso, porque deixou de servir à pátria, pois a pátria pedia a ele que matasse alguém e ele se negou. Então, disseram-lhe: −Já que você não vai executar esse homem, você vai ficar junto dele para morrer como um traidor. E ele foi fuzilado na mesma hora. A essa altura, manifestou-se (espiritualmente) ao pai e disse: − Pai, já estou na outra dimensão da vida. Cumpri a palavra empenhada: não matei, preferi morrer. Para que não continuasse no ambiente de guerra, foi amparado espiritualmente aqui, no Grupo Espírita Pedro (Macaé-RJ). Peixotinho, por ter sido militar, em razão justa, como espírita, tinha esse trabalho de preces em benefício das vítimas de guerra e pela paz.

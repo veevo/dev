@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Delphine Girardin
-subtitle: 1804 – 1855
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 ## Introduction

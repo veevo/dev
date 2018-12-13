@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Victor Hugo
-subtitle: 1802 - 1885
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Victor Hugo muito se agigantou pela inteligência; poeta genial, escritor primoroso e fecundo. Sustentou, sem esmorecimentos, tremendas lutas em prol da liberdade, enfrentando a ira dos reacionários de todos os tempos, desses que não vacilam em sacrificar as coisas mais sagradas e nobres para que seus interesses fiquem incólumes.
 
 Por ter sido grande demais, deixou de ser cidadão francês para se tornar cidadão do mundo, porque, como foi dito, sua obra literária, suas palavras, no campo político, suas idéias e pensamentos influíram e beneficiaram os povos do mundo inteiro! Ele próprio sentia, não obstante seu entranhado amor ao país de seu nascimento, que pertencia a todos os povos que sofriam e se viam cerceados da liberdade de pensa. Desse modo, a ele cabia o dever de trabalhar, lutar infatigavelmente para que a luz da verdade espiritual reinasse nas almas de todos os seus irmãos, fossem eles desta ou daquela pátria. E para que essa luz pudesse brilhar, era condição sine qua non que aos homens fosse adjudicado o sagrado direito de liberdade, liberdade de sentir Deus e  sua Justiça, dentro das possibilidades intelectuais de cada um. Essa liberdade, enfim, que é uma condição essencial do homem.

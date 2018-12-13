@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Maria Dolores
-subtitle: 1900 - 1959
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Maria Dolores veio ao mundo como Maria de Carvalho Leite, na cidade sertaneja de Bonfim de Feira (BA), no dia 10 de setembro de 1900, filha de Hermenegildo Leite, escrivão da Prefeitura, e da doméstica Balbina de Carvalho Leite. Em Bonfim passou a infância. Do casal Hermenegildo e Balbina nasceram, com Dolores, três homens e duas mulheres. Os  biógrafos, sem exceção, desconheceram o fato de que a grande poetisa baiana possuía dotes mediúnicos.
 
 Em 1916, diplomou-se professora pelo Educandário dos Perdões, considerada pelas colegas e professores como adolescente prodígio, graças à rara inteligência.

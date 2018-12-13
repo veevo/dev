@@ -2,7 +2,10 @@
 layout: default-md
 section: Profile
 title: Camille Flammarion
-subtitle: 1842 – 1925
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
 # Biography

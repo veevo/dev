@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: Viana de Carvalho
-subtitle: 1874 - 1926
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 Nascido na cidade de Icó, Estado do Ceará, em 10 de dezembro de 1874, era filho do professor Tomás Antônio de Carvalho e de D. Josefa Viana de Carvalho. Desencarnou a bordo do navio Íris, sendo o seu corpo sepultado na Bahia, aparentemente em Salvador. Era o dia 13 de outubro de 1926.
 
 Numa época quando a divulgação da Doutrina Espírita ensaiava os seus primeiros passos e encontrava pela frente a mais obstinada oposição, o Major Dr. Manuel Viana de Carvalho, com pulso firme e animado do mais vivo idealismo, desbravava o terreno para nele lançar a semente generosa da propaganda.

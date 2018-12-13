@@ -2,10 +2,12 @@
 layout: default-md
 section: Profile
 title: José Herculano Pires
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: TODO
+date: 2019-02-01 19:00:00
+tags: 
+- profile
 ---
 
-# Biography
 José Herculano Pires nasceu na cidade de Avaré, no estado de São Paulo em 25 de setembro de 1914 e desencarnou em 09 de março de 1979. Filho do farmacêutico José Pires Correia e da pianista Bonina Amaral Simonetti Pires, fez seus primeiros estudos em Avaré, Itaí e Cerqueira César.
 
 Revelou sua vocação literária desde que começou a escrever. Aos 9 anos fez o seu primeiro soneto, um decassílabo sobre o Largo São João, da sua cidade natal. Aos 16 anos publicou seu primeiro livro, "Sonhos Azuis" (contos), e aos 18 anos o segundo livro, "Coração" (poemas livres e sonetos). Teve vários contos publicados com ilustrações na Revista da Semana e no Malho.
