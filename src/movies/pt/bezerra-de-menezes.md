@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Bezerra de Menezes
 subtitle: Carlos Vereza, Lúcio Mauro
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

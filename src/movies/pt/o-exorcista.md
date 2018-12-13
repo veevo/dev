@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Exorcista
 subtitle: Lee J. Cobb, Kitty Winn
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

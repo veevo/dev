@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Corpo Fechado
 subtitle: Bruce Willis, Samuel L. Jackson
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Espiritismo à Francesa
 subtitle: A derrocada do Movimento Espírita Francês pós-Kardec
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

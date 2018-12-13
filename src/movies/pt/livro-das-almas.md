@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Livro Das Almas
 subtitle: 
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

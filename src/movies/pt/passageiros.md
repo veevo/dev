@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Passageiros
 subtitle: Anne Hathaway, Patrick Wilson
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

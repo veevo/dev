@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Cidade dos Anjos
 subtitle: Nicolas Cage, Meg Ryan
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

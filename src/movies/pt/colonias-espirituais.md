@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Colônias Espirituais sobre o território brasileiro
 subtitle: Documentário
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

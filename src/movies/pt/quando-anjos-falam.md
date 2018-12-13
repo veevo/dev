@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Quando os Anjos Falam
 subtitle: Vanessa Redgrave, Ray Liotta
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Espiritismo De Kardec Aos Dias De Hoje
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

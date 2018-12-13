@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Voltar a Morrer
 subtitle: Kenneth Branagh, Emma Thompson, Andy Garcia
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

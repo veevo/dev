@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Os Outros
 subtitle: Nicole Kidman, Christopher Eccleston
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

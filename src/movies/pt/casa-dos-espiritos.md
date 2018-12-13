@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Casa dos Espíritos
 subtitle: Com Meryl Streep, Glenn Close
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

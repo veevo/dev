@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Um Espírito Baixou em Mim
 subtitle: Steve Martin, Lily Tomlin
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

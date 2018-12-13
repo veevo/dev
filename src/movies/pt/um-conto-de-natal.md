@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title:  Um Conto de Natal
 subtitle: Patrick Stewart, Richard E. Grant
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

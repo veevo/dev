@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title:  Uma Chance para Viver
 subtitle: 
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Causa e Efeito
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

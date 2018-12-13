@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Espírito do Mal
 subtitle: Thierry Lhermitte, Jean-Louis Richard
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Feitiço do Tempo
 subtitle: Bill Murray, Andie MacDowell
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

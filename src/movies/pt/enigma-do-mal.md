@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Enígma do Mal
 subtitle: Barbara Hershey, Ron Silver
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

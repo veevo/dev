@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Mistério da Libélula
 subtitle: Kevin Costner, Joe Morton
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,8 @@ layout: default-md
 section: Filmes
 title: Nos Passos Do Mestre
 subtitle: 
+tags: 
+- movie
 ---
 
 ## Descrição

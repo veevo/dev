@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Campo dos Sonhos
 subtitle: Kevin Costner, Ray Liotta
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

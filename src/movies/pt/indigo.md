@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Índigo
 subtitle: Índigo
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

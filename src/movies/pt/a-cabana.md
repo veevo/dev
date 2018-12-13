@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Revelação
 subtitle: Terence Stamp, Ron Moody
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição
@@ -12,7 +15,7 @@ Loculus, uma antiga relíquia, durante séculos é motivo de luta entre as forç
 <iframe width="1280" height="720" src="https://www.youtube.com/embed/seVfllfYQjQ" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## Relacionados
-TODO
+TODO  
 
 
 <a href="/movies" class="button">All Movies</a>

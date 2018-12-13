@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Ciencia e As Sessões Espíritas (Documentário)
 subtitle: BBC Documentary
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

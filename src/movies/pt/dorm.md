@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Dorm, O Espírito
 subtitle: Charlie Trairatque, Chintara Sukkhaphat
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

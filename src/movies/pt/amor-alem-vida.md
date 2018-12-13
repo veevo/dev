@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Amor Além da Vida
 subtitle: Robin Williams, Cuba Gooding Jr.
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

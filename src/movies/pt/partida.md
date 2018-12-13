@@ -3,7 +3,9 @@ layout: default-md
 section: Filmes
 title: A Partida
 subtitle:  Masahiro Motoki, Tsutomu Yamazaki
-
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

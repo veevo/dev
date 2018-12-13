@@ -2,7 +2,10 @@
 layout: default-md
 section: Filmes
 title: O Filme dos Espiritos
-subtitle: 
+subtitle: TODO
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

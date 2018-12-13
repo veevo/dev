@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Árvore dos Sonhos
 subtitle: Com Elijah Wood, Kevin Costner 
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

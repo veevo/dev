@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Encontro Marcado
 subtitle: Brad Pitt, Anthony Hopkins
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

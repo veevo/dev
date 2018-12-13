@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title:  A verdade sobre colônias espirituais
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

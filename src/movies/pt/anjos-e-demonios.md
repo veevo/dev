@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Anjos e Demômios
 subtitle: Tom Hanks, Ayelet Zurer
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

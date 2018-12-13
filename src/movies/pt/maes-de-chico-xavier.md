@@ -2,10 +2,12 @@
 layout: default-md
 section: Filmes
 title: As mães de Chico Xavier
-subtitle: 
+subtitle: TODO
+tags: 
+- movie
+- spiritist-movie
 ---
 
-## Descrição
 TODO
 
 [EN] https://www.youtube.com/watch?v=s3vXBBgwMeQ

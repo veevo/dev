@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Livro dos Espíritos - O Filme
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

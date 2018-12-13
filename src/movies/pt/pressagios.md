@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Presságio
 subtitle: Nicolas Cage, Chandler Canterbur
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

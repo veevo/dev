@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Casa do Lago
 subtitle: Com Keanu Reeves, Sandra Bullock
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

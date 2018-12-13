@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Visões
 subtitle: 
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

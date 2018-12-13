@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Terceira Revelação A Morte Não Existe
 subtitle: Terence Stamp, Ron Moody
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

@@ -2,7 +2,10 @@
 layout: default-md
 section: Filmes
 title: Sozinho
-subtitle: 
+subtitle: TODO
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

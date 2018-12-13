@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Ilusões Perigosas
 subtitle: Aidam Quinn, John Gielgud
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

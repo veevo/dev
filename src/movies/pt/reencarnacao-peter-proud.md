@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Reencarnação de Peter Proud 
 subtitle: Documentário
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -2,7 +2,10 @@
 layout: default-md
 section: Filmes
 title: Shirley Maclaine - Minhas Vidas (Out on a Limb)
-subtitle: 
+subtitle: TODO
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Experimento de Scole
 subtitle: Extraordinários Experimentos Mediúnicos na Inglaterra
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

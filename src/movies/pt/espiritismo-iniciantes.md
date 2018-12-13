@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Doutrina espírita para principiantes
 subtitle: Documentário
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

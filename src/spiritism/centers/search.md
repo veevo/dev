@@ -3,7 +3,7 @@ layout: default-md
 section: Spiritist Centers
 title: Search
 subtitle: Search a Spiritst Center near you
-date: 2018-08-31 14:00:00 +7:00
+date: 2018-08-31 14:00:00
 ---
 
 Due to the vast number of Spiritist Centers around the world, we ask you to use the search tool below.

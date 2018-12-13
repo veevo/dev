@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title:  Quem foram os "Exilados de Capela"? 
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

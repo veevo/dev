@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: E a Vida Continua
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

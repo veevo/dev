@@ -2,10 +2,12 @@
 layout: default-md
 section: Articles
 title: Self Knowledge
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: How to know ourselves, make progress and be happier
+date: 2019-02-01 19:00:00
+tags: 
+- article
+- self-knowledge
 ---
-
-## Introduction
 
 Just like all animals have an instinctual code of conduct that comes from natural evolution, the spirits within human animals too have an ingrained code of conduct. A code that comes from the conclusions made based on the experiences in present and in past existences. This set of criteria is what we use to make all the decisions of our lives and is called our Ethical Code
 

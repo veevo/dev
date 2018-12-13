@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Ectoplasma (O Filme)
 subtitle: 
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Alma Perdida
 subtitle:  Odette Yustman, Gary Oldman
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

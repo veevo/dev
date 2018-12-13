@@ -3,7 +3,9 @@ layout: default-md
 section: Filmes
 title: A Corrente do Bem
 subtitle: Kevin Spacey, Helen Hunt
-
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

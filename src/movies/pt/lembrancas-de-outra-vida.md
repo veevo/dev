@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Lembranças de Outra Vida
 subtitle: Samuel L. Jackson, Matthew Modine
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

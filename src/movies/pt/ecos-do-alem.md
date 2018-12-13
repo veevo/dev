@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Ecos do Além
 subtitle: Kevin Bacon, Kathryn Erbe
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

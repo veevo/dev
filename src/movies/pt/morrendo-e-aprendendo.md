@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Morrendo e Aprendendo
 subtitle: Robert Downey Jr, Charles Grodin
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

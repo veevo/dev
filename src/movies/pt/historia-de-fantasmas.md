@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: História de Fantasmas
 subtitle: Fred Astaire, Melvyn Douglas
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

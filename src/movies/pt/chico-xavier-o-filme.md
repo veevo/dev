@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Vida de Chico Xavier
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

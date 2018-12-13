@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Nosso Lar
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

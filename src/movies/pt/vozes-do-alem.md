@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Vozes do Além
 subtitle: Michael Keaton, Chandra West
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

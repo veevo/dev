@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: De Caso com o Acaso
 subtitle: Gwyneth Paltow, John Hannah
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

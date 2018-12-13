@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Dom da Premonição
 subtitle: Cate Blanchett, Gary Cole
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

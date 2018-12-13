@@ -3,9 +3,11 @@ layout: default-md
 section: Filmes
 title: Manika
 subtitle: Julian Sands, Ayesha Dharker
+tags: 
+- movie
+- spiritualist-movie
 ---
 
-## Descrição
 Para quem acredita em reencarnação, este filme talvez não apresente grande impacto, mas para quem não acredita, o caso Manika leva a profundas reflexões.
 
 O filme, embora romanceado, é o relato real do caso Shanti Devi, que nasceu na Índia em novembro de 1926  e que, a partir dos 4 anos de idade, começou a recordar com riqueza de detalhes de sua encarnação anterior como Ludgi Devi, a esposa de um rico brâmine de Mathura (Nepal), cidade que se situa a uns 140 quilômetros de Delhi. Ludgi morrera aproximadamente 1 ano antes de Shanti nascer.

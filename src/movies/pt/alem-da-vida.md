@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Além da Vida
 subtitle:  
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

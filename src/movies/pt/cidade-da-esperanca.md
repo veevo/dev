@@ -3,7 +3,9 @@ layout: default-md
 section: Filmes
 title: A Cidade da Esperança
 subtitle: Patrick Swayze, Pauline Collins
-
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

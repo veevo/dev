@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Amor Maior que a Vida
 subtitle: Billy Crudup, Jennifer Connelly
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

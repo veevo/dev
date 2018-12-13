@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Alta Frequência
 subtitle: Dennis Quaid, James Caviezel
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

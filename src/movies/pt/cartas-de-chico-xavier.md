@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: As Cartas Psicografadas de Chico Xavier 
 subtitle: Terence Stamp, Ron Moody
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

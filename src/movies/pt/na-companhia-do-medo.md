@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Na Companhia do Medo
 subtitle: Halle Berry, Robert Downey Jr.
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

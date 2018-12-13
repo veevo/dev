@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Sexto Sentido
 subtitle: Haley Joel Osment, Bruce Willis
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

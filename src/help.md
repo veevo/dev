@@ -3,7 +3,7 @@ layout: default-md
 section: Spiritism
 title: Getting Help
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date: 2019-02-13 14:00:00 +7:00
+date: 2019-02-13 14:00:00
 hide_share: true
 ---
 

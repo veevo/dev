@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Nos bastidores de uma Reunião Espírita
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

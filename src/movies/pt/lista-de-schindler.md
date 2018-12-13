@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Lista de Schindler
 subtitle: Liam Neeson, Ben Kingsley
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

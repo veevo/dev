@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Eurípedes Barsanulfo Médium e Educador
 subtitle: 
+tags: 
+- movie
+- spiritist-movie
 ---
 
 ## Descrição

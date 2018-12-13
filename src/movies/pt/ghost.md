@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Ghost
 subtitle: Patrick Swayze, Demi Moore
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

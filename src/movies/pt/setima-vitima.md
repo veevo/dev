@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Sétima Vítima
 subtitle: Anna Paquin, Lena Olin
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

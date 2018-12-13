@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Revelação
 subtitle: Terence Stamp, Ron Moody
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

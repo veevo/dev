@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: A Cela
 subtitle: Jennifer Lopez, Vince Vaugh
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

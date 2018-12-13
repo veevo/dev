@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Os Espíritos
 subtitle: Michael J. Fox, Trini Alvarado
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

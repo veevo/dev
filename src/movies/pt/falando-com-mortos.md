@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Falando com os mortos
 subtitle: Ted Danson, Mary Steenburgen
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Asas do Desejo
 subtitle: Bruno Ganz, Solveig Dommartin
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

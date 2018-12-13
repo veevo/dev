@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Um Olhar na Escuridão
 subtitle: 
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

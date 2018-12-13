@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: O Céu Pode Esperar
 subtitle: Warren Beatty, James Mason
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Os Órfãos
 subtitle: Marcio Cassoni, Ana Rita Aguilar
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

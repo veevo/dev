@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: À Espera de um Milagre
 subtitle: Tom Hanks, James Cromwell
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição

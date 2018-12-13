@@ -3,6 +3,9 @@ layout: default-md
 section: Filmes
 title: Revelação
 subtitle: Harrison Ford, Michelle Pfeiffer
+tags: 
+- movie
+- spiritualist-movie
 ---
 
 ## Descrição
