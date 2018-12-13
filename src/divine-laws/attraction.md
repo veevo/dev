@@ -3,9 +3,11 @@ layout: default-md
 section: Divine Laws
 title: Attraction
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-11 13:00:00
+tags: 
+- divine-law
 ---
 
-## The Law of Attraction
 The moral and trustworthy nature of the intuitions we receive relates directly to the kinds of spirits that they come from. So, do we have any control over the kinds of spirits who transmit these thoughts to us?  In fact we do, and the answer stems from the Law of Moral Affinity, which says that individuals of a like moral nature attract one another, and those of a contrary moral nature repel one another. The kinds of spirits who accompany us and inspire us are those who are attracted to us through this moral or vibrational affinity, which depends on the thoughts we cultivate and the behaviors that are habitual to us. 
 
 An analogy can be made to the frequencies on a radio, each band having a different style of music or other programming.  In order to hear what we prefer, we must tune our radio to the right frequency.   Likewise, spirits of all kinds live among us and try to influence us, but in order to hear the suggestions that will help  us, we must tune our minds and our hearts, in other words, our thoughts and our feelings, to the right vibrational frequency.

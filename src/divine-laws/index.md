@@ -1,7 +1,7 @@
 ---
 layout: default-md
-section: Divine Laws
-title: Laws
+section: Laws
+title: Divine Laws
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
@@ -12,6 +12,19 @@ God’s law is written in the conscience of each one of us, but over time, has b
 
 
 ## Our List of Divine Laws
-Please note that this is a work in progress. We are frequently increasing the list of virtues so be sure to be back or subscribe for notifications to be notified on updates.
+We are frequently updating our virtues so be sure to be back or subscribe for notifications on updates.
 
-TODO
+<div class="left">
+    <ul>
+        {% for post in site.pages %}
+        {% for tag in post.tags %}
+        {% if tag == "divine-law" %}
+            <li>
+                <a href="{{ post.url }}">{{ post.title }}</a><br>
+                <p>{{ post.subtitle }}</p>
+            </li>
+        {% endif %}
+        {% endfor %}
+        {% endfor %}
+    </ul>
+</div>

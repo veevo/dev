@@ -3,9 +3,10 @@ layout: default-md
 section: Divine Laws
 title: Society
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-11 13:00:00
+tags: 
+- divine-law
 ---
-
-## The Law of Society
 
 The forming of societies is natural to human beings, it is necessary for intellectual and ethical progress.
 

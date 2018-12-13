@@ -3,9 +3,11 @@ layout: default-md
 section: Divine Laws
 title: Love
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-11 13:00:00
+tags: 
+- divine-law
 ---
 
-## The Law of Love
 Personal freedom is a natural right, but absolute freedom in our actions can not exist for we all need each other and two or more people together always have reciprocal rights and duties to respect. The absolute subjection of one human being to another (slavery in whatever form) is contrary to natural law and will disappear with progress.  Also, the more developed one's reason, the more responsible one is for such treatment of another.  Abuse of position, skills, power, etc. by individuals, groups, and nations is never justified before God's law.  It is only in thought that we can enjoy absolute liberty, which may be temporarily hindered but never annihilated.  Even so, we area always responsible to God for our thoughts, which carry their natural consequences. Freedom of conscience, a characteristic of true civilization and progress, arises naturally from freedom of thought, and only God has the right to intervene in matters of conscience. To offend others whose beliefs are different shows a lack of compassion and is an infringement on others' freedom of thought.  Gentleness and compassion, never force, should be used to convince.
 
 Freedom of action, or free will, develops with our freedom of thought and conscience.  It can be exercised according to our spiritual evolution and present physical stage as humans. In humans, it also suffers the influence of matter, including the particular conditions of a given body, as well as some limits created by social status.  We are, however held responsible for exhibiting the efforts to overcome such influences. Voluntary deprivation of reason, i.e. drunkenness and other self-induced conditions, are contrary to natural law.
