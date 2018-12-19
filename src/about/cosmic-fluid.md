@@ -39,4 +39,4 @@ Author: [Allan Kardec](/profiles/allan-kardec)
 
 
 ## See Also
-[What's the difference between Principle, Fluid and Energy?](/questions/principle-fluid-energy)
+[What's the difference between Principle, Fluid and Energy?](/articles/principle-fluid-energy)

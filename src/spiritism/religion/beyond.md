@@ -9,7 +9,7 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 The revelations introduced by Spiritism, as well as the proofs it provided, lead those in doubt to understand the true nature of [God's laws](/divine-laws) with a rational faith. [Spiritism’s teachings](../teachings), thereby, instill in these individuals the will to self-reform (both personal and societal). Rather than being exclusively a religion, Spiritism is also a [philosophy](../philosophy) with moral consequences.
 
 In the book, Basic Spiritism, Barbosa writes that the fundamentals of Spiritist philosophy are based on:
-> "[the existence of God](/questions/does-god-exist), as the supreme intelligence and cause of all things; [evolution](/divine-laws/evolution) as the general law to which everything is subordinate except for God himself; [reincarnation](../reincarnation) as the predominant factor in divine justice; and the exercise and results of the use of our [free will](/divine-laws/free-will)."
+> "[the existence of God](/articles/does-god-exist), as the supreme intelligence and cause of all things; [evolution](/divine-laws/evolution) as the general law to which everything is subordinate except for God himself; [reincarnation](../reincarnation) as the predominant factor in divine justice; and the exercise and results of the use of our [free will](/divine-laws/free-will)."
 
 As [Kardec](/about/allan-kardec) said then,
 > "We can consider the Doctrine of Spiritism in its religious aspect when it establishes a moral tie between men, leading them in the direction of the creator, through the application of the moral teachings of Christ." (Kardec, 1866;  2000) <br><br>	     	
