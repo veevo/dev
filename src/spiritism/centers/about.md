@@ -1,7 +1,7 @@
 ---
 layout: default-md
 section: Spiritist Centers
-title: About
+title: About Spiritist Centers
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
@@ -25,7 +25,7 @@ A Spiritist center is more than just a place to study. It is a place to pray, le
 Spiritist centers cover an extremely broad spectrum in terms of size, number, and scope of activities.  There are some centers with as few as 10 or 20 people, others with hundreds, and even, in some cases, thousands of members.  Still, there are some basic activities common to most centers, regardless of size.
 
 
-## Next
+## Read Next
 Know the activities that occour in a Spiritist Center:  
 [Public Meetings](public-meetings)  
 [Fluidic Therapy](fluidic-therapy)  
@@ -36,5 +36,5 @@ Know the activities that occour in a Spiritist Center:
 [Community Outreach](community-outreach)  
 
 
-<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
+<a href="/spiritism/centers" class="button special">Spiritist Centers</a>
 <a href="public-meetings" class="button">Next: Public Meetings</a>

@@ -2,17 +2,14 @@
 layout: default-md
 section: About
 title: Inhabited Worlds
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: Click below to learn more about what Spiritism has to say the diverse types of inhabited worlds.
 ---
 
-## Information about Material and Spiritual Worlds
-Click below to learn more about what Spiritism has to say the diverse types of inhabited worlds.
-
-### About Material and Spiritual Worlds
+## About Material and Spiritual Worlds
 [Introduction](intro)  
 [Types of Worlds](types)  
 
-### The diverse Types of Worlds
+## The diverse Types of Worlds
 [Primitive Worlds](primitive)  
 [Trials & Purifications Worlds](trial-purification)  
 [Regeneration Worlds](regeneration)  
@@ -21,17 +18,17 @@ Click below to learn more about what Spiritism has to say the diverse types of i
 [Transitional Worlds](transitional)  
 
 
-### Life in Spiritual Worlds
+## Life in Spiritual Worlds
 [Life in Spiritual Worlds](life)  
 [Spiritual Families](families)  
 
 
-### Known Spiritual Worlds
+## Known Spiritual Worlds
 
 [Colonies (Spiritual Cities)](colonies)  
 [Umbral (Inferior Zones)](umbral)  
 
-### Common Questions
+## Common Questions
 [What about Earth?](earth)  
 
 

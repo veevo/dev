@@ -2,11 +2,8 @@
 layout: default-md
 section: About
 title: Spirits
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: Click below to learn more about what Spiritism has to say about spirits and the spiritual world.
 ---
-
-## Information about Spirits
-Click below to learn more about what Spiritism has to say about spirits and the spiritual world.
 
 ### Creation and Evolution of Spirits
 [Introduction](intro)  

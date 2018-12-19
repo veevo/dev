@@ -7,17 +7,18 @@ date: 2019-02-13 14:00:00
 hide_share: true
 ---
 
-Veevo.org is an independent, privacy-focused, completely volunteered developed and run organization. We don't host ads. We don't have any financial benefit from this site and we will never will.
+## Introduction
+Veevo.org is an independent, privacy-focused, completely volunteered developed and run organization. We don't host ads. We don't benefit financially from this site and we never will.
 
 Our mission is different: we expect to provide light to the human being through the teachings of [Spiritism](/spiritism).
 
-Spiritism is not someone's work. It's the doctrine of the Spirits. It's [the Comforter promissed by Jesus](/messages/jesus/the-consoler) whose mission is to revive Jesus' Doctrine so much misinterpreted, distorted, misunderstood and ignored by the humanity for over 2000 years.
+Spiritism is not someone's work. It's the doctrine of the Spirits. It's [the Comforter promissed by Jesus](/messages/jesus/the-consoler) whose mission is to revive Jesus' Doctrine - the Gospel - so much misinterpreted, distorted, misunderstood and ignored by the humanity for over 2000 years.
 
 ## Content
 We strongly believe in [Education](/pillars/education). While we build some content ourselves, we also publish content from other authors on this site. For content not authored by us, we strive to provide the original source, author name, access date and additional information when applicable. Errors and copyright infringements can be reported using the report feature available on this site. For more information, please also check the _Errors_ and _Removal of Content_ sections for more details.
 
 ## Translations
-Our mission is to divulge Spiritism to as many people as possible _in the world_. That means translating content to and from different languages. Due to the massive size of our database and to the small size of the team, we often recur to automated translation. We also revise every content before publishing, but errors may still occurr. Our [Openness](/pillars/openness) pillar guarantees that readers should be able to report and/or fix errors when applicable.
+Our mission is to divulge Spiritism to as many people as possible _in the world_. That means translating content to and from different languages. Due to the massive size of our database and to the small size of the team, we often recur to automated translation. While we revise every content before publishing, errors may still occurr. Our [Openness](/pillars/openness) pillar guarantees that readers should be able to report and/or fix errors when applicable.
 
 ## Privacy
 We are an independent, privacy-focused, completely volunteered developed and run organization. We don't host ads neither benefit financially from this site. Being a [zero-profit organization](/pillars/no-profit) provides a solid foundation to reach our goals and respect your privacy. Due to its simplicity, our website restricts to the minium, the dependencies on third-party vendors so that your privacy is respected to the most. Also, our very low codebase  reduces online risks to our readers.

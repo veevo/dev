@@ -17,10 +17,12 @@
         {% include content/nav-breadcrumbs.html %}
 
         <!-- Header -->
-        <div class="content-head">
+        <div class="content-head center">
           <h1>{{ page.title }}</h1>
-          <p>{{ page.subtitle }}</p>
-          {% include content/meta.html %}
+          <p>
+            {{ page.subtitle }}<br>
+            {% include content/meta.html %}
+          </p>
         </div>
 
         <!-- Content -->

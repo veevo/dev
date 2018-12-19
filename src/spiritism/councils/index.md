@@ -6,12 +6,13 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 date:  2018-11-31 14:00:00
 ---
 
+## Introduction
 Spiritist Councils and Federation have as objective, to promote, unify and foster the Spiritist Doctrine in each country. All federations are represented on the International Spiritist Council (ISC), an organization that supports the Spiritist movement in each country. The ISC has regional departments having as objective to work together with the representatives from each country.
 
-### International
+## International Councils
 [International Spiritist Council](https://cei-spiritistcouncil.com/)  
 
-### Europe
+## Europe
 [Belgian Spiritist Union](http://www.spirite.be/)  
 [French Spiritist Council](https://www.conseil-spirite.org/)  
 [German Spiritist Union](https://www.facebook.com/spiritismus)  
@@ -24,7 +25,7 @@ Spiritist Councils and Federation have as objective, to promote, unify and foste
 [Union of Spiritist Centers in Switzerland](http://www.ucess.ch/)  
 [British Union of Spiritist Societies-BUSS](http://www.buss.org.uk/)  
 
-### Americas
+## Americas
 [Canadian Spiritist Council](http://www.canadianspiritistcouncil.com/)    
 [Spiritist Council of Mexico](http://www.espiritismoenmexico.org/)    
 [United States Spiritist Council](http://www.spiritist.us/)    

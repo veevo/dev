@@ -2,12 +2,11 @@
 layout: default-md
 section: Spiritist Centers
 title: Spiritist Center Activities
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+subtitle: Learn more about the activities that occour in a Spiritist Center.
 date: 2018-12-03 14:36:23
 ---
 
-The activities that occour in a Spiritist Center are listed below. Click on them to learn more:
-
+## Basic Activities
 [Public Meetings](public-meetings)  
 [Fluidic Therapy](fluidic-therapy)  
 [Children's and Youth Studies](children-youth-studies)  
