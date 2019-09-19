@@ -1,15 +1,14 @@
 ---
-layout: default-md
-section: Spiritism
 title: Learn Spiritism
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+image: "images/author.jpg"
+date: "2019-01-01"
 ---
 
-## Learn Spiritism
 We prepared a summary of the Spiritist Doctrine as described below. You can find the following teachings on this section:
 
 ### Basic Concepts
-[Spiritism - Introduction](about)  
+[Spiritism - Introduction](../about)  
 [Spiritism - Foundations](foundations)  
 [Spiritism - Teachings](teachings)  
 [Spiritism - The Codification](codification)  
@@ -33,6 +32,3 @@ We prepared a summary of the Spiritist Doctrine as described below. You can find
 [The philosophic aspect of Spiritism](philosophy/)  
 [The religious aspect of Spiritism](religion/)  
 
-
-<a href="./" class="button special">Spiritism - Main Topics</a>
-<a href="/spiritism/about" class="button">Next: Spiritism - Introduction</a>

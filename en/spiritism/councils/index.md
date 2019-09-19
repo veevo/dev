@@ -1,12 +1,9 @@
 ---
-layout: default-md
-section: Spiritism
 title: Spiritist Councils and Federations
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date:  2018-11-31 14:00:00
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date:  "2018-11-31 14:00:00"
 ---
 
-## Introduction
 Spiritist Councils and Federation have as objective, to promote, unify and foster the Spiritist Doctrine in each country. All federations are represented on the International Spiritist Council (ISC), an organization that supports the Spiritist movement in each country. The ISC has regional departments having as objective to work together with the representatives from each country.
 
 ## International Councils
@@ -45,7 +42,3 @@ Spiritist Councils and Federation have as objective, to promote, unify and foste
 # Source
 [CEI - Member Countries](https://cei-spiritistcouncil.com/member-countries/#1485984587200-c49f8ddf-5f57)
 
-
-<a href="/spiritism/" class="button special">Learn Spiritism</a>
-<a href="/spiritism/centers" class="button">Spiritist Centers</a>
-<a href="/spiritism/centers" class="button">Spiritist Centers</a>

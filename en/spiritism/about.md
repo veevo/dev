@@ -1,14 +1,10 @@
 ---
-layout: default-md
-section: Spiritism
-title: Introduction
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date: '2018-11-03 19:00:00 -07:00'
+title: WHAT IS SPIRITISM
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2018-11-03 19:00:00 -07:00"
 ---
 
-
-## WHAT IS SPIRITISM ?
-
+### WHAT IS SPIRITISM
 »  Spiritism is a lesson of love and everlasting life, in a continued pursuit of self-improvement, and harmony, with all the creation throughout multiple existences.  
 »  It is the collection of principles and laws, as revealed by the Superior Spirits, contained in the works of Allan Kardec, which constitute the Codification of Spiritism: The Spirits' Book, The Mediums' Book, The Gospel According to Spiritism, Heaven and Hell, and Genesis.  
 »  It is the promised Consoler which came, at the appointed time, to compliment and remind us of what Jesus taught, "reestablishing all things in their true meaning", so bringing to Humanity the true basis for spiritualization.  

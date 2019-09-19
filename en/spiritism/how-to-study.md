@@ -1,11 +1,8 @@
 ---
-layout: default-md
-section: Spiritism
-title: How to Study
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: How to Study Spiritism
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
 ---
-
-## How to Study Spiritism
 
 The study of the Spiritist codification is most effective when done in groups of like-minded individuals. The purpose of this study is not just to answer people’s questions but also to encourage the asking of new ones and the sharing of the conclusions each individual reaches from the studied material. None of these benefits can be achieved when the student is always alone during the study sessions.
 
@@ -35,7 +32,3 @@ If study groups or Spiritist Centers are out of reach or you wish to begin study
 TODO: Add ref to SGNY
 
 
-
-<a href="/spiritism/why-it-endured" class="button">Previous: Why it endured</a>
-<a href="learn" class="button special">Learn Spiritism</a>
-<a href="/spiritism/how-to-practice" class="button">Next: Spiritism - How to Practice</a>

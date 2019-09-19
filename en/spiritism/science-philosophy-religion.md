@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Spiritism
-title: SCIENCE, PHILOSOPHY AND RELIGION
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: "Spiritsm: science, philosophy or religion?"
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
 ---
 
-## Spiritsm: SCIENCE, PHILOSOPHY or RELIGION?
 We are at the dawn of the Third Millennium and there are many persons who have as yet not come to know or understand [Jesus](/profile/jesus). At a time in which so much scientific knowledge is available, our hearts still thirst. Let's review what Spiritism and its triple aspect of Science, Philosophy and Religion means on the third millennium.
 
 Let us get a little deeper into this theme: It was that same Master, who had promised to send us the [Consoler](/about/consoler), to teach mankind all things and to call to mind all that he had said. [Spiritism](/spiritism) has come at the predicted time to fulfill Christ’s promise. Through its triple aspect, Science, Philosophy and Religion, it has come to satiate us and to show us the way to Light, Tolerance and Love.
@@ -38,11 +36,7 @@ The Spiritist Doctrine, we admit, is relatively new, as it is only 152 years old
 ## Source
 [SGNY: Spiritism: Science, Philosophy and Religion](http://www.sgny.org/pdf/03sspr.pdf)
 
-
 ## See Also
 [What is Spiritism](about)
 
-<a href="learn" class="button special">Spiritism</a>
-<a href="science/" class="button">Science</a>
-<a href="philosophy/" class="button">Philosophy</a>
-<a href="religion/" class="button">Religion</a>
+

@@ -1,11 +1,10 @@
 ---
-layout: default-md
-section: Spiritism
-title: FAQ
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Spiritism - Frequently Asked Questions
+date: "2019-04-07"
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+image: "images/featured-post/post-4.jpg"
+type: "post"
 ---
-
-## Spiritism - Frequently Asked Questions
 
 ### 1- Is Spiritism part of the occult?
 
@@ -311,9 +310,6 @@ When you go to a Spiritist center (or one calling itself Spiritist) use good sen
 ## Source
 TODO: Add Source
 
-## See Also
-
+## See Also 
 TODO
 
-<a href="learn" class="button special">Learn Spiritism</a>
-<a href="/spiritism/learn" class="button">Back to Introduction to Spiritism</a>

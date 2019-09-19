@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Spiritism
-title: History
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: The History of Spiritism
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
 ---
 
-## The History of Spiritism
 
 By the year 1848, several strange phenomena were gaining notoriety in the United States, consisting in noises, raps and movement of objects with no apparent cause. They would happen spontaneously, several times, with a characteristic intensity and frequency.  However, it soon became clear that these phenomena could also occur through the presence of certain people whom were known as ”mediums”.  These people could provoke the phenomena at will, making experiments possible. Such experiments were made using tables, not because these objects are more favorable than others, but because they were more convenient, movable, and because it was easier to sit around them than any other furniture. In this way the rotation of tables was achieved, and subsequently, movements in all directions: jumps, turns, fluctuations, violent strokes etc. These phenomena were originally called ‘table dancing’ or ‘table turning’.
 
@@ -78,9 +76,3 @@ Written by Allan Kardec in the 1860s, giving his personal explanation of the cir
 Translated into English by A. L. Xavier Jr. and Carol de Macedo.  
 Based on the essay “O Espiritismo em sua mais simples expressão” by A. Kardec, 2nd ed., FEESP (1989).  
 
-
-
-
-<a href="/spiritism/not-spiritism" class="button">Previous: What Spiritism is NOT</a>
-<a href="learn" class="button special">Learn Spiritism</a>
-<a href="/spiritism/backlash" class="button">Next: Backlash to the Codification</a>

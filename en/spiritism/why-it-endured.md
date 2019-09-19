@@ -1,11 +1,8 @@
 ---
-layout: default-md
-section: Spiritism
 title: Why has Spiritism Endured?
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
 ---
-
-## Why has Spiritism Endured?
 
 Today Spiritism has found a huge rebirth in the UK, Brazil, and America, with growing branches all over Europe and South America.
 
@@ -36,7 +33,3 @@ In conclusion Rivail’s scientific mind allowed him to accurately filter throug
 TODO: Add ref to SGNY
 
 
-
-<a href="backlash" class="button">Previous: Backlash to the Codification</a>
-<a href="learn" class="button special">Learn Spiritism</a>
-<a href="why-practice" class="button">Next: Why practice Spiritism</a>
