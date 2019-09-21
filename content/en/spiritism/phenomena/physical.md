@@ -1,12 +1,14 @@
 ---
-layout: default-md
-section: Mediumship
 title: Physical Phenomena
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- phenomena
+categories:
+- spiritism
 ---
 
-## Physical Phenomena
-
+## Physical Phenomena 
 The nature of the communication that exists between the medium and the spirit can be placed in two main categories: Physical and Intellectual Phenomena.
 
 The first refers to all mediumship phenomena that involves the spirit acting upon inanimate objects in the physical world by using energy from the medium.
@@ -69,22 +71,13 @@ One can directly infer from the above list that all the phenomena associated wit
 
 It is important to note that even though the creating of ectoplasm by a medium can be dangerous and draining for the medium, giving of ectoplasm in small quantities can occur without the medium ever being aware that this is occurring. Also ectoplasm in a more diluted form can remain in a confined environment like a building for long periods of time after it has been used by a Spirit.
 
-
-
-
 ## Source
 [Categories Of Communication & Their Workings](http://www.sgny.org/spiritism-guide/mediumship/communication-workings/)
 
 ## See Also
 TODO
 
-
 ## Suggested Reading
 TODO
 
 
-
-
-<a href="" class="button">Previous: </a>
-<a href="./" class="button special">Phenomena</a>
-<a href="" class="button">Next: </a>

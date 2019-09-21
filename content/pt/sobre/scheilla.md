@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Scheilla
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Peixotinho, em Macaé (RJ), iniciou um trabalho de orações para as vítimas da II Grande Guerra. Foi então que, de repente, chegou lá e se materializou um Espírito chamado Rodolfo*, que contou que era de uma família legitimamente espírita, morando na Alemanha. Ele teve de servir na guerra como oficial-médico e o pai dele, Dr. Fritz, muito reservado, educado, severo, muito autêntico, que passou muitas ideias humanitárias aos filhos, havia lhe dito: − Matar nunca. Ao que Rodolfo respondeu: − Pai, não é isso, vou servir como médico.
@@ -23,8 +21,8 @@ Casou-se aos 20 anos com o barão de Chantal. Tendo muito cedo perdido seu marid
 Em Paris, instalaram-se em pequena casa alugada em bairro pobre. Passaram por grandes necessidades, mas a Ordem da Visitação (de Paris) foi aumentando e superou as dificuldades. Em 1619, São Vicente de Paulo ficou como superior do Convento da Ordem da Visitação. Santa Joana de Chantal deixou o cargo de superiora da Ordem da Visitação e voltou a Annecy, onde ficava a casa-mãe da ordem. A Santa várias vezes tornou a ver São Vicente de Paulo, seu confessor e diretor espiritual.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/scheilla.html)
 
-## See Also
+## Veja Também
 TODO

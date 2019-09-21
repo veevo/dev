@@ -2,10 +2,13 @@
 title: Spiritism & Ethics
 description: How can Spiritism contribute with Ethics. How does it help us being better and happier human beings
 date: 2019-02-01 19:00:00
+image: "images/masonary-post/post-2.jpg"
+categories: 
+  - "articles"
 tags: 
-- article
 - ethics
 - law
+- spiritism
 ---
 
 ETHICS is considered by many to be a somewhat esoteric topic. What most do understand about ethics is that it has something to do with good and bad, and that it is a controversial topic. Ethics has two aspects, first its definition: what does ethics mean. How what is ethical and not ethical can be identified. Second, its practice: the practical application, evolution and modification of a persons ethical code of conduct.

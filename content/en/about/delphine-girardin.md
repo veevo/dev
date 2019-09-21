@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Delphine Girardin
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Quem são os Espíritos que assinam as mensagens da Codificação? Em Prolegômenos, da obra basilar O Livro dos Espíritos, encontram-se os nomes de São João Evangelista, Santo Agostinho, São Vicente de Paulo, São Luís, O Espírito de Verdade, Sócrates, Platão, Fénelon, Franklin, Swedenborg, entre outros.
 Em O Evangelho segundo o Espiritismo desfilam mais de uma dezena de nomes de Espíritos, mais conhecidos uns, quase desconhecidos outros, entre eles os de Delphine de Girardin, Hahnemann, Henri Heine, Lacordaire, Lamennais, Morlot, Pascal, Vianney.
 
@@ -42,4 +40,4 @@ Em O Evangelho segundo o Espiritismo, o Espírito de Delphine de Girardin assina
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

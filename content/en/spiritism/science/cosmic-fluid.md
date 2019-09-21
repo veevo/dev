@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: The Scientifict Aspect
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- science
+categories:
+- spiritism
 ---
 
 ## The Cosmic Fluid
@@ -15,6 +18,3 @@ Remember when we said that the minimum particle already found by science is stil
 
 Now, let's see where all this science comes from?
 
-
-<a href="/spiritism/science/matter" class="button">Previous: Matter</a>
-<a href="/spiritism/science/reference" class="button">Next: Reference</a>

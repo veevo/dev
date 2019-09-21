@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Maria de Nazaré
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Junto da cruz, o vulto agoniado de Maria produzia dolorosa e indelével impressão.
@@ -152,4 +150,4 @@ Esta não é uma biografia da vida de Maria, mas um relato de Humberto de Campos
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

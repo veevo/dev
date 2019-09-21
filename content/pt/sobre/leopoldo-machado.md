@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Leopoldo Machado
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Nasceu no Arraial de Cepa Forte, hoje Jandaíra, Bahia, em 30 de setembro de 1891.
@@ -56,11 +54,11 @@ Desencarnou na cidade de Nova Iguaçu (RJ), aos 22 de agosto de 1957.
 
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/leopoldomachado.html)  
 (Fonte: Personagens do Espiritismo, de Antônio de Souza Lucena e Paulo Alves Godoy − Edições FEESP)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

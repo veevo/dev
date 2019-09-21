@@ -1,9 +1,13 @@
 ---
 title: Spiritism - Frequently Asked Questions
-date: "2019-04-07"
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 image: "images/featured-post/post-4.jpg"
 type: "post"
+date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 ### 1- Is Spiritism part of the occult?

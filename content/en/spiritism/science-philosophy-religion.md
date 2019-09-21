@@ -2,6 +2,10 @@
 title: "Spiritsm: science, philosophy or religion?"
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 We are at the dawn of the Third Millennium and there are many persons who have as yet not come to know or understand [Jesus](/profile/jesus). At a time in which so much scientific knowledge is available, our hearts still thirst. Let's review what Spiritism and its triple aspect of Science, Philosophy and Religion means on the third millennium.

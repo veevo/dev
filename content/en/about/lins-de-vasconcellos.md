@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Lins de Vasconcellos
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Artur Lins de Vasconcellos Lopes foi expressiva figura do Espiritismo brasileiro.
@@ -43,4 +41,4 @@ A Federação Espírita do Paraná, que tantos benefícios recebeu de Lins de Va
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

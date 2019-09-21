@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Prayer
 title: From the Heart
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ##  Prayer From the Heart
@@ -36,8 +39,3 @@ A passage in the book, "Voice From the Mountain" (wrriten by Richard Simonetti) 
 [ExploreSpiritism: The meaning and power of prayer](//www.explorespiritism.com/religionrevelation.htm)
 
 
-
-## Other Topics
-<a href="/spiritism/science/" class="button">Science</a>
-<a href="/spiritism/philosophy/" class="button">Philosophy</a>
-<a href="/spiritism/religion/" class="button">Religion</a>

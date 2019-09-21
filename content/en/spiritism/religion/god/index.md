@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: What is God
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ##  What is God?
@@ -25,8 +28,3 @@ In the opening to his chapter on the “Profession of a Rationalized, Spiritist 
 ## Source
 [ExploreSpiritism: Spiritist teachings about God](//www.explorespiritism.com/religiongod_what%20is%20god.htm)
 
-
-## Other Topics
-<a href="/spiritism/science/" class="button">Science</a>
-<a href="/spiritism/philosophy/" class="button">Philosophy</a>
-<a href="/spiritism/religion/" class="button">Religion</a>

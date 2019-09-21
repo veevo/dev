@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Deolindo Amorim
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Deolindo Amorim nasceu no dia 23 de janeiro de 1908, embora em seus documentos conste 1906, na cidade de Baixa Grande, Estado da Bahia e desencarnou no Rio de Janeiro, em 24 de abril de 1989. Filho de Deolindo Antonio de Amorim e Maria Flora de Amorim casou-se com Delta dos Santos Amorim, com quem teve os filhos: Paulo Henrique Amorim (jornalista e correspondente no exterior), e Marília dos Santos Amorim.
 
 Nascido em família católica, converteu-se ao protestantismo, pela Igreja Presbiteriana da Bahia, nos anos de 1925/1926, tendo participado na grande campanha que os Crentes Evangélicos realizaram no Sul da Bahia em defesa da liberdade Religiosa, contra as emendas que na época se discutiam no Congresso Nacional. Chegou a ser selecionado para estudar em seminário evangélico para ser pastor, mas não chegou a fazer profissão de fé. Deixou o protestantismo ao ser admoestado por um pastor, quando lia um livro de literatura não-evangélica, com as seguintes palavras: Olhe, meu irmão, quem se dedica ao Ministério do Senhor, deve desprezar todas essas coisas.
@@ -34,10 +32,10 @@ Ainda, no VI Congresso Brasileiro de Jornalistas e Escritores Espíritas, realiz
 
 Não é sem razão que Deolindo Amorim é o escritor e jornalista espírita brasileiro mais difundido no exterior. Sua cultura e dinamismo, a maneira clara de colocar os conceitos da Doutrina para o público, aliados à sua humildade, respondem por seu sucesso nos quatro cantos do mundo e, certamente, também no Plano Espiritual.
  
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/deolindo.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

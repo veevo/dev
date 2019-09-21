@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Anália Franco
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Nascida na cidade de Resende, Estado do Rio de Janeiro, no dia 1º de fevereiro de 1856, e desencarnada em São Paulo, no dia 13 de janeiro de 1919.
 
 Seu nome de solteira era Anália Emília Franco. Após consorciar-se em matrimônio com Francisco Antônio Bastos, seu nome passou a ser Anália Franco Bastos, entretanto, é mais conhecida por Anália Franco.
@@ -48,10 +46,10 @@ Sua desencarnação ocorreu precisamente quando havia tomado a deliberação de 
 A obra de Anália Franco foi, incontestavelmente, uma das mais salientes e meritórias da história do Espiritismo.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/analiafranco.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

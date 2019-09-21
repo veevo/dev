@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Fluidic Therapy
 title: About
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 ## About Fluidic Therapy
@@ -21,7 +24,3 @@ You can read more about Fluidic Therapy by reading the section titled "Intro to 
 [Spiritist Center Activities - Fraternal Assistance](fraternal-assistance)  
 [Spiritist Center Activities - Community Outreach](community-outreach) 
 
-
-<a href="learn" class="button special">Learn Spiritism</a>
-<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
-<a href="children-youth-studies" class="button">Next: Children's and Youth Studies</a>

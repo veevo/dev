@@ -1,14 +1,10 @@
 ---
-layout: default-md
-section: Profile
 title: Andre Luis
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
-
-## Introduction
 
 André Luiz was a physician and researcher who lived in Rio de Janeiro, Brazil at the beginning of the XX century. After his discarnation, he spent over eight years in the lower zones, being finally rescued by Clarêncio, an assistant from "Nosso Lar", one of the spiritual colonies neighboring Earth. After a period of learning and intense work at Nosso Lar, André Luiz gradually overcame pride and selfishness, and eventually acquired citinzenship at Nosso Lar.
 
@@ -21,4 +17,4 @@ Whether spiritist or not, we should all strive to learn from the pages of his li
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

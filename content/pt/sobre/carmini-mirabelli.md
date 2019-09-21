@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Carmini Mirabelli
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Mirabelli nasceu em 02 de janeiro de 1889, em Botucatu, São Paulo. Famoso por sua mediunidade, era filho de imigrantes italianos. Muito jovem ainda, transferiu residência para a capital paulista e conseguiu emprego na Casa de Calçados Clark.
 
 Certo dia, tudo se transformou em sua vida. Era subgerente de uma das lojas Clark e, então, aconteceram os fenômenos. As caixas de sapato voavam das prateleiras, como se tivessem asas; estabeleceu-se no ambiente um verdadeiro pandemônio. Toda a imprensa de São Paulo se mobilizou, registrando com sensacionalismo os fatos, que nem o próprio Mirabelli conhecia. Uma verdadeira multidão se plantava nas imediações da loja. Foi chamado um sacerdote para o exorcismo, pois a imprensa tudo considerava como façanhas do demônio. Policiais foram convocados para guardar a loja, que permaneceu fechada por vários dias, sem encontrar a razão daquela brincadeira de mau gosto.
@@ -30,10 +28,10 @@ O Professor Eurico de Góes escreveu o livro Prodígios da Biopsíquica obtidos 
 Carmini Mirabelli desencarnou na capital de São Paulo, em 30 de abril de 1951.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/carmini.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

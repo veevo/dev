@@ -2,10 +2,14 @@
 title: Aura and Persispirit
 description: Are the aura and the perispirit the same? Learn about aura, perispirt and other important concepts about them
 date: 2019-02-01 19:00:00
+type: "post"
+image: "images/masonary-post/post-2.jpg"
+categories: 
+  - "articles"
 tags: 
-- article
 - aura
 - perispirit
+- spiritism
 ---
 
 Regarding this point, Barbosa, in the book, "Basic Spiritism" references a passage from the spirit, Andre Luiz, found in "Evolution in Two Worlds". Barbosa writes, "Andre Luiz teaches that all living beings are surrounded by an energetic halo that corresponds to their nature, and that, in human beings, this projection is modified and enriched by the factors of continuous thought, thereby constituting the human aura, the vital body, the ethereal double. Through [this projection], we exteriorize a reflection of ourselves, in accordance with what we think and do."

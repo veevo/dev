@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Amélie Gabrielle Boudet
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Madame Rivail (Sra. Allan Kardec) nasceu em Thiais, cidade do menor e mais populoso Departamento francês, o Sena, aos 2 do frimário, do ano IV, segundo o Calendário Republicano então vigente na França, e que corresponde a 23 de novembro de 1795. 
 
 Filha de Julien-Louis Boudet, proprietário e antigo tabelião, homem bem colocado na vida, e de Julie-Louise Seigneat de Lacombe, recebeu, na pia batismal, o nome de Amélie-Gabrielle Boudet. 
@@ -126,4 +124,4 @@ Em 26 de janeiro de 1883, o conceituado médium parisiense, Sr. E. Cordurié, re
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

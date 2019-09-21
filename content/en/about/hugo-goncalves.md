@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Hugo Gonçalves (O Paizinho)
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Hugo Gonçalves, o "Paizinho". Assim é conhecido e chamado, carinhosa-mente, em todo o norte do Paraná, o Missionário Hugo Gonçalves, discí-pulo de Cairbar Schutel e susten-táculo da Doutrina Espírita nesse Estado da Federação.
 
 Já próximo dos 94 anos de idade, continua o que começou desde criança, sob a sábia orientação do saudoso Bandeirante do Espiritismo. Não apenas prega o amor e a caridade, mas principalmente os pratica. Por isso, por irradiar tanta simpatia, todos os que o conhecem de há muito ou o vem a conhecer, consideram-no uma verdadeira graça de Deus.
@@ -120,4 +118,4 @@ Além do Coral, o Centro Espírita Allan Kardec conta com um grupo musical (aind
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

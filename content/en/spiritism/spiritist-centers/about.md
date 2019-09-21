@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritist Centers
 title: About Spiritist Centers
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 ## What are Spiritist Centers
@@ -35,6 +38,3 @@ Know the activities that occour in a Spiritist Center:
 [Fraternal Assistance](fraternal-assistance)  
 [Community Outreach](community-outreach)  
 
-
-<a href="/spiritism/centers" class="button special">Spiritist Centers</a>
-<a href="public-meetings" class="button">Next: Public Meetings</a>

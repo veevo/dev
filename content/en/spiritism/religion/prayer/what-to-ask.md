@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Prayer
 title: What to Ask
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ##  What Can or Should We Ask For?
@@ -33,13 +36,7 @@ Instead of asking for material things or quick solutions to our problems, our pr
 [Jesus' Example](of-jesus)  
 
 
-
 ## Source
 [ExploreSpiritism: The meaning and power of prayer](//www.explorespiritism.com/religionrevelation.htm)
 
 
-
-## Other Topics
-<a href="/spiritism/science/" class="button">Science</a>
-<a href="/spiritism/philosophy/" class="button">Philosophy</a>
-<a href="/spiritism/religion/" class="button">Religion</a>

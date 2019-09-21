@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Anita Borela de Oliveira
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
 Ana Borela de Oliveira, ou Anita Borela, como é mais conhecida, é um dos grandes vultos do Espiritismo da Zona da Mata de Minas Gerais, onde se destacou por sua bondade, pelo amor que dedicava aos seres humanos e pela imensa abnegação com que se entregou ao trabalho em prol dos desvalidos.
 Sua vida tem lances de heroísmo, sacrifício e renúncia, que evidenciam a grandeza do seu Espírito e a firmeza da sua fé espírita.Anita nasceu em Leopoldina (MG), em 5 de janeiro de 1909, filha de italianos. Em 1927, quando contava 18 anos, casou-se com Astolfo Olegário de Oliveira, passando a residir na vizinha cidade de Astolfo Dutra (MG), na época um pequeno distrito chamado Porto de Santo Antônio.
 
@@ -38,4 +35,4 @@ Em Londrina, Astolfo Dutra, Cataguases e Leopoldina, existem Casas espíritas qu
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

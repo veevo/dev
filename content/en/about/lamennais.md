@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Lamennais, Felicité R. de
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Nascido em uma família burguesa em 19 de junho de 1782, em Saint-Malo, na França, foi brilhante escritor, tornando-se uma figura influente e controversa na história da Igreja francesa. 
@@ -36,4 +34,4 @@ Na mensagem que assina em O Evangelho segundo o Espiritismo, cap. XI, item 15, e
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

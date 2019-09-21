@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Ivan Dutra
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Na pequena cidade mineira de Ubá (MG), que foi berço do grande compositor Ary Barroso, numa família humilde, nasceu Ivan Dutra, no dia 10 de novembro de 1934. Um dos oito filhos do casal Lindolfo e Odete Dutra, já em berço espírita para que, desde tenra idade, recebesse a devida orientação, porque seus pais se preocupavam com a formação espiritual dos seus filhos.
 
 Desde os primeiros tempos na escola primária, o menino mostrou uma capacidade para aprender e gravar na memória os ensinamentos, as datas, os números, destacando-se entre os alunos mais estudiosos. Decorava fatos e datas com precisão.
@@ -56,4 +54,4 @@ Desencarnou em 4 de janeiro de 2004, passando para a outra dimensão, ou seja, p
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

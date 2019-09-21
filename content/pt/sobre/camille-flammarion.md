@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Camille Flammarion
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
 Camille Flammarion nasceu na França e nela passou a sua infância, adentrando a adolescência com uma forte paixão pela Astronomia. Muito jovem, redigiu um trabalho de grande fôlego sobre o universo, que veio a cair nas mãos de um médico que viera tratá-lo, ocasião em que este, impressionando-se com o manuscrito, resolveu ajudar o talentoso jovem, no que resultou o seu ingresso no Observatório de Paris como aluno-astrônomo.
 
 Ainda jovem e estudante, Flammarion teve o seu primeiro contato com o Espiritismo, associando-se à Sociedade Parisiense de Estudos Espíritas, fundada e dirigida por Allan Kardec.
@@ -55,11 +52,11 @@ His works, in a general way, rotate around the spiritist postulates of the plura
 
 According to Gabriel Delanne, Camille Flammarion was a philosopher crafted in a wise person, possessing the art of the science and the science of the art. Flammarion–” poet of the Skies,” as he was denominated by Michelet—“became an exponent of Spiritism, because, he was always coherent had unshakable convictions, a true and innovative idealist.
 
-## Source
+## Referências
 Great Exponents of Spiritism - Spiritist Group of New York, Aug 2002 | TODO:: Add link to SGNY   
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/camilleflammarion.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

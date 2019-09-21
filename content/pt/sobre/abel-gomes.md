@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Abel Gomes
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Nascido no dia 30 de dezembro de 1877, na antiga cidade de Conceição do Turvo, hoje cidade de Salvador Firmino, e desencarnado em Astolfo Dutra, também no Estado de Minas Gerais, no dia 16 de agosto de 1934.
 
 Descendente de colonizadores portugueses, Abel Gomes se tornou um nome benquisto por todos e aureolado de grande respeito e admiração, projetando-se por todos os Estados brasileiros e mesmo ultrapassando fronteiras, para atingir países vizinhos. Apesar de ser um homem simples, pobre e doente, impôs-se ao preito dos seus contemporâneos, pois não apenas ensinava, mas dava sempre o exemplo. Como sociólogo e evangelizador ele soube viver os Evangelhos, propiciando o exemplo vivo daquele que, no dizer judicioso de Jesus Cristo, “toma do arado e não olha mais para trás.”
@@ -39,10 +37,10 @@ Abel Gomes foi um homem de letra, tendo deixado numerosas obras ocultas no anoni
 Foi um poeta de grandes recursos. O seu gênero era o lírico, deixando extravasar a sua alma em cânticos maravilhosos, abordando problemas humanos, patrióticos e religiosos, esses últimos com fundamento nos sadios ensinamentos da Codificação Kardequiana. No seu magistral poema “A Dor”, traduziu a sua conformação aos ditames do Alto, compenetrado que era das razões dos sofrimentos que o assolavam.
 Abel Gomes foi, portanto, um dos mais autênticos espíritas dos últimos tempos e o Espiritismo muito lhe deve pelo seu inestimável trabalho em favor da sua divulgação, principalmente no Estado de Minas Gerais.
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/abelgomes.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

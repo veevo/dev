@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: José Herculano Pires
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 José Herculano Pires nasceu na cidade de Avaré, no estado de São Paulo em 25 de setembro de 1914 e desencarnou em 09 de março de 1979. Filho do farmacêutico José Pires Correia e da pianista Bonina Amaral Simonetti Pires, fez seus primeiros estudos em Avaré, Itaí e Cerqueira César.
@@ -77,14 +75,14 @@ Perhaps his most important contribution was the relentless pursuit to demonstrat
 Professor José Herculano Pires wrote 81 books about philosophical studies and literary compositions inspired by Spiritism. His main concern was always to strive to demonstrate the consistency of the spiritist thought and to defend the value of the critical and investigative aspects of the work codified by Allan Kardec.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/joseherculanopires.html)
 
 ## Books
 TODO
 
-## See Also
+## Veja Também
 TODO
 
 
-<a href="/profiles" class="button">All profiles</a>
+

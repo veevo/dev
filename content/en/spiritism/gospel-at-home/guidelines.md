@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Spiritist Education
 title: Gospel At Home - Guidelines
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
 ---
 
-## Gospel At Home - Guidelines
 Here are some suggested guidelines passed from the Spiritual Mentors to us:
 
 
@@ -28,6 +26,3 @@ Especially on the day of the meeting, participants should seek to maintain physi
 Once the meeting begins, it should not be interrupted for phone calls or other activities.  If someone arrives late, they can be invited to join the group.
 
 
-
-<a href="/spiritism/education/gospel-at-home/benefits" class="button">Previous: Benefits</a>
-<a href="/spiritism/education/gospel-at-home/format" class="button">Next: Suggested Format</a>

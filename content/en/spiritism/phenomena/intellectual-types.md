@@ -1,13 +1,14 @@
 ---
-layout: default-md
-section: Mediumship
 title: Types Of Intelligent Phenomena
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- phenomena
+categories:
+- spiritism
 ---
 
-## Types Of Intelligent Phenomena
-
-(The Mediums’ Book Chapter 14, items 160-170
+Reference: The Mediums’ Book Chapter 14, items 160-170
 
 ### Seeing Mediums
 Seeing mediums are those who are endowed with the faculty of seeing spirits. There are some who possess this faculty in their normal state and when they are perfectly awake, and who preserve an exact recollection of what they have seen. Others only see spirits when they are in a somnambulic state, or one bordering on it. This faculty is rarely permanent ; it is almost always the effect of a momentary and passing crisis. We may place in the category of seeing mediums all persons endowed with second-sight. The possibility of seeing spirits in dreams, results, undoubtedly, from a sort of medianimity; but, properly speaking, it does not constitute the seeing medium.” We have already explained this variety of mediums. (See Chap. VI. Visual Manifestations.)
@@ -52,12 +53,6 @@ The most interesting and valuable characteristic of this mode of medianimity is 
 ## See Also
 TODO
 
-
 ## Suggested Reading
 TODO
 
-
-
-<a href="" class="button">Previous: </a>
-<a href="./" class="button special">Phenomena</a>
-<a href="" class="button">Next: </a>

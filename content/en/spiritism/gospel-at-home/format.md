@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Spiritist Education
-title: Gospel At Home - Suggested Procedure
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Gospel At Home - Suggested Format
+description: Understand some of the procedures and recommended behavior when practing the Gospel at Home
+date: "2019-01-01"
 ---
 
-## Gospel At Home - Suggested Procedure
 Here are some suggested procedures for a good **Gospel at Home** session:
 
 ### Step 1 - Start with a Complementary reading
@@ -26,13 +24,9 @@ They should also try to relate the lesson contained in the reading to the events
 End the meeting with a closing prayer, giving thanks for the blessings you have received, for this moment of study, and for the assistance of the good spirits.  Also, ask for assistance for friends and loved ones, as well as for others who are in need or who may be suffering.
 
 ### Step 6 - Drink the Magnetized water
-Distribute the magnetized water among participants.
+Distribute the [magnetized water](/en/vocabulary/magnetized-water) among participants.
 
 ### Step 7 - Keep in Peace
 After the meeting, maintain a vibration of inner peace, with elevated thoughts and conversations.  Discarnate spirits who may approach a home to participate in this kind of meeting, may also stay there for some time, observing each person's behavior.
 
 
-
-<a href="/spiritism/" class="button">Back to Spiritism</a>
-<a href="/spiritism/education" class="button">Back to Education</a>
-<a href="/spiritism/education/gospel-at-home/" class="button">Read Again</a>

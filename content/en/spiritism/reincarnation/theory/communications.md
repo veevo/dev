@@ -1,11 +1,13 @@
 ---
-layout: default-md
-section: Reincarnation Theory
-title: Communications
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Spiritual Communications
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
-## Spiritual Communications
 Since Allan Kardec first recognized the intelligence in the spirit phenomena and communications that he witnessed¹, and thereby began the process of serious study and analysis of such communications, there have been innumerable messages received from our brothers and sisters in the spirit realm that, in their detail and  universality of statements (referring to teachings, explanations, etc),  leave no doubt as to the survival of the soul beyond death of the material body, and furthermore, the existence of multiple incarnations.  
 
 The serious, mentoring spirits, who have communicated and continue to communicate with us, have proven both their existence and the degree of their evolution by the kind of  information they have revealed and by their serious, intellectual, and moral character, shown consistently and with the utmost integrity throughout all their communications.
@@ -27,7 +29,6 @@ Often times, these spirits tell us about their own personal experiences, their d
 [ExploreSpiritism.com: Reincarnation - A proven Theory](http://file://www.explorespiritism.com/Philosophy_Reincarnation_Proven%20Theory_Intro.htm)
 
 
-
 ## See Also
 TODO
 
@@ -35,9 +36,3 @@ TODO
 ## Suggested Reading
 TODO
 
-
-
-
-<a href="philosophy" class="button">Previous: Philosophic Argument</a>
-<a href="../" class="button special">Reincarnation</a>
-<a href="science" class="button">Next: Scientific Investigation</a>

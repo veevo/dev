@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Franz Anton Mesmer
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Nasceu em 23 de maio de 1734, em Iznang, aldeia próxima do lago de Constança, filho do casal Franciscus Antonius Mesmer e Maria Ursula Michel, membros de uma grande família católica da Suábia, região que hoje pertence à Alemanha. Mesmer desencarnou em  5 de março de 1815. 
 
 Em 1743, foi levado pelos pais para o monastério Reichenau, em Constança, onde durante seis anos estudou línguas, literatura clássica e música com os monges. Provido de recursos, dedicou-se a longos estudos científicos, chegando a dominar os conhecimentos de seu tempo, época de acentuado orgulho intelectual e ceticismo. Era um trabalhador incansável, calmo, paciente e ainda um exímio músico. Freqüentava constantemente círculos ocultistas, locais onde obteve conhecimentos de alquimia. Estudou com profundidade a vida e a obra de Paracelso (1493-1541), que entendia que havia correspondência entre o mundo exterior − o macrocosmo − e as diferentes partes do organismo − o microcosmo. 
@@ -40,4 +38,4 @@ Um grupo de médicos da Academia de Berlim redescobre o seu paradeiro, mas, já 
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

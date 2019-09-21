@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Frederico Figner
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Israelita de nascimento, viveu no lar paterno os preconceitos de sua raça contra o Carpinteiro de Nazaré. Na verdade, porém, Figner, como muitos outros judeus, não tinha religião alguma.
 
 Foi no Brasil, e quando já negociante próspero, com seu estabelecimento comercial e industrial no Rio de Janeiro e uma sucursal em São Paulo, que Figner foi chamado a conhecer a verdade. Nos últimos anos do século passado ou nos primeiros deste século, Figner travou relações de amizade com Pedro Sayão, filho do saudoso doutrinador Antônio Luís Sayão, pai da célebre cantora Bidu Sayão. Pedro Sayão, durante cerca de dois anos, frequentava sua loja e palestrava sobre Espiritismo e Cristianismo, sem que Figner se impressionasse muito pelo assunto; porém, numa de suas visitas ao seu estabelecimento de São Paulo, Figner ouviu a dolorosa história de um empregado seu, cuja esposa se achava gravemente enferma e necessitada de melindrosa intervenção cirúrgica. Ao regressar ao Rio, Figner pediu a Pedro Sayão lhe obtivesse receita para cura da enferma de São Paulo. Veio a receita e a cura da doente, sem intervenção alguma dos médicos. Foi esse fato que inclinou Figner a favor do Espiritismo.
@@ -58,4 +56,4 @@ A Federação Espírita Brasileira, após a morte de Figner, publicou-lhe alguns
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

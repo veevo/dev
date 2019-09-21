@@ -2,6 +2,10 @@
 title: How to Practice
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 Spiritism can and should be studied, analyzed and put into practice in all fundamental aspects of life, such as: science, philosophy, religion, ethics, morality, education and social life.

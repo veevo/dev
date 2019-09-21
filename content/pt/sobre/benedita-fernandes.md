@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Benedita Fernandes
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Benedita Fernandes nasceu aos 27 de junho de 1883, em Campos Novos de Cunha (SP), sendo filha de Maria Josefa Nascimento, que era viúva. Portadora de atroz obsessão, autêntica subjugação, Benedita perdeu o contato com a família e perambulava sem rumo. Certa feita, causava tantos incômodos à população que foi recolhida à Cadeia Pública da cidade de Penápolis. 
 
 Àquela época não existiam hospitais ou atendimentos para tal fim. O carcereiro Padial e depois o Sr. Marcheze deram assistência à mulher doente, principalmente com passes, e Benedita, premiada pela necessidade, recebeu o chamamento libertador; uma feita depois de uma crise muito forte, ouvira: "Benedita, se promete consagrar-te, inteiramente, aos enfermos e pobres, sairás curada daqui".
@@ -23,10 +21,10 @@ Mantinha correspondência com Cairbar Schutel, que sempre publicava notícias so
 Sabedor que Divaldo Franco estaria num Culto, na residência do casal Irene e Aristides Silva, no Flamengo, para lá então se dirigiu com a esposa Matilde e com os confrades Ana e Geraldo Guimarães. Divaldo Franco, na sua discrição, naquele dia, tomando conhecimento do caso do doente, disse-lhe de chofre, para espanto de todos que ali se encontravam:"− É, Ricieri, você, como todos nós, vai desencarnar, mas há aqui um venerando Espírito a me dizer que irá recebê-lo e auxiliá-lo no trânsito pós-morte. Diz-me ela também, que você a conhece bem, desde os tempos das sobras... Está ela a agradecer, a dizer obrigada pelas sobras!" "− Sobras? Ah, então é D. Benedita Fernandes! Pergunte-lhe se eu não poderia ter uma moratória. Preciso de um tempo para terminar a obra dos esgotos no Lar de crianças da minha cidade. Divaldo, será que posso pedir além da moratória, que minhas dores sejam minimizadas?" Divaldo ficou a escutar Benedita Fernandes. "− Ela me diz que sim, que a moratória ser-lhe-á concedida. Mais tarde, você sentirá uma dor forte no coração e no pulmão. Aí será chegada a hora da viagem..." −completa-lhe Divaldo. Depois, o médium oferece ao doente a terapêutica do passe renovador e suave perfume balsâmico invade o ambiente. Ricieri e a esposa Matilde foram para casa; para espanto dos médicos, a dor havia passado. Um ano após esses acontecimentos, o bondoso tripeiro já havia terminado os esgotos do abrigo, quando sentiu uma fortíssima e aguda dor no peito, avisou a mulher, deitou-se e, tranquilamente, desencarnou, auxiliado, certamente, por esse Espírito dedicado que se chama Benedita Fernandes. A psicografia de Francisco Xavier registra o trabalho de Benedita Fernandes, que é intitulada Num Domingo de Calor, assinada por Hilário Silva, e publicada pelo Anuário Espírita 1964 (IDE).
 Nos anos 70 e 80, Divaldo Pereira Franco psicografou várias mensagens de autoria de Benedita Fernandes. Estas estão incluídas em livros do mesmo médium. Por ocasião do cinquentenário de suas obras, lançamos um livro sobre Benedita – Dama da Caridade, inicialmente editado pela então União Municipal Espírita de Araçatuba, na qual reunimos informações sobre a vida e as ações desta notável obreira, bem como as mensagens espirituais dela ou alusivas a ela. 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/beneditafernandes.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

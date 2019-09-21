@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: About
 title: Reincarnation
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Information about Reincarnation

@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Joanna de Ângelis
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-# Biography
  Um Espírito que irradia ternura e sabedoria, despertando-nos para a vivência do amor na sua mais elevada expressão, mesmo que, para vivê-lo, seja-nos imposta grande soma de sacrifícios. Trata-se do Espírito que se faz conhecido pelo nome Joanna de Ângelis e que, nas estradas dos séculos, vamos encontrá-la na mansa figura de Joana de Cusa, numa discípula de Francisco de Assis, na grandiosa Sóror Juana Inés de La Cruz e na intimorata Joana Angélica de Jesus
 Conheça agora cada um destes personagens que marcaram a história com o seu exemplo de humildade e heroísmo.
 

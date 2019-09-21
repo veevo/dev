@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Irmãs Fox
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Em março de 1848 aconteceram, no pequeno povoado de Hydesville, nos Estados Unidos da América do Norte, os primeiros fenômenos espíritas dos tempos modernos, o que representou o prelúdio do advento da Doutrina Espírita, consumada com a Codificação Kardequiana.
 
 Em 11 de Dezembro de 1847, a família Fox instalou-se em modesta casa de Hydesville, Estado de Nova York, distante cerca de 30 km da cidade de Rochester. O grupo compunha-se do chefe da família,  John Fox, da esposa Margareth Fox e duas filhas; Kate e Margareth, então adolescentes. O casal possuía outros filhos. Entre estes, convém destacar Leah, que morava em Rochester, onde lecionava música. Leah escreveu um livro, The Missing Link, em 1885, no qual faz referência às faculdades paranormais de seus parentes anteriores.
@@ -32,4 +30,4 @@ Ao transferir residência para Rochester, a família de John Fox deparou com o p
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

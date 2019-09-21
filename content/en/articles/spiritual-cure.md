@@ -2,8 +2,12 @@
 title: Is it possible to cure by using prayer?
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-02-01 19:00:00
+image: "images/masonary-post/post-2.jpg"
+categories: 
+  - "articles"
 tags: 
 - question
+- cure
 ---
 
 A common question, and often declared as [miracle](/about/miracles) is: **Is it possible to cure someone just by using the prayer?**

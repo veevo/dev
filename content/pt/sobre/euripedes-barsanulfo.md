@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Eurípedes Barsanulfo
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Nascido em 1° de maio de 1880, na pequena cidade de Sacramento, Estado de Minas Gerais, e desencarnado na mesma cidade, aos 38 anos de idade, em 1° de novembro de 1918.
 
 Logo cedo manifestou-se nele profunda inteligência e senso de responsabilidade, acervo conquistado naturalmente nas experiências de vidas pretéritas.
@@ -58,10 +56,10 @@ Manifestada em nosso continente, veio encontrá-lo à cabeceira de seus enfermos
 Sacramento em peso, em verdadeira romaria, acompanhou-lhe o corpo até a sepultura, sentindo que ele ressurgia para uma vida mais elevada e mais sublime
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/euripedesbarsanulfo.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

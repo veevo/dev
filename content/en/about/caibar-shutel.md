@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Cairbar Schutel
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 No dia 22 de setembro de 1868, filho do casal Anthero de Souza Schutel e Rita Tavares Schutel, nasceu Cairbar de Souza Schutel, no Rio de Janeiro, então sede da Corte Imperial do Brasil, onde praticou em diversas farmácias e, aos 17 anos, foi para o Estado de São Paulo, trabalhar como farmacêutico em Piracicaba, Araraquara e depois em Matão, cidade em que viveu durante 42 anos.
 
 Possuidor de brilhante cultura, de grande prestígio social e sobretudo de notória autoridade moral, acabou sendo escolhido para o honroso e histórico cargo de primeiro Prefeito da cidade de Matão, cargo que ocupou por duas vezes; a primeira de 28 de março a 07 de outubro de 1899, voltando a exercê-lo de 18 de agosto a 15 de outubro de 1900, conforme consta das atas e dos registros históricos da municipalidade matonense.
@@ -39,4 +37,4 @@ Dizem algumas comunicações mediúnicas que o Espírito Cairbar Schutel está, 
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Ernesto Bozzano
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Ernesto Bozzano nasceu em Gênova, a 9 de janeiro de 1862, quarto filho de um total de cinco irmãos de uma família abastada. Em 1948, escreveu Bozzano ao médico Dr. Humberto Torres: havendo nascido numa família espírita tive, à minha disposição, os numerosos livros que meu pai adquiriu e, além disso, durante toda a minha vida, a ventura de presenciar vários dos interessantes fatos neles relatados.
 
 Sua primeira abordagem no estudo do Espiritismo foi a da negação do fenômeno. O estudo pormenorizado levou-o a tornar-se mais tarde um de seus mais importantes escritores. Era um pensador positivista. Suas primeiras incursões nos estudos do fenômeno espírita, através dos trabalhos de Alexandre Aksakov em Animismo e Espiritismo e Os Fantasmas da Sala de Estar (Phantasms of the Living), de Gurnes Myers, converteram-no definitivamente em um pesquisador psíquico.
@@ -33,4 +31,4 @@ O estudo dos trabalhos de Bozzano permite ao espírita acostumar-se à análise 
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

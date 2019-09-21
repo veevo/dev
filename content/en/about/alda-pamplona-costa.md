@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Alda Pamplona da Costa
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Nascida em 2 de junho de 1916, em Angra do Heroísmo, capital da Ilha Terceira do arquipélago dos Açores, Portugal, era filha de Ângelo Machado Teixeira e Marta Pamplona Teixeira. Seu avô materno, Vasco Ennes Pamplona Corte Real, pertencia a uma filha nobre e tradicional da Ilha Terceira, mas ao emigrar para os Estados Unidos tornou-se um líder operário comunista que lutava por uma sociedade igualitária. Talvez tenha vindo daí o pendor de D. Alda para a assistência aos menos favorecidos.
 
 Em 1939, casou-se em Angra com Manoel Gonçalves da Costa e logo depois ambos decidiram emigrar para o Brasil, em busca de melhores condições sociais para seus futuros filhos. No Rio de Janeiro, onde moraram inicialmente, nasceram os filhos Ronaldo e Alfredo. Em 1952, após residir em diversos lugares, o casal radicou-se em Londrina, trazendo agora mais um herdeiro, a menina Alda.
@@ -25,4 +23,4 @@ D. Alda, como todos a chamavam, faleceu perto de completar 90 anos de idade. Seu
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

@@ -1,14 +1,10 @@
 ---
-layout: default-md
-section: Profile
 title: Andrew Jackson Davis
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
-
-# Biography
 
 Andrew Jackson Davis is often referred to as the John the Baptist of Modern Spiritualism; for it was he who firmly set into place and definitively proclaimed the coming revelation of Spirit communion.
 
@@ -52,4 +48,4 @@ By Rev. Simeon
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

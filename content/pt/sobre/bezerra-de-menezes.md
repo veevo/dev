@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Bezerra de Menezes
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
 Nascido na antiga Freguesia do Riacho do Sangue, município de Jaguaretama, no Ceará, aos 29 dias do mês de agosto de 1831, e desencarnado no Rio de Janeiro, a 11 de abril de 1900.
 
 Adolfo Bezerra de Menezes Cavalcanti, no ano de 1838, entrou para a escola pública da Vila do Frade, onde, em dez meses apenas, preparou-se suficientemente até atingir o saber do mestre que lhe dirigia a primeira fase de educação. Bem cedo revelou sua fulgurante inteligência, pois, aos onze anos de idade, iniciava o curso de Humanidades e, aos treze, conhecia tão bem o latim, que ministrava a seus companheiros, aulas dessa matéria, substituindo o professor da classe em seus impedimentos.
@@ -159,11 +156,11 @@ Bezerra was very reluctant to accept that thorny responsibility, and the followi
 We will help you in another way: Bringing you, whenever you need, new pupils of Mathematics…
 
 
-## Source
+## Referências
 English: Spiritist Group of New York - Aug 2002 Great Mediums and Spiritual Guides - Translated by Jussara Korngold - TODO:: Add link to SGNY  
 Portuguese: [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/bezerrademenezes.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

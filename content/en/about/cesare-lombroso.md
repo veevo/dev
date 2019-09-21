@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Cesare Lombroso
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Nasceu em 6 de novembro de 1835, em Verona, na Itália. Desencarnou em 19 de outubro de 1909, em Turim, na Itália.
 
 Cientista universalmente conhecido pelos importantes trabalhos realizados no campo jurídico, desde muito cedo, dedicou-se às letras.
@@ -63,4 +61,4 @@ A principal ideia de Lombroso foi parcialmente inspirada pelos estudos genético
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

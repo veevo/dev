@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: Evolution
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Reincarnation is Evolution
@@ -25,11 +28,4 @@ TODO
 
 ## Suggested Reading
 TODO
-
-
-
-
-<a href="about" class="button">Previous: Introduction</a>
-<a href="./" class="button special">Reincarnation</a>
-<a href="progress" class="button">Next: Progress</a>
 

@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Yvonne A. Pereira
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Nascida em Rio das Flores (RJ), Yvonne completaria 78 anos de idade no dia 24 de dezembro de 1984, ano em que faleceu. Sua desencarnação ocorreu em março.
@@ -93,12 +91,12 @@ Em Juiz de Fora (MG), foi secretária, bibliotecária e vice-presidente da Casa 
 Em Barra do Piraí (RJ), participou ativamente do Grêmio Espírita de Beneficência, como médium receitista e expositora de O Livro dos Espíritos e de O Evangelho segundo o Espiritismo. Na mesma época, ensinou moral cristã às crianças no Colégio Ismael e integrou o grupo de senhoras que cuidavam da área de assistência social doGrêmio Espírita de Beneficência. 
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/yvonne.html)
 
 
-## See Also
+## Veja Também
 TODO
 
 
-<a href="/profiles" class="button">All profiles</a>
+

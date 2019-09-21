@@ -1,7 +1,11 @@
 ---
 title: About Allan Kardec
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date: '2018-11-03 19:00:00 -07:00'
+date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 ## Who was Allan Kardec 

@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Eurípedes Barsanulfo
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Nascido em 1° de maio de 1880, na pequena cidade de Sacramento, Estado de Minas Gerais, e desencarnado na mesma cidade, aos 38 anos de idade, em 1° de novembro de 1918.
 
 Logo cedo manifestou-se nele profunda inteligência e senso de responsabilidade, acervo conquistado naturalmente nas experiências de vidas pretéritas.
@@ -64,4 +62,4 @@ Sacramento em peso, em verdadeira romaria, acompanhou-lhe o corpo até a sepultu
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

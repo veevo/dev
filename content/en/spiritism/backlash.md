@@ -2,7 +2,11 @@
 title: Backlash to the Codification
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date: "2018-11-03 19:00:00 -07:00"
+date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 Even though the Spiritist Codification made Rivail a house hold name in much of the continent, the UK and later in America and Brazil, for him personally putting the revelations of the Spirit Teachers to paper cost him dearly. The Spirit teachers had told Rivail that he would find harsh criticism and resistance among the Church, among other intellectuals and even among the growing Spiritist organizations that were forming as a result of the Codification. Even physically Rivail would pay a hard price for taking on this immense task. Unfortunately that was exactly how things progressed.

@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Carlos Imbassahy
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Nascido em 9 de setembro de 1884, doutor Carlos Imbassahy enfrentou galhardamente a passagem do século vivendo até 1969, quando desencarnou antes de completar seus 85 anos de existência bem vivida.
 
 Em 1901 era um jovem advogado que militava nos meios forenses, tendo sido nomeado por concurso público Promotor Público na comarca de Andaraí, uma cidade interiorana do seu estado natal, a Bahia.
@@ -79,4 +77,4 @@ Finalmente, aos 84 anos, foi acometido de uma leucose aguda que, em pouco mais d
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

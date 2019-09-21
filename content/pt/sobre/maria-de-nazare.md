@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Maria de Nazaré
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Junto da cruz, o vulto agoniado de Maria produzia dolorosa e indelével impressão.
@@ -146,10 +144,10 @@ Por essa razão, irmãos meus, quando ouvirdes o cântico nos templos das divers
 Esta não é uma biografia da vida de Maria, mas um relato de Humberto de Campos feito sobre os momentos culminantes de sua existência, de que a Bíblia não traz nenhuma informação.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/mariadenazare.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: The Scientifict Aspect
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- science
+categories:
+- spiritism
 ---
 
 ## Introduction
@@ -14,8 +17,6 @@ How can't science still not explain mysteries in Egypt and other ancient civiliz
 
 In order to respond those and other questions, let us introduce [the basic elements of the universe](basic-elements).
 
-
-
 ## On this Section
 [The Basic Elements of the Universe](basic-elements)  
 [The Universal Matter](Matter)  
@@ -23,10 +24,4 @@ In order to respond those and other questions, let us introduce [the basic eleme
 [Cosmic Fluid](cosmic-fluid)  
 [Science, Religion or both?](and-religion)  
 
-
-
-## Other Topics
-<a href="../science/" class="button">Science</a>
-<a href="../philosophy/" class="button">Philosophy</a>
-<a href="../religion/" class="button">Religion</a>
 

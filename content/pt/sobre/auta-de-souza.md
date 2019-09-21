@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Auta de Souza
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
 Nasceu em Macaíba, então Arraial, depois cidade do Rio Grande do Norte, a 12 de setembro de 1876. Era magrinha, calada, de pele clara, um moreno doce à vista como veludo ao tato. Era filha de Eloi Castriciano de Souza, desencarnado aos 38 anos de idade, e de Dona Henriqueta Rodrigues de Souza, desencarnada aos 27 anos, ambos tuberculosos. Antes de ela completar 3 anos, ficou órfã de mãe e, aos 4 anos, de pai. A sua existência foi assinalada por sofrimentos acerbos. Muito cedo conheceu a orfandade e ainda menina, aos dez anos, assistiu à morte de seu querido irmão Irineu Leão Rodrigues de Souza, vitimado pelo fogo produzido pela explosão de um lampião de querosene, na noite de 16 de fevereiro de 1887.  
 
 Auta de Souza e seus quatro irmãos foram criados em Recife, no velho sobrado do Arraial, na grande chácara, pela avó materna, Dona Silvina Maria da Conceição de Paula Rodrigues, vulgarmente chamada Dindinha, e seu esposo Francisco de Paula Rodrigues, que desencarnou quando Auta tinha 6 anos.
@@ -146,11 +143,11 @@ Will be your prize in the Divine Mansion.
 Auta de Souza
 Translated by the Group Mensageiros – Brazil
 
-## Source
+## Referências
 English: TODO:: Add link to SGNY
 Portuguese: [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/autadesouza.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

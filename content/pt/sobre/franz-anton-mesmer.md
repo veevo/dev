@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Franz Anton Mesmer
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Nasceu em 23 de maio de 1734, em Iznang, aldeia próxima do lago de Constança, filho do casal Franciscus Antonius Mesmer e Maria Ursula Michel, membros de uma grande família católica da Suábia, região que hoje pertence à Alemanha. Mesmer desencarnou em  5 de março de 1815. 
 
 Em 1743, foi levado pelos pais para o monastério Reichenau, em Constança, onde durante seis anos estudou línguas, literatura clássica e música com os monges. Provido de recursos, dedicou-se a longos estudos científicos, chegando a dominar os conhecimentos de seu tempo, época de acentuado orgulho intelectual e ceticismo. Era um trabalhador incansável, calmo, paciente e ainda um exímio músico. Freqüentava constantemente círculos ocultistas, locais onde obteve conhecimentos de alquimia. Estudou com profundidade a vida e a obra de Paracelso (1493-1541), que entendia que havia correspondência entre o mundo exterior − o macrocosmo − e as diferentes partes do organismo − o microcosmo. 
@@ -34,10 +32,10 @@ Mesmer envia uma carta a Benjamin Franklin denunciando os equívocos da comissã
 Um grupo de médicos da Academia de Berlim redescobre o seu paradeiro, mas, já com setenta e cinco anos, ele não aceita acompanhá-los. Em 1812, aos 78 anos, a Academia de Ciências de Berlim convida-o para prestar esclarecimentos, pois pretendia investigar a fundo o magnetismo. Era tarde; ele recusou o convite. Também a Igreja condenava o magnetismo, e, por tabela, a ele. Em 1813, um teólogo francês escrevia que "o sonambulismo e o magnetismo eram sobrenaturais e diabólicos, anticristãos, anticatólicos e antimorais. Tudo provinha da ação de fluidos de origem infernal". A Academia encarrega o Prof. Wolfart de entrevistá-lo. O depoimento desse professor é um dos mais belos a respeito do caridoso médico: Encontrei-o dedicando-se ao hospital por ele mesmo escolhido. Acrescente-se a isso um tesouro de conhecimentos reais em todos os ramos da Ciência, tais como dificilmente acumula um sábio, uma bondade imensa de coração que se revela em todo o seu ser, em suas palavras e ações, e uma força maravilhosa de sugestão sobre os enfermos. No início de 1814, ele regressou para Iznang, sua terra natal, onde permaneceria os seus últimos dias até falecer em 5 de março de 1815, aos 81 anos de idade.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/franzanton.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

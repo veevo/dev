@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Mediumship
 title: Intellectual Phenomena
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- phenomena
+categories:
+- spiritism
 ---
 
 ## Intellectual Phenomena
@@ -27,19 +30,13 @@ The level of awareness of the medium before, during and after this kind of commu
 
 Another important point to note is that no matter the type of intelligent communication phenomena, the medium is not a direct mouth piece for the spirit, instead the medium is an interpreter for the Spirit. Which means the medium expresses what is being communicated from the spirit, based in his/her own level of understanding the message being filtered through his/her own brain. This is why more evolved Spirits tend to seek out more ethically/intellectually evolved mediums so that what the medium understands is most closely exact to what the Spirit is communicating.
 
-
 ## Source
 [Categories Of Communication & Their Workings](http://www.sgny.org/spiritism-guide/mediumship/communication-workings/)
 
 ## See Also
 TODO
 
-
 ## Suggested Reading
 TODO
 
 
-
-<a href="" class="button">Previous: </a>
-<a href="./" class="button special">Phenomena</a>
-<a href="" class="button">Next: </a>

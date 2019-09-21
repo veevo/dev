@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: The Material Life
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Material Death and the End of the Reincarnation
@@ -29,9 +32,3 @@ TODO
 ## Suggested Reading
 TODO
 
-
-
-
-<a href="adult-life" class="button">Previous: The adult Life</a>
-<a href="./" class="button special">Reincarnation</a>
-<a href="separation-spirit-body" class="button">Next: Separation of Spirit and Body</a>

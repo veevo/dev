@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Victor Hugo
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Victor Hugo muito se agigantou pela inteligência; poeta genial, escritor primoroso e fecundo. Sustentou, sem esmorecimentos, tremendas lutas em prol da liberdade, enfrentando a ira dos reacionários de todos os tempos, desses que não vacilam em sacrificar as coisas mais sagradas e nobres para que seus interesses fiquem incólumes.
@@ -54,4 +52,4 @@ Em 22 de maio, de 1885, desencarnou o Espírito de Victor Hugo. Eis as suas últ
 TODO
 
 
-<a href="/profiles" class="button">All profiles</a>
+

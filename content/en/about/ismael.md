@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Ismael
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-# Biography
 TODO:
 
 ### Ismael and Chico Xavier
@@ -22,4 +19,4 @@ TODO:
 ## See Also
 TODO:
 
-<a href="/profiles" class="button">All profiles</a>
+

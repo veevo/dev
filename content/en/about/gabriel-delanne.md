@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Gabriel Delanne
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-# Biography
  Virada de século, virada de milênio, ótima oportunidade para refletir e analisar as diversas contribuições feitas no século XX ao Espiritismo e as chamadas ciências do Espírito. Gabriel Delanne (juntamente a Léon Denis) marca a transição do Espiritismo do século XIX, influenciado pela presença de Kardec, para o Espiritismo do início do século XX, buscando sua afirmação científica, tentando empolgar os homens de ciência da época. Nascido em Paris, no dia 23 de março de 1857, no mesmo ano da publicação de O Livro dos Espíritos, Delanne foi (juntamente com Léon Denis) o discípulo mais próximo de Allan Kardec. 
 Além disso, foi provavelmente a primeira grande personagem espírita nascida em uma família espírita. Apenas para recordar, Allan Kardec tomou conhecimento dos fenômenos espíritas aos 50 anos e Léon Denis era adolescente quando ouviu falar pela primeira vez do Espiritismo. Gabriel Delanne nasceu em família espírita. Seu pai, Alexandre Delanne, acompanhou de perto os trabalhos de Allan Kardec, tendo formado um pequeno grupo familiar de estudos espíritas e como médium escrevente sua esposa (e mãe de Gabriel) Alexandrine Delanne.
 Portanto, desde criança Gabriel Delanne estava familiarizado com o vocabulário espiritista e assistiu, desde muito pequeno, a numerosas sessões espíritas. Delanne, inclusive, travou contato com o mestre Kardec na sua infância – Kardec faleceu quando Delanne tinha 12 anos de idade.
@@ -72,4 +69,4 @@ TODO:: Add link to SGNY
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

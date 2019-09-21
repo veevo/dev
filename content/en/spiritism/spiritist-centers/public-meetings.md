@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritist Centers
 title: Public Meetings
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 ## About Public Meetings
@@ -19,7 +22,3 @@ These meetings are an excellent way for those who are new to Spiritism to learn 
 [Spiritist Center Activities - Mediumship Sessions](mediumship-sessions)  
 [Spiritist Center Activities - Fraternal Assistance](fraternal-assistance)  
 [Spiritist Center Activities - Community Outreach](community-outreach) 
-
-<a href="learn" class="button special">Learn Spiritism</a>
-<a href="/spiritism/centers" class="button">Back to Spiritist Centers</a>
-<a href="fluidic-therapy" class="button">Next: Fluidic Therapy</a>

@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Maria Dolores
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Maria Dolores veio ao mundo como Maria de Carvalho Leite, na cidade sertaneja de Bonfim de Feira (BA), no dia 10 de setembro de 1900, filha de Hermenegildo Leite, escrivão da Prefeitura, e da doméstica Balbina de Carvalho Leite. Em Bonfim passou a infância. Do casal Hermenegildo e Balbina nasceram, com Dolores, três homens e duas mulheres. Os  biógrafos, sem exceção, desconheceram o fato de que a grande poetisa baiana possuía dotes mediúnicos.
@@ -57,10 +55,10 @@ Maria Dolores, a poetisa que ressurgiu pelas mãos abnegadas de Francisco Cândi
 Não tardou, porém, e a poetisa reaparece com seu iniludível estilo depois de uma existência inteira consagrada ao próximo, compondo, sobretudo para os leitores espíritas, os mais belos poemas de encorajamento e reconhecimento da excelsitude de Jesus.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/mariadolores.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Zilda Gama
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Zilda Gama foi uma das mais celebradas médiuns do Brasil. Nasceu em 11 de março de 1878, em Três Ilhas, em Juiz de Fora (MG)e desencarnou em 10 de janeiro de 1969, no Rio de Janeiro. Era a segunda filha dos 11 filhos de Augusto Cristina da Gama, escrivão de paz, e Elisa Emílio Klörs da Gama, professora estadual.
@@ -41,4 +39,4 @@ Como se sabe, em 1912, o médium Francisco Cândido Xavier estava encarnado e vi
 TODO
 
 
-<a href="/profiles" class="button">All profiles</a>
+

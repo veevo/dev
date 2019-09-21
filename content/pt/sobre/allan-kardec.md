@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Allan Kardec
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
  Nascido em Lyon, França, no dia 3 de outubro de 1804 e desencarnado em Paris, no dia 31 de março de 1869.
 Muito se tem escrito sobre a personalidade de Allan Kardec, existindo mesmo várias e extensas biografias sobre a sua obra missionária.
 É sobejamente conhecida a sua vida anteriormente ao dia 18 de abril de 1857, quando publicou a magistral obra O Livro dos Espíritos, que deu início ao processo de codificação do Espiritismo.
@@ -84,11 +81,11 @@ The man no longer exists, we said it; however, Allan Kardec is immortal and his 
 
 An extraordinary individuality set up the task. He was the guide and the secure port for everyone. On Earth, the work will outlive the worker. The believers won’t congregate around Allan Kardec; but rather, they will congregate around Spiritism, just as he had structured it, and with his advice and his influence, we will move forward, with firm steps, to the blissful phase promised to a regenerated Humanity.
 
-## Source
+## Referências
 Enlish: Allan Kardec (Excerpted From Posthumous Works) | TODO:: Add link to SGNY  
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/allankardec.html)
 
-## Bibliography
+## Bibliografia
 ### The Spiritist Codification
 [The Spirits' Book]()  
 [The Mediums Book]()  
@@ -101,7 +98,7 @@ Enlish: Allan Kardec (Excerpted From Posthumous Works) | TODO:: Add link to SGNY
 [The Spiritism on its simplest expression]()  
 [What is Spiritism?]()  
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

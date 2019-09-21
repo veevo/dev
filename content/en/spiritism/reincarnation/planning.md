@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: Planning
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Introduction
@@ -16,13 +19,11 @@ Spirits are always assisted in this planning by mentors of a higher level, who a
 
 There are some spirits who know nothing of their coming incarnation, either as a mere result of their stage of evolution or, in some cases, in an imposed state that serves as a form of admonition and correction.  Some sense it coming, just as we sense the approach of our death.  Others even know significant details about the timing of their return to the material world.  Some incarnations are imposed, such as when the spirit's consciousness is still too un-advanced to choose wisely or when the spirit's moral state or rebelliousness makes it necessary.  Those that are not imposed are instead planned by the spirit, with help, as needed, from spirit mentors.
 	     	
-
 Often times, the spirit to reincarnate will meet with its parents-to-be, both before and during the pregnancy period, while the latter are liberated, temporarily, as their material bodies are asleep.  Together, and with the aid of their spiritual mentors, they discuss their coming union.  Likewise, during the pregnancy, the spirit may accompany its parents-to-be as they go about their daily lives, unaware of the presence of this spirit, but even so, undergoing the process of a fluidic attachment.
 
 Spirits who are aware of their coming incarnation often experience a significant degree of anxiety that stems from the uncertainty about the outcome of the trials they will undergo.  For many, this anxiety is heightened by their awareness of the significance of this opportunity, one which they may have been awaiting for a long period of time¹.   They are, however, always counseled by their spiritual mentors that will offer them guidance, both at this stage and throughout the actual incarnation.  
 
 ¹ The population of discarnate spirits is much greater than that of incarnate spirits, whereby those who are resentful of their mistakes and eager to make amends must wait "in a long line" behind others also awaiting their turn. 
-
 
 
 ## Source
@@ -32,12 +33,7 @@ Spirits who are aware of their coming incarnation often experience a significant
 ## See Also
 TODO
 
-
 ## Suggested Reading
 TODO
 
 
-
-
-<a href="./" class="button special">Reincarnation</a>
-<a href="conception" class="button">Next: Conception and Birth</a>

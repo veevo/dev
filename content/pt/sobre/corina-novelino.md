@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Corina Novelino
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Nascida na cidade de Delfinópolis, Estado de Minas Gerais, no dia 12 de agosto de 1912, e desencarnada em Sacramento, naquele mesmo Estado, no dia 10 de fevereiro de 1980, Corina Novelino foi filha do casal José Gonçalves Novelino e Josefina de Melo Novelino. Teve mais quatro irmãos: Geni, Eusápia, Jandira e Eurípedes Novelino.
 
 Em Delfinópolis passou muito pouco de sua infância. Seus pais transferiram residência para Sacramento quando ela ainda era muito criança. Foi matriculada no Colégio Allan Kardec, fundado e dirigido por Eurípedes Barsanulfo, tendo o privilégio de ser sua aluna, uma oportunidade que soube aproveitar para seguir os seus exemplos. Fez-se querida de toda a comunidade, sendo considerada benemérita educadora e verdadeira dama da caridade, por tudo que realizou em favor daquela cidade, pois ainda jovem ficou órfã de pai e mãe, passando a residir com um casal que lhe dispensou todo o amor e carinho.
@@ -33,10 +31,10 @@ Foram as seguintes, as palavras do Presidente da Câmara Municipal de Sacramento
 Corina contribuiu de forma marcante com o movimento Espírita de Sacramento, no qual tinha estreitas relações de amizade e laboriosas atividades, tanto no campo doutrinário como assistencial. Um exemplo de trabalho e de abnegação.
 A desencarnação de Corina Novelino ocorreu no dia 10 de fevereiro de 1980, em Sacramento. Fora internada na Santa Casa de Misericórdia no dia três, do mesmo mês, acometida de um derrame cerebral. Toda a família espírita sentiu o seu desaparecimento da vida física, desfalcada de uma das mais fiéis discípulas de Allan Kardec e de Jesus.
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/delphine.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

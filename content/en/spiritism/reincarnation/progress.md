@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: Progress
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Progress throught Reincarnations
@@ -26,14 +29,6 @@ The spirit who began in a state of simplicity and unawareness gradually begins t
 ## See Also
 TODO
 
-
 ## Suggested Reading
 TODO
-
-
-
-
-<a href="evolution" class="button">Previous: Evolution</a>
-<a href="./" class="button special">Reincarnation</a>
-<a href="harvest" class="button">Next: Harvest</a>
 

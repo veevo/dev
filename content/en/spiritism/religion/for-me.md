@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: Is it for Me?
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ## Is Spiritism for Me?
@@ -35,7 +38,3 @@ Kardec, Allan. Christian Spiritism (a compilation of two Kardec books: Spiritism
 ## Source
 [ExploreSpiritism: A Science & Philosophy with Moral Consequences](//www.explorespiritism.com/religiondoctrine_philosophy%20moral%20consequences.htm)
 
-
-<a href="../science/" class="button">Science</a>
-<a href="../philosophy/" class="button">Philosophy</a>
-<a href="../religion/" class="button">Religion</a>

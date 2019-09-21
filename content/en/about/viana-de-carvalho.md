@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Viana de Carvalho
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Nascido na cidade de Icó, Estado do Ceará, em 10 de dezembro de 1874, era filho do professor Tomás Antônio de Carvalho e de D. Josefa Viana de Carvalho. Desencarnou a bordo do navio Íris, sendo o seu corpo sepultado na Bahia, aparentemente em Salvador. Era o dia 13 de outubro de 1926.
@@ -55,4 +53,4 @@ Em 1926, adoeceu gravemente, ficando decidido o seu recolhimento ao Hospital de 
 TODO
 
 
-<a href="/profiles" class="button">All profiles</a>
+

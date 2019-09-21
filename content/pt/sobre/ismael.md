@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Ismael
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
 TODO:
 
 ### Ismael and Chico Xavier
@@ -16,10 +13,10 @@ Não se pode negar o sentimento de veneração que envolve a nobre figura de Ism
 
 
 
-## Source
+## Referências
 TODO:
 
-## See Also
+## Veja Também
 TODO:
 
-<a href="/profiles" class="button">All profiles</a>
+

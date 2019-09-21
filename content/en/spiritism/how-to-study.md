@@ -2,6 +2,10 @@
 title: How to Study Spiritism
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 The study of the Spiritist codification is most effective when done in groups of like-minded individuals. The purpose of this study is not just to answer people’s questions but also to encourage the asking of new ones and the sharing of the conclusions each individual reaches from the studied material. None of these benefits can be achieved when the student is always alone during the study sessions.

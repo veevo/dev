@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation Theory
-title: Philosophic Argument
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Reincarnation -  Philosophic Argument
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Introduction
@@ -88,7 +91,6 @@ Which of our two hypotheses can better solve these problems?  Undoubtedly, if we
 In conclusion, the key to understanding the inequalities we witness and experience here on Earth, as well as the questions they raise about the after-life, is the philosophy of reincarnation.  Reincarnation offers the explanation for these considerations as well as many other problems and questions (not mentioned here) that arise regarding life on Earth, right and wrong, creation and destiny, etc. 
 
 
-
 ## Source
 [ExploreSpiritism.com: Reincarnation - A proven Theory](http://file://www.explorespiritism.com/Philosophy_Reincarnation_Proven%20Theory_Intro.htm)
 
@@ -100,9 +102,3 @@ TODO
 ## Suggested Reading
 TODO
 
-
-
-
-<a href="theory" class="button">Previous: Introduction</a>
-<a href="../" class="button special">Reincarnation</a>
-<a href="communications" class="button">Next: Spiritual Communications</a>

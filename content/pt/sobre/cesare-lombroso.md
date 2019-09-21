@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Cesare Lombroso
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Nasceu em 6 de novembro de 1835, em Verona, na Itália. Desencarnou em 19 de outubro de 1909, em Turim, na Itália.
 
 Cientista universalmente conhecido pelos importantes trabalhos realizados no campo jurídico, desde muito cedo, dedicou-se às letras.
@@ -57,10 +55,10 @@ Lombroso tentou relacionar certas características físicas, tais como o tamanho
 A principal ideia de Lombroso foi parcialmente inspirada pelos estudos genéticos e evolutivos no final do século IX e propõe que certos criminosos têm evidências físicas de um atavismo (reaparição de características que foram apresentadas somente em ascendentes distantes) de tipo hereditário, reminiscente de estágios mais primitivos da evolução humana. Essas anomalias, denominadas de estigmas por Lombroso, poderiam ser expressadas em termos de formas anormais ou dimensões do crânio e mandíbula, assimetrias na face etc., mas também de outras partes do corpo. Posteriormente, essas associações foram consideradas altamente inconsistentes ou completamente inexistentes, e as teorias baseadas na causa ambiental da criminalidade se tornaram dominantes.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/cesarelombroso.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

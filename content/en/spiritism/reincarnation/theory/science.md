@@ -1,11 +1,12 @@
 ---
-layout: default-md
-section: Reincarnation Theory
-title: Science
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Scientific Investigation
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
-
-## Scientific Investigation
 
 Examples of scientific discoveries that demonstrate the existence of reincarnation generally fall under these categories:
 
@@ -48,7 +49,3 @@ TODO
 TODO
 
 
-
-
-<a href="communications" class="button">Previous: Spiritual Communications</a>
-<a href="../" class="button special">Reincarnation</a>

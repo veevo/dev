@@ -1,7 +1,11 @@
 ---
 title: Spiritism - Advanced Topics
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date: "2018-11-03 19:00:00 -07:00"
+date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 Interested in knowing more? On this section we provide multiple advanced topics for your information.

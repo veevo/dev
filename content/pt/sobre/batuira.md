@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Batuíra (Antonio G. da Silva)
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Nasceu Batuíra aos 19 de março de 1839, em Portugal, na freguesia de Águas Santas, hoje integrada no conselho de Maia. Filho de humildes camponeses, tendo apenas completado a instrução primária, veio, com cerca de 11 anos de idade, para o Brasil, aportando na Guanabara em 3 de Janeiro de 1850.
 
 Durante três anos trabalhou no comércio da Corte. Daí passou para Campinas-SP, onde ficou por algum tempo, até que se transferiu definitivamente para a capital paulista, que, na ocasião, deveria possuir menos de 30.000 habitantes. Aí, nos primeiros anos, foi distribuidor do Correio Paulistano. Naquele tempo, não havia bancas de jornais nos lugares públicos. A entrega se fazia à tarde, de casa em casa, e tão somente aos assinantes.
@@ -48,10 +46,10 @@ Assim era o valoroso obreiro da Terceira Revelação, o incansável lidador que 
 Carregando sobre os ombros muitas responsabilidades, não sentiu, tão preso se achava ao cumprimento dos seus deveres, que suas forças vitais se esgotavam rapidamente. Súbita enfermidade assalta-lhe o corpo e, desse modo, em poucos dias, transpõe as aduanas do além. Aos 22 de janeiro, de 1909, sexta-feira, cerca de uma hora da madrugada, faleceu Sr. Antônio Gonçalves da Silva Batuíra.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/batuira.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

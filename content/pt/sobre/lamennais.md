@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Lamennais, Felicité R. de
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Nascido em uma família burguesa em 19 de junho de 1782, em Saint-Malo, na França, foi brilhante escritor, tornando-se uma figura influente e controversa na história da Igreja francesa. 
@@ -30,10 +28,10 @@ No Mundo Espiritual, não permaneceu ocioso, eis que em O Livro dos Espíritos, 
 Na mensagem que assina em O Evangelho segundo o Espiritismo, cap. XI, item 15, ele se revela o ser compassivo, que conclama as criaturas a obedecer a voz do coração, oferecendo, se for necessário, a própria pela vida de um malfeitor.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/lamennais.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

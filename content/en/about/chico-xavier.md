@@ -3,7 +3,7 @@ title: Francisco Candido Xavier (Chico Xavier)
 description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 
@@ -264,4 +264,4 @@ English: TODO:: Add link to SGNY
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

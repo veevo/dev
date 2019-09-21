@@ -3,6 +3,10 @@ title: Learn Spiritism
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 image: "images/author.jpg"
 date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 We prepared a summary of the Spiritist Doctrine as described below. You can find the following teachings on this section:

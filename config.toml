@@ -217,6 +217,10 @@ copyright = ", Veevo.org"
   URL = "report-error"
 
   [[params.help]]
+  name = "Translate"
+  URL = "translate"
+
+  [[params.help]]
   name = "Disclaimer"
   URL = "disclaimer"
 

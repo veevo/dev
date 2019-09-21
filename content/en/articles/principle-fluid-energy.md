@@ -1,11 +1,14 @@
 ---
-layout: default-md
-section: Questions
 title: Principle, Fluid or Energy?
-subtitle: Understand what's the difference between Principle, Fluid and Energy according to Spiritism
+description: Understand what's the difference between Principle, Fluid and Energy according to Spiritism
 date: 2019-02-01 19:00:00
+type: "post"
+image: "images/masonary-post/post-2.jpg"
+categories: 
+  - "articles"
 tags: 
 - question
+- science
 ---
 
 ou may have seen that the Allan Kardec Educational Society (A.K.E.S.), in their 1996 publication of “The Spirits' Book" adds the following as part of their Translator's footnote to question #27:

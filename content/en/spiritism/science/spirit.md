@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: The Scientifict Aspect
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- science
+categories:
+- spiritism
 ---
 
 ## Spirit
@@ -15,7 +18,3 @@ Spirit is not matter. However, the union between spirit and matter is necessary 
 Spirits can be either **incarnate** (incorporated in a material body and living in the material world) or as **discarnate** (freed from a material body and living in the spiritual realm).
 
 
-
-
-<a href="matter" class="button">Previous: Matter</a>
-<a href="cosmic-fluid" class="button">Next: The Cosmic Fluid</a>

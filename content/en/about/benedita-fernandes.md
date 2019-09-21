@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Benedita Fernandes
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Benedita Fernandes nasceu aos 27 de junho de 1883, em Campos Novos de Cunha (SP), sendo filha de Maria Josefa Nascimento, que era viúva. Portadora de atroz obsessão, autêntica subjugação, Benedita perdeu o contato com a família e perambulava sem rumo. Certa feita, causava tantos incômodos à população que foi recolhida à Cadeia Pública da cidade de Penápolis. 
 
 Àquela época não existiam hospitais ou atendimentos para tal fim. O carcereiro Padial e depois o Sr. Marcheze deram assistência à mulher doente, principalmente com passes, e Benedita, premiada pela necessidade, recebeu o chamamento libertador; uma feita depois de uma crise muito forte, ouvira: "Benedita, se promete consagrar-te, inteiramente, aos enfermos e pobres, sairás curada daqui".
@@ -29,4 +27,4 @@ Nos anos 70 e 80, Divaldo Pereira Franco psicografou várias mensagens de autori
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

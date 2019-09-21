@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: The Scientifict Aspect
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- science
+categories:
+- spiritism
 ---
 
 ## Matter
@@ -16,6 +19,3 @@ Any of that is new and all of it has already been proven by science.
 
 However, what science has yet to prove is that the minimum particle already found is still very far from being the most elementary element.
 
-
-<a href="basic-elements" class="button">Previous: Basic Elements of the Universe</a>
-<a href="spirit" class="button">Next: Spirit</a>

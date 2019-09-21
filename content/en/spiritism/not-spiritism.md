@@ -2,6 +2,10 @@
 title: What Spiritism is Not
 description: What you will not find at a Spiritist Center
 date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 Spiritism differs from all known religions, by demonstrating the logic of its teachings through scientific studies and experiments, and by presenting a philosophy that is also based on experimentation and observation, as documented by a multitude of  intellectuals of  universal renown.

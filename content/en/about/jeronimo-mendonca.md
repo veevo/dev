@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Jerônimo Mendonça
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Nasceu em Ituiutaba, MG, no dia primeiro de novembro de 1939. Filho de Altino Mendonça e Antonia Olímpia de Jesus, sendo nono filho de uma irmandade de dez filhos. Teve uma infância pobre cheia de privação e seus pais eram muito pobres, analfabetos, lutavam arduamente pela sobrevivência: a mãe lavando roupa para fora e o pai fazendo “bicos” pelas fazendas; conta em uma de suas histórias com muito humor, que o único par de sapatos que teve em sua adolescência foi achado no lixo, quando tentava entrar no cinema. Com treze anos foi levado a conhecer a igreja presbiteriana na qual foi protestante até os 15 anos; era um membro ativo, dava até palestras. Após a desencarnação de sua avó, começou a se debater mentalmente no problema cruciante da morte e do destino da alma, tendo ele um espírito indagador, não se sujeitou aos horizontes estreitos da igreja no que tange a crença em Deus, o conceito de uma vida única e de uma salvação limitada. A amizade com um espírita fê-lo converter-se à doutrina espírita. O amigo esclareceu-lhe as dúvidas da vida além-túmulo e conseguiu acalmá-lo. Já na puberdade, Jerônimo começou a sentir dores nas articulações, especialmente nos joelhos e tornozelos. Esses pontos de seu corpo passaram a “inchar” e já aos dezoito anos andava com dificuldade. Teve vários empregos, porém as dores se agravaram, não lhe deram tréguas e o impediram de permanecer por muito tempo num mesmo trabalho e era sempre obrigado a se afastar. Foi ele balconista, entregador de jornal, redator-chefe de uma revista e professor. Seu passatempo preferido era o cinema, era fascinado pelo Tarzan, sendo este o seu apelido. Enquanto sua saúde lhe permitiu, participou ativamente das excursões com os jovens de uma Mocidade Espírita, estava ele com dezesseis anos.
 
 Desde jovem já mostrava interesse pelo espiritismo, frequentando o Centro Espírita que tinha na cidade. E isso foi de grande auxílio para ele, pois aos 18 anos de idade se defrontava com uma das primeiras grandes provações que tinha de vencer, passou a sofrer uma doença, não muito rara, a artrite reumatoide, que causava enorme dor e dificuldade de locomoção, quadro que foi se agravando até que aos 20 anos de idade ficou definitivamente de cama. Certo dia foi ao cinema assistir “... E o Vento Levou”, mas não havia nenhuma poltrona vazia. Jerônimo ficou quatro horas em pé no fundo da sala e ao terminar o filme estava petrificado, com grande vibração de dor nos membros inferiores. Foi aí que começou a jornada dolorosa e difícil da paralisia, como ele mesmo conta em sua autobiografia. Passou três meses deitado, plenamente impossibilitado de se locomover. Depois usou muletas por algum tempo enquanto ia lecionar, no entanto, acabou mesmo tendo de ficar numa cama ortopédica, acometido de artrite reumatoide progressiva. O quadro enfermo de Jerônimo era tão desolador que mesmo sob efeito de medicamentos, seus amigos tiveram que fabricar uma cama especial e colocar sobre seu peito um saco de areia de 30 quilos para que ele pudesse suportar a dor. Recebeu de um amigo a doação de uma Kombi para poder ser levado às palestras.
@@ -30,4 +28,4 @@ Eis alguns casos da vida desse vulto do espiritismo:
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Hernani Guimarães Andrade
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-# Biography
 
 Born in Brasil, 1913, **Hernani Guimarães Andrade** graduated in civil engineering from the University of Sao Paulo in 1941, spending the
 rest of his working life with various public and private companies, including Brazil’s National Steel Company and the Water and Electricity Department of the state of Sao Paulo, where he became technical director of its electricity and telephone division. After his retirement he moved to Bauru, in the interior of the same state, where he died in April 2003, a few weeks short of his ninetieth birthday a chance remark at a social gathering in 1930 set him on his parallel career as the pioneer of scientific parapsychology in Brazil. Asked for his views on the question of life after death, he replied that he regarded life as an essence independent of the physical body, and that after bodily death this essence went away to reappear in another living being. Hearing this, a family friend thrust a copy of Allan Kardec’s, What is Spiritism, into his hand and told him to read it, which he promptly did, finding that, as he later told me, “I had been a Spiritist all along without knowing it.”
@@ -35,4 +32,4 @@ TODO:: Add link to SGNY
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

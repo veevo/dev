@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: Adult Life
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## The Adult Life
@@ -19,7 +22,3 @@ subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odi
 TODO
 
 
-
-<a href="childhood" class="button">Previous: Childhood</a>
-<a href="./" class="button special">Reincarnation</a>
-<a href="death" class="button">Next: Material Death</a>

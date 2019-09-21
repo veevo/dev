@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Prayer
-title: Help for our Problems |
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: "Prayer: Help for Problems"
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ## How Can Prayer Help Us With Our Problems? 
@@ -34,8 +37,3 @@ Keep in mind that prayer can also help us avoid suffering by keeping us in tune 
 [ExploreSpiritism: The meaning and power of prayer](//www.explorespiritism.com/religionrevelation.htm)
 
 
-
-## Other Topics
-<a href="/spiritism/science/" class="button">Science</a>
-<a href="/spiritism/philosophy/" class="button">Philosophy</a>
-<a href="/spiritism/religion/" class="button">Religion</a>

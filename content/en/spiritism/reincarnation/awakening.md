@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: The Material Life
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Confusion and Awakening  
@@ -31,9 +34,3 @@ TODO
 ## Suggested Reading
 TODO
 
-
-
-
-<a href="separation-spirit-body" class="button">Previous: Separation of Spirit and Body</a>
-<a href="./" class="button special">Reincarnation</a>
-<a href="where-we-go" class="button">Next: Where we go after death</a>

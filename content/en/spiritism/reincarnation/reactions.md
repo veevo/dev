@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: The Material Life
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## How should I behave on someone's death?
@@ -21,14 +24,9 @@ Simonetti, Richard. Who's Afraid of Death?. 1st ed. in English. Trans. Marilda C
 ## Source
 [ExploreSpiritism.com: Evolution via Reincarnation](http://file://www.explorespiritism.com/Philosophy_Reincarnation_Death_Reactions.htm)
 
-
 ## See Also
 TODO
-
 
 ## Suggested Reading
 TODO
 
-
-
-<a href="./" class="button special">Reincarnation</a>

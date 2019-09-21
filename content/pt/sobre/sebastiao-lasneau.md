@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Sebastião Lasneau
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Sebastião Lasneau nasceu em Barra do Piraí,  pequena cidade do Vale do Paraíba, no Estado do Rio de Janeiro, no dia 12 de novembro, de 1900, como filho de Evilásio Antônio Lasneau e Etelvina Santos Lasneau. Desencarnou na mesma cidade em 30 de março de 1969.
@@ -31,13 +29,13 @@ Lasneau dedicou-se, também, ao jornalismo, sendo redator de vários jornais, in
 Lasneau foi, de fato, um dos grandes vultos  espíritas brasileiros, cuja obra teve por cenário numerosas  cidades brasileiras,  onde se fazia presente, através de participação efetiva e constante, tornando-se, por isso, uma personalidade querida e requisitada por todos.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/vianadecarvalho.html)  
 (Extraído de “O Espírita Mineiro”, trabalho de  Antônio de Souza Lucena e Paulo Alves Godoy, com depoimentos de Arnaldo Rocha e Cléber Varandas)
 
 
-## See Also
+## Veja Também
 TODO
 
 
-<a href="/profiles" class="button">All profiles</a>
+

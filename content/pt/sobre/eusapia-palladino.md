@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Eusapia Palladino
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
 
 Eusapia Palladino was born in Murga, Naples , on 31 January 1854 . Her mother died a few days after her birth, and her peasant father gave her to be raised by a couple of friends. Before she was one year old it is said that she fell down and badly hurt her head. From that fracture on her skull, perplexed scientists observed, years later, a slight cold draught coming out while the medium was in a trance. Since Eusapia’s childhood, a white tuft of hair grew from the head scar.
 
@@ -36,13 +33,13 @@ Professor Cesare Lombroso later added another class to Morselli’s system, incl
 
 During her life, Eusapia submitted herself to 36 research commissions, from 1888 to 1909. According to Morselli, she manifested forty-four types of mediumistic gifts. She disincarnated in 1918, at 64, after almost half a century of continuous investigations, under the most rigorous conditions stipulated by the greatest scientists of the time.
 
-## Source
+## Referências
 Sir William Crookes Spiritist Society, June 2002  
 Great Exponents of Spiritism  
 (From “Eusapia, The “Witch”, L Palhano Jr, 1995, Brazilian Edition)  
 TODO:: Add link to SGNY
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

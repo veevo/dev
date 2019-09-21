@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Sebastião Lasneau
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Sebastião Lasneau nasceu em Barra do Piraí,  pequena cidade do Vale do Paraíba, no Estado do Rio de Janeiro, no dia 12 de novembro, de 1900, como filho de Evilásio Antônio Lasneau e Etelvina Santos Lasneau. Desencarnou na mesma cidade em 30 de março de 1969.
@@ -40,4 +38,4 @@ Lasneau foi, de fato, um dos grandes vultos  espíritas brasileiros, cuja obra t
 TODO
 
 
-<a href="/profiles" class="button">All profiles</a>
+

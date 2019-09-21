@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Prayer
 title: Appreciation, Praise, and Reverence 
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ##   Prayers of Appreciation, Praise, and Reverence 
@@ -30,8 +33,3 @@ Likewise, our prayers can include a statement of reverence, as Jesus taught us i
 [ExploreSpiritism: The meaning and power of prayer](//www.explorespiritism.com/religionrevelation.htm)
 
 
-
-## Other Topics
-<a href="/spiritism/science/" class="button">Science</a>
-<a href="/spiritism/philosophy/" class="button">Philosophy</a>
-<a href="/spiritism/religion/" class="button">Religion</a>

@@ -1,11 +1,12 @@
 ---
-layout: default-md
-section: Reincarnation
-title: Equality
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Equality in Creation & Opportunity
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
-
-## Equality in Creation & Opportunity
 
 As humans, we may wonder about the causes of the differences among us, or the causes of our sufferings. Based on the explanations offered by a philosophy of reincarnation, we realize that God does not create us unequally.  Allan Kardec writes¹:
 
@@ -30,9 +31,3 @@ TODO
 ## Suggested Reading
 TODO
 
-
-
-
-<a href="./" class="button">Previous: Introduction</a>
-<a href="../" class="button special">Reincarnation</a>
-<a href="past" class="button">Next: Forgetfulness of the Past</a>

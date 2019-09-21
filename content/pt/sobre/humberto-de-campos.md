@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Humberto de Campos
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Humberto de Campos nasceu na pequena localidade de Piritiba, no Maranhão, em 1886. Foi menino pobre. Estudou com esforço e sacrifício. Ficou órfão de pai aos 5 anos de idade. Sua infância foi marcada pela miséria. Em sua Memórias, ele conta alguns episódios que lhe deixaram sulcos profundos na alma.
 Tempo depois, mudou-se para o Rio de Janeiro, então Capital da República, onde se tornou famoso. Brilhante jornalista e cronista perfeito, suas páginas foram "colunas" em todos os jornais importantes do País.
 
@@ -37,10 +35,10 @@ Os que lerem suas obras de antes e de depois de morto, poderão constatar a real
  
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/humbertodecampos.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

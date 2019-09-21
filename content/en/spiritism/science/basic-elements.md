@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: The Scientifict Aspect
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- science
+categories:
+- spiritism
 ---
 
 ## The Basic Elements of the Universe
@@ -12,8 +15,4 @@ Interestingly, some of these concepts have been proposed (in part) by scientists
 
 Let's review these concepts so we can learn about our own nature and that of the world and the Universe we inhabit.
 
-
-
-<a href="./" class="button">Previous: Introduction</a>
-<a href="matter" class="button">Next: Matter</a>
 

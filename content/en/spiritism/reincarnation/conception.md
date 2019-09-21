@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: Begginings
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Conception and Birth
@@ -49,7 +52,3 @@ TODO
 TODO
 
 
-
-<a href="planning" class="button">Previous: Planning a Reincarnation</a>
-<a href="./" class="button special">Reincarnation</a>
-<a href="childhood" class="button">Next: Childhood</a>

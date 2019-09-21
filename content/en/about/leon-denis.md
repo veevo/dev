@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: León Denis
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Leon Denis was born in a village called Foug, located in the surroundings of Tours , in France , on January 1st, 1846 , of a humble family. Very early in life out of necessity, he did manual works and had to carry the heavy responsibilities of his family. From his first steps into this world, he sensed that invisible friends assisted him. Instead of participating in plays relating to his youth, he tried to instruct himself as intensely as possible. He read serious works, thus striving through his own efforts, to develop his intelligence, and became a serious and competent self-didactic.
@@ -68,4 +66,4 @@ Socialism and Spiritism
 [Leon Denis - O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/leondenis.html)  
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

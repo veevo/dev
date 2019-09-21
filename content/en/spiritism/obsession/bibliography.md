@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Fluidic Therapy
-title: Recommended Bibliography
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Obsession - Recommended Bibliography
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- obsession
+categories:
+- mediumship
 ---
 
 ## Recommended Bibliography
@@ -19,18 +22,12 @@ Peralva, Martins. "Obsessoes" (Obsessions). Estudando A Mediunidade [Studying Me
 Systematized Study published by the Brazilian Spiritist Federation. Program V, Unit 8, Subunit 1 Concept, Causes and Degrees of Obsession. Published 1996, Brasilia (DF).
 
 
-
 ## Source
 [ExploreSpiritism.com: Mediumship - Obsession](/www.explorespiritism.com/Science_Obsession_Intro%20Def_Intro.htm)
-
 
 ## See Also
 TODO
 
-
 ## Suggested Reading
 TODO
 
-
-<a href="progression" class="button">Previous: Progression</a>
-<a href="./" class="button special">Obsession</a>

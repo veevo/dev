@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
-title: Is it for Me?
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Spiritism - Is it for Me?
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ## Alliance between Science and Religion
@@ -30,7 +33,3 @@ Kardec, Allan. "I Have Not Come To Abolish The Law." The Gospel  Explained By Th
 [ExploreSpiritism: Alliance Between Science & Religion](//www.explorespiritism.com/religionalliance.htm)
 
 
-
-<a href="../science/" class="button">Science</a>
-<a href="../philosophy/" class="button">Philosophy</a>
-<a href="../religion/" class="button">Religion</a>

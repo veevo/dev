@@ -1,13 +1,14 @@
 ---
-layout: default-md
-section: Reincarnation
 title: The Material Life
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
-## The Meaning of our Suffering
-	     	
-
+## The Meaning of our Suffering 
 Suffering is an inevitable part of life in the material world.  Spiritism helps us to understand the causes of suffering and how we should respond in order to benefit from it.
 
 There are two kinds of suffering on Earth.  The first kind of suffering is that which has its cause in the present-day life.  In fact, if we look carefully, we will realize that this accounts for the greater number of our problems.  The root causes of such suffering stem from our own faults, for example: our pride, selfishness, arrogance, or thoughtlessness;  our lack of discipline or perseverance; our lack of tolerance, patience, and charitableness. 
@@ -24,22 +25,13 @@ To read more on this subject, check out Chapter 5 of  "The Gospel As Explained B
 
 ¹ In "The Gospel As Explained by the Spiritist Doctrine", items 59-60
 
-
 ## Source
 [ExploreSpiritism.com: Evolution via Reincarnation](http://file://www.explorespiritism.com/Philosophy_Reincarnation_Planningandbirth_Intro.htm)
 
-
-
 ## See Also
 TODO
-
 
 ## Suggested Reading
 TODO
 
 
-
-
-<a href="" class="button special">Previous: </a>
-<a href="../" class="button special">Reincarnation</a>
-<a href="" class="button">Next: </a>

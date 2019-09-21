@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: Beyond Religion
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ## Understanding Jesus' Lessons
@@ -23,15 +26,9 @@ Kardec, Allan. "Divine or Natural Law." The Spirits' Book.  Trans. Allan Kardec 
 Kardec, Allan. "Future Joys and Sorrow." The Spirits' Book.  Trans. Allan Kardec Educational Society (translated from 2nd edition in French). Philadelphia, PA. Allan Kardec Educational Society. 1996. 327-349.
 
 
-
-
 ## See Also
 [Spiritism: The religious aspect](./)
 
 ## Source
 [ExploreSpiritism: Spiritism Helps Us Understand Jesus' Lessons](//www.explorespiritism.com/religionsalvation_Spiritism%20Helps%20Understand%20Jesus%20Lessons.htm)
 
-
-<a href="../spiritism/science/" class="button">Science</a>
-<a href="../spiritism/philosophy/" class="button">Philosophy</a>
-<a href="../spiritism/religion/" class="button">Religion</a>

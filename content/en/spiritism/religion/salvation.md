@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: Beyond Religion
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ##  Without Charity, There is No Salvation
@@ -28,7 +31,3 @@ TODO
 ## Source
 [ExploreSpiritism: Without Charity, There is No Salvation](//www.explorespiritism.com/religionsalvation_Without%20Charity.htm)
 
-
-<a href="../spiritism/science/" class="button">Science</a>
-<a href="../spiritism/philosophy/" class="button">Philosophy</a>
-<a href="../spiritism/religion/" class="button">Religion</a>

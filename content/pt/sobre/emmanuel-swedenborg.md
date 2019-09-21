@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Emmanuel Swedenborg
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
 
 Despite his obvious impact, Swedenborg’s name is still not well-known three hundred years after his birth. He was an inventor, a scientist, a civil servant, and a philosopher before he accepted God’s call to be a rational revelator during the Age of Enlightenment. While Swedenborg’s genius may be found in all his works, it is his claim to be a revelator, and his spiritual vision, which truly set him apart. Historically it has been this claim which has attracted interest in him; and it is his theological writings that have been the source of his greatest influence. Swedenborg stands apart from other revelators because of the means through which he received revelation, its substance, and the process of its transmission.
 
@@ -136,13 +133,13 @@ The publication of The True Christian Religion inscribed by the “Lord’s comm
 
 Shortly after the publication of The True Christian Religion in Amsterdam in 1771, Swedenborg left the Netherlands and went to England . He suffered a stroke in December 1771 and died on March 29, 1772 .
 
-## Source
+## Referências
 Jane K. Williams-Hogan, Ph.D. Bryn Athyn College of the New Church
 Spiritist Group of New York, Aug 2002  
 Great Exponents of Spiritism  
 TODO:: Add link to SGNY
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

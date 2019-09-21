@@ -3,10 +3,10 @@ title: Abel Gomes
 description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Nascido no dia 30 de dezembro de 1877, na antiga cidade de Conceição do Turvo, hoje cidade de Salvador Firmino, e desencarnado em Astolfo Dutra, também no Estado de Minas Gerais, no dia 16 de agosto de 1934.
 
 Descendente de colonizadores portugueses, Abel Gomes se tornou um nome benquisto por todos e aureolado de grande respeito e admiração, projetando-se por todos os Estados brasileiros e mesmo ultrapassando fronteiras, para atingir países vizinhos. Apesar de ser um homem simples, pobre e doente, impôs-se ao preito dos seus contemporâneos, pois não apenas ensinava, mas dava sempre o exemplo. Como sociólogo e evangelizador ele soube viver os Evangelhos, propiciando o exemplo vivo daquele que, no dizer judicioso de Jesus Cristo, “toma do arado e não olha mais para trás.”
@@ -43,4 +43,4 @@ Abel Gomes foi, portanto, um dos mais autênticos espíritas dos últimos tempos
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

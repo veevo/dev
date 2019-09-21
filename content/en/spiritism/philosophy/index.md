@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: The Philosophyc Aspect
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- philosophy
+categories:
+- spiritism
 ---
 
 ## Introduction
@@ -14,6 +17,5 @@ TODO :: Add links to other topics
 
 
 ## Other Topics
-<a href="../science/" class="button">Science</a>
-<a href="../philosophy/" class="button">Philosophy</a>
-<a href="../religion/" class="button">Religion</a>
+* Science and Spiritism
+* Religion and Spiritism

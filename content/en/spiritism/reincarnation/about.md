@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: Introduction
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## What is Reincarnation?
@@ -15,16 +18,9 @@ The concept of reincarnation, therefore, is not a new revelation brought by Spir
 ## Source
 [ExploreSpiritism.com: Evolution via Reincarnation](http://file://www.explorespiritism.com/Philosophy_Reincarnation_Evolution_Natural%20Law.htm)
 
-
 ## See Also
 TODO
-
 
 ## Suggested Reading
 TODO
 
-
-
-
-<a href="./" class="button special">Reincarnation</a>
-<a href="evolution" class="button">Next: Evolution</a>

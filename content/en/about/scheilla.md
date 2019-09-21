@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Scheilla
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
 Peixotinho, em Macaé (RJ), iniciou um trabalho de orações para as vítimas da II Grande Guerra. Foi então que, de repente, chegou lá e se materializou um Espírito chamado Rodolfo*, que contou que era de uma família legitimamente espírita, morando na Alemanha. Ele teve de servir na guerra como oficial-médico e o pai dele, Dr. Fritz, muito reservado, educado, severo, muito autêntico, que passou muitas ideias humanitárias aos filhos, havia lhe dito: − Matar nunca. Ao que Rodolfo respondeu: − Pai, não é isso, vou servir como médico.

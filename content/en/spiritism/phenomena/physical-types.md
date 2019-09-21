@@ -1,12 +1,14 @@
 ---
-layout: default-md
-section: Mediumship
 title: Physical Phenomena
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- phenomena
+categories:
+- spiritism
 ---
 
-## TYPES OF PHYSICAL PHENOMENA
-
+## TYPES OF PHYSICAL PHENOMENA 
 The classification bellow is taken from The Mediums’ Book chapter 14, items 173-189
 
 #### Rapping Mediums
@@ -45,21 +47,13 @@ One can directly infer from the above list that all the phenomena associated wit
 It is important to note that even though the creating of ectoplasm by a medium can be dangerous and draining for the medium, giving of ectoplasm in small quantities can occur without the medium ever being aware that this is occurring. Also ectoplasm in a more diluted form can remain in a confined environment like a building for long periods of time after it has been used by a Spirit.
 
 
-
-
 ## Source
 [Types Of Physical Phenomena](http://www.sgny.org/spiritism-guide/mediumship/physical-phenomena/)
 
 ## See Also
 TODO
 
-
 ## Suggested Reading
 TODO
 
-
-
-<a href="" class="button">Previous: </a>
-<a href="./" class="button special">Phenomena</a>
-<a href="" class="button">Next: </a>
 

@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Joanna de Ângelis
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
  Um Espírito que irradia ternura e sabedoria, despertando-nos para a vivência do amor na sua mais elevada expressão, mesmo que, para vivê-lo, seja-nos imposta grande soma de sacrifícios. Trata-se do Espírito que se faz conhecido pelo nome Joanna de Ângelis e que, nas estradas dos séculos, vamos encontrá-la na mansa figura de Joana de Cusa, numa discípula de Francisco de Assis, na grandiosa Sóror Juana Inés de La Cruz e na intimorata Joana Angélica de Jesus
 Conheça agora cada um destes personagens que marcaram a história com o seu exemplo de humildade e heroísmo.
 
@@ -84,13 +81,13 @@ In the middle of this century, [Divaldo P. Franco](/profiles/divaldo-franco) beg
 
 A privileged observer or what is happening to the world and to us down here, she decided to offer her valuable contribution, not only for a better understanding of these tormented times of ours, but also by reading into the very turbulence in which we are immersed.  She saw that the materialistic structures of thinking and living carry within them their own doom and begin to show fissures indicating unavoidable final implosion.  It will then be time for reconstruction.  Some of those to whom roes are assigned in this gigantic task are already among us, while others are still to come, after a most careful preparation in higher spiritual dimensions.
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/joanna.html)  
 Written by [Hermínio C. Miranda](/profiles/herminio-miranda), to the book, ["After The Storm"](/books/joanna-de-angelis/after-the-storm) by Joanna De Ângelis  
 Published originally by Livraria Espírita Alvorada Editora in Bahia, Brazil.  
 The translation (from which this extract was taken) was published by this publisher in conjunction with the Christian Spirit Center - Elon College, North Carolina.
 
 
-## See Also
+## Veja Também
 
 TODO

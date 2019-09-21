@@ -1,7 +1,11 @@
 ---
 title: WHAT IS SPIRITISM
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date: "2018-11-03 19:00:00 -07:00"
+date: "2019-01-01"
+tags:
+- spiritist-centers
+categories:
+- spiritism
 ---
 
 ### WHAT IS SPIRITISM
@@ -31,6 +35,3 @@ The religious aspect stems from the moral ties between ourselves, and others, an
 ### See Also
 [Spiritism - Science, Philosophy and Religion](science-philosophy-religion)
 
-
-<a href="learn" class="button special">Learn Spiritism</a>
-<a href="/spiritism/foundations" class="button">Next: Spiritism - Foundations</a>

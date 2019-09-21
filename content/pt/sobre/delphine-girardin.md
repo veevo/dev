@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Delphine Girardin
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Quem são os Espíritos que assinam as mensagens da Codificação? Em Prolegômenos, da obra basilar O Livro dos Espíritos, encontram-se os nomes de São João Evangelista, Santo Agostinho, São Vicente de Paulo, São Luís, O Espírito de Verdade, Sócrates, Platão, Fénelon, Franklin, Swedenborg, entre outros.
 Em O Evangelho segundo o Espiritismo desfilam mais de uma dezena de nomes de Espíritos, mais conhecidos uns, quase desconhecidos outros, entre eles os de Delphine de Girardin, Hahnemann, Henri Heine, Lacordaire, Lamennais, Morlot, Pascal, Vianney.
 
@@ -36,10 +34,10 @@ Em O Evangelho segundo o Espiritismo, o Espírito de Delphine de Girardin assina
 “Esperai, vós que chorais! Tremei, vós que rides, porque vosso corpo está satisfeito! Não se engana a Deus; não se esquiva do destino; e as provas, credoras mais implacáveis que a matilha excitada pela miséria, espreitam vosso repouso ilusório para vos mergulhar de repente na agonia da verdadeira infelicidade, daquela que surpreende a alma enfraquecida pela indiferença e pelo egoísmo.
 “Que o Espiritismo vos esclareça, pois, e recoloque em sua verdadeira luz a verdade e o erro, tão estranhamente desfigurados pela vossa cegueira! Então agireis como bravos soldados que, longe de fugirem do perigo, preferem as lutas dos combates temerários, à paz que não pode dar nem glória, nem progresso. Que importa ao soldado perder no tumulto suas armas, sua bagagem e seus uniformes, contanto que dele saia vencedor e com glória! Que importa àquele que tem fé no futuro deixar sobre o campo de batalha da vida sua fortuna e seu manto de carne, contanto que sua alma entre, radiosa, no reino celeste?” (Delphine de Girardin, Paris, 1861.)
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/delphine.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

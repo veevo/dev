@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Divaldo Pereira Franco
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Pessoa simples, profundamente culta, com mais de cinquenta anos dedicados à mediunidade. É figura de destaque mundial, tanto no meio espírita como fora dele, pois sua cultura, o seu saber, bem como a sua mediunidade são cartões-de-visita que lhe granjearam respeito e credibilidade, mesmo pelos céticos que se curvam perante a cultura deste homem invulgar.
 
 Mais de 40 anos a serviço do próximo, especialmente dedicados aos meninos de rua, no Brasil, fizeram dele um foco de atenção.
@@ -146,12 +144,12 @@ Oceania
 Austrália e Havaí (Estado independente dos Estados Unidos), na Polinésia, Nova Zelândia.
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/divaldofranco.html)
 
 
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

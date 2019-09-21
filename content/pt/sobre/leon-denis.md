@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: León Denis
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Leon Denis was born in a village called Foug, located in the surroundings of Tours , in France , on January 1st, 1846 , of a humble family. Very early in life out of necessity, he did manual works and had to carry the heavy responsibilities of his family. From his first steps into this world, he sensed that invisible friends assisted him. Instead of participating in plays relating to his youth, he tried to instruct himself as intensely as possible. He read serious works, thus striving through his own efforts, to develop his intelligence, and became a serious and competent self-didactic.
@@ -41,12 +39,12 @@ Denis never studied in an accredited academy; however, he developed in the pract
 
 In a well advanced age, blind, and with a relatively weak constitution, he still lived full of tribulations. Nothing, however, changed his way of proceeding. In spite of all those adverse conditions, he received everyone with deference. From the first hours of the morning he dictated himself to his secretary, in answering voluminous correspondence, replying to the pleading of countless societies that he had founded or of which he had been named honorary president. Whenever he attended there, he was always designated a place of greatest prominence, a mark achieved at the price of deep dedication, perseverance and indefatigable labor in goodness.
 
-## Source
+## Referências
 SGNY - Great Exponents of Spiritism (Aug 2002)  
 (Excerpted From the website of The Spiritist Federation of Paraná)  
 TODO:: Add link to SGNY
 
-## Bibliography
+## Bibliografia
 Christianity and Spiritism  
 Here and Hereafter  
 Spirits and Mediums  
@@ -64,8 +62,8 @@ Progress
 Experimental tests of the Survival  
 Socialism and Spiritism  
 
-## See Also
+## Veja Também
 [Leon Denis - O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/leondenis.html)  
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

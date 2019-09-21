@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: Profile
 title: Lins de Vasconcellos
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
 Artur Lins de Vasconcellos Lopes foi expressiva figura do Espiritismo brasileiro.
@@ -37,10 +35,10 @@ Tendo desencarnado em S. Paulo, seu corpo foi para Curitiba − cidade que tanto
 A Federação Espírita do Paraná, que tantos benefícios recebeu de Lins de Vasconcellos, prestou-lhe ultimamente significativa homenagem, dando seu respeitável e inesquecível nome ao educandário que naquele bairro mantém, no momento, funcionando com o curso ginasial, o Instituto 'Lins de Vasconcellos'. 
 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/linsdevasconcellos.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

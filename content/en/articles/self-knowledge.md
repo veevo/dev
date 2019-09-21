@@ -1,9 +1,11 @@
 ---
-title: Self Knowledge
+title: Self Knowledge, what does it mean?
 description: How to know ourselves, make progress and be happier
 date: 2019-02-01 19:00:00
+image: "images/masonary-post/post-2.jpg"
+categories: 
+  - "articles"
 tags: 
-- article
 - self-knowledge
 ---
 

@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Amalia Domingo Soler
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
 
 During the time in which the sun had not as yet set on the vast Spanish empire – that covered the Americas and extended throughout the Pacific – the city where Amalia was born, Seville, was the seaport accessible to all the territories beyond the seas. Wealth from every corner of the planet flowed into its warehouses, and from there was
 distributed to finance the countless wars that were schemed
@@ -46,10 +43,10 @@ It was in March, of 1875 – the celebration of Kardec’s discarnation �
 
 Fernandez Colavida, sent her, as a present, the collection of books of Allan Kardec. The spiritists of Alicante invited her to remain with them, under their protection so that she could dedicate herself entirely to the dissemination of Spiritism.
 
-## Source
+## Referências
 TODO:: Add link to SGNY
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

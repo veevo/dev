@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: God's Laws
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ## Introduction
@@ -23,14 +26,7 @@ The text to follow is a summary of the answers given to questions regarding the 
 [Revelations](revelations)  
 [Moral Laws](moral-laws)  
 
-
-
 ## Source
 [ExploreSpiritism: The revelation of god's laws](//www.explorespiritism.com/religionrevelation.htm)
 
 
-
-## Other Topics
-<a href="/spiritism/science/" class="button">Science</a>
-<a href="/spiritism/philosophy/" class="button">Philosophy</a>
-<a href="/spiritism/religion/" class="button">Religion</a>

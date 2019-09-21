@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: The Material Life
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Forgetfulness of the Past
@@ -34,5 +37,3 @@ TODO
 TODO
 
 
-
-<a href="./" class="button special">Reincarnation</a>

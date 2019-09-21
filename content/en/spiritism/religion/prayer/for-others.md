@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Prayer
 title: For Others
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ##   Prayers for Others
@@ -33,8 +36,3 @@ Lastly, we must not forget to pray for those who are undergoing trials that brin
 [ExploreSpiritism: The meaning and power of prayer](//www.explorespiritism.com/religionrevelation.htm)
 
 
-
-## Other Topics
-<a href="/spiritism/science/" class="button">Science</a>
-<a href="/spiritism/philosophy/" class="button">Philosophy</a>
-<a href="/spiritism/religion/" class="button">Religion</a>

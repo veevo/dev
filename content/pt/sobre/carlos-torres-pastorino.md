@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Carlos Torres Pastorino
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-## Introduction
+
 Nascido no Rio de Janeiro, em 4 de novembro de 1910, e desencarnado em Brasília (DF), em 13 de junho de 1980, Carlos Torres Pastorino, mais conhecido como professor Pastorino, foi filho de José Pastorino e Eugênia Torres Pastorino. Desde criança demonstrou inusitada inteligência e vocação para a vida eclesiástica. Com apenas 14 anos de idade, em 1924, recebeu os diplomas de Geografia, Corografia e Cosmografia, do Colégio D. Pedro II e, logo em seguida, ainda no mesmo ano, o diploma de Bacharel em Português, no mesmo colégio. Viajou para Roma a fim de cursar o Seminário, onde em 1929 foi diplomado, pelo Cardeal Basilio Pompili, para a Ordem Menor de Tonsura. Formou-se em Filosofia e Teologia em 1932, sendo ordenado sacerdote em 1934. 
 
 Abandonou a vida eclesiástica da Igreja Católica Romana quando, em 1937, aguardava promoção para diácono. Surpreendeu-se com a recusa do papa Pio XII em receber o Mahatma Gandhi em seu tradicional traje branco. O colégio cardinalício exigia que o grande líder da Índia vestisse casaca, para não quebrar a tradição das entrevistas com os chefes de Estado. Pastorino, diante dessa recusa, imaginou que se Jesus visitasse o Vaticano não se entrevistaria com o papa, pois  vestia-se de forma similar a Gandhi, e jamais se sujeitaria ao rigor exigido pela Igreja.
@@ -23,10 +21,10 @@ Autor de 28 obras publicadas, incluindo-se a Sabedoria do Evangelho, da qual som
 
 (*) Os dados acima foram, em grande parte, extraídos do livro Personagens do Espiritismo, de Antônio de Souza Lucena e Paulo Alves Godoy, Ed. FEESP, 1ª ed., 1982, SP, Brasil. 
 
-## Source
+## Referências
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/carlospastorini.html)
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

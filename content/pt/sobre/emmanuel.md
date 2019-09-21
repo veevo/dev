@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Emmanuel
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- perfis
 ---
 
-# Biography
 Emmanuel é o nome do Espírito que tutelou a atividade mediúnica de Francisco Cândido Xavier, o maior médium psicógrafo de sempre, com mais de 400 obras psicografadas.
 
 Ao tempo da passagem de Jesus pela Terra, chamou-se Públio Lentulus Cornélio, um senador romano. Ao que se sabe, foi a única autoridade que efetuou perfeita descrição do Mestre Jesus, através da célebre carta, publicada em numerosas línguas, autêntica obra-prima. Encontrou-O, pessoalmente, solicitando-Lhe auxílio para a cura de sua filha Flávia, que, supomos, estaria leprosa. Desencarnou em Pompéia, no ano 79, vítima das lavas do Vesúvio. Anos depois, reencarnaria como judeu na Grécia, em Éfeso, já não mais sob a toga de orgulhoso senador romano, mas sim na estamenha do modesto escravo Nestório, que, na idade madura, participava das reuniões secretas dos cristãos nas catacumbas de Roma.
@@ -87,15 +84,15 @@ As a curiosity, we found in the registry that the deputy Freitas Nobre, who has 
 Thus, the initial “E” of Francisco Cândido Xavier’s mentor was derived from an abbreviation of Ermano, which, according to him, would authorize his name to be written Emanuel, one “m” only, and pronounced with the accent in the last syllables.
 
 
-## Source
+## Referências
 Allan Kardec (Excerpted From Posthumous Works) | TODO:: Add link to SGNY   
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/emmanuel.html)
 
-## Bibliography
+## Bibliografia
 TODO: Add link
 
 
-## See Also
+## Veja Também
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

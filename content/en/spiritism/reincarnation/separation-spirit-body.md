@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Reincarnation
 title: The Material Life
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- reincarnation
+categories:
+- spiritism
 ---
 
 ## Separation of Spirit and Body
@@ -16,7 +19,6 @@ The study of a great number of individuals has also shown that an inordinate ide
 
 ¹  i.e., the spirit body, or the soul's fluidic, ethereal covering
 
-
 ### Presentiments
 
 Often times, as we can observe, people sense their approaching time for departure.  This is because, as the spirits tell us¹, "the soul often feels the loosening of the bonds that attach it to the body," and when this soul is resigned to its imminent transition, it "does it's utmost to hasten and complete the work of separation.  Already partially freed from matter, it sees the future unroll before it and enjoys, in anticipation, the spirit-state it is about to return to." 
@@ -29,26 +31,15 @@ Sometimes the spirit can become completely separated even before the organic lif
 
 The undoing of  the fluidic bonds that tie a spirit to the material body normally takes place, except for the cases of highly evolved spirits, with the aid of benevolent, discarnate spirits who, working like "technicians", help complete the process of separation.
 
-¹  In answer to Question 157 of "The Spirits' Book"
+¹ In answer to Question 157 of "The Spirits' Book"
 ² In answer to Question 156 of "The Spirits' Book"
-
-
 
 ## Source
 [ExploreSpiritism.com: Evolution via Reincarnation](http://file://www.explorespiritism.com/Philosophy_Reincarnation_Planningandbirth_Intro.htm)
 
-
-
-## See Also
-TODO
-
+## See Also TODO
 
 ## Suggested Reading
 TODO
 
 
-
-
-<a href="death" class="button">Previous: Material Death</a>
-<a href="./" class="button special">Reincarnation</a>
-<a href="awakening" class="button">Next: Confusion and Awakening</a>

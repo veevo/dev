@@ -1,14 +1,12 @@
 ---
-layout: default-md
-section: Profile
 title: Francisco Peixoto Lins (Peixotinho)
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-## Introduction
+
 Nasceu na cidade de Pacatuba, Estado do Ceará, no dia 1º de fevereiro de 1905, desencarnando na cidade de Campos, Estado do Rio de Janeiro, em 16 de junho de 1966.
 
 Seus pais foram Miguel Peixoto Lins e Joana Alves Peixoto. Bem cedo ficou órfão de pai e mãe e passou a conviver com seus tios maternos, em Fortaleza, Estado do Ceará, onde fez o curso primário. Em seguida matriculou-se no Seminário Católico, de acordo com o desejo de seus tios, que desejavam vê-lo seguir a carreira eclesiástica. No Seminário, sofreu várias penas disciplinares por manifestar a seus educadores dúvidas sobre os dogmas da Igreja. Observando as desigualdades humanas, tanto no campo físico como no social, ficou em dúvida no tocante à paternidade e bondade de Deus. Se todos eram seus filhos, por que tantas diversidades?− ele indagava. Por que razões insondáveis uns nascem fisicamente perfeitos e outros deformados? Uns portadores de virtudes angelicais e outros acometidos de mau caráter? Dizia então: Se Deus existe, não é esse ser unilateral de que fala a religião católica. Desejava saber e inquiria os seus confessores, os quais, diante das indagações arrojadas do menino, usavam o castigo e a penitência como corretivo.
@@ -42,4 +40,4 @@ Peixotinho sofria de broncopneumonia, enfermidade que lhe causava muitos dissabo
 [Peixotinho - Documentário 1/2](https://youtu.be/inSwo2NRNXE)
 [Peixotinho - Documentário 2/2](https://youtu.be/GlLqYLsrWF4)
 
-<a href="/profiles" class="button">All profiles</a>
+

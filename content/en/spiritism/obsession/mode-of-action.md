@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Fluidic Therapy
-title: Mode of Action
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Obsession - Mode of Action
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- obsession
+categories:
+- mediumship
 ---
 
 ## Mode of Action
@@ -10,20 +13,12 @@ As you can read in the web subsection, “We're All Mediums" (see menu at left),
 
 The key characteristic of an obsession, as opposed to a passing, negative spiritual influence, is the regularity and consistency of the spirit's maleficent influence over the individual. Obsessing spirits who act intentionally are extremely persistent and believe, even when encountering an initial or eventual resistance in their victim, that through perseverance, they will eventually achieve and sustain the domination that they desire. Even when unconscious of their negative influence, the affinity and tuning that is established between the obsessed and the obsessor, keep them both bound to one another and subject to the consequences of such mutual influence.
 
-
 ## Source
 [ExploreSpiritism.com: Mediumship - Obsession](/www.explorespiritism.com/Science_Obsession_Intro%20Def_Intro.htm)
-
 
 ## See Also
 TODO
 
-
 ## Suggested Reading
 TODO
 
-
-
-<a href="definition" class="button">Previous: Definition</a>
-<a href="./" class="button special">Obsession</a>
-<a href="progression" class="button">Next: Progression</a>

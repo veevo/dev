@@ -1,14 +1,11 @@
 ---
-layout: default-md
-section: Profile
 title: Elsa Rossi
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- profile
+- profiles
 ---
 
-# Biography
 Elsa Rossi has a degree in Art from the Faculty of Fine Arts from the University of São Paulo, São Paulo, Brazil.
 
 She has written poems since her school days, and after the birth of her three children. she began to utilize children’s stories with the participation from her children, making use of everyday situations to exemplify moral lessons. In this way, she has created educational stories to stress the benefit of not lying, not fighting with other children, and of forgiving each other and having patience.
@@ -25,4 +22,4 @@ TODO
 ## See Also
 TODO
 
-<a href="/profiles" class="button">All profiles</a>
+

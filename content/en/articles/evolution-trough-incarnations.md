@@ -2,8 +2,12 @@
 title: Evolution trough incarnations
 description: How we evolve troughout our multiple material existences, known as "incarnations". And what can we do to accelerate our own progress to happiness
 date: 2019-02-01 19:00:00
+type: "post"
+image: "images/masonary-post/post-2.jpg"
+categories: 
+  - "articles"
 tags: 
-- article
+- evolution
 - reincarnation
 ---
 

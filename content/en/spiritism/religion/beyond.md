@@ -1,8 +1,11 @@
 ---
-layout: default-md
-section: Spiritism
 title: Beyond Religion
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: "2019-01-01"
+tags:
+- religion
+categories:
+- spiritism
 ---
 
 ## Beyond just Religion?
@@ -31,7 +34,3 @@ Barbosa, Pedro Franco. "Postulados e Ensinamentos" [Postulates and Teachings]. E
 ## Source
 [ExploreSpiritism: A Science & Philosophy with Moral Consequences](//www.explorespiritism.com/religiondoctrine_philosophy%20moral%20consequences.htm)
 
-
-<a href="../spiritism/science/" class="button">Science</a>
-<a href="../spiritism/philosophy/" class="button">Philosophy</a>
-<a href="../spiritism/religion/" class="button">Religion</a>
