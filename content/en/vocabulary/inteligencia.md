@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Inteligência
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Inteligência [do latim intelligentia]– Faculdade de conceber, de compreender e raciocinar. Seria injusto recusar aos animais uma espécie de inteligência e acreditar que eles apenas seguem maquinalmente o impulso cego do instinto. A inteligência deles é sempre limitada à satisfação das necessidades materiais, ao passo que a do homem lhe permite elevar-se acima da condição de humanidade. A linha de demarcação entre os animais e o homem é traçada pelo conhecimento que, a este é dado ter, do Ser Supremo.

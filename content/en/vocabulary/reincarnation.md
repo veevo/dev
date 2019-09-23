@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Reencarnação
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Reencarnação [do latim re + incarnatione] - 1. Volta do Espírito à vida corpórea, em um novo corpo especialmente formado para ele. É progressiva ou estacionária, nunca é retrógrada. 2. Uma das personalidades do Espírito dentro da pluralidade das suas existências.

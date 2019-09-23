@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Ectoplasma
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Ectoplasma [do grego e do latim, respectivamente: ektós= fora, exterior + plasma= criatura]– 1. Biologia: parte periférica do citoplasma. 2. Parapsicologia: designa a substância visível que emana do corpo de certos médiuns. 3. Substância que se acredita seja a força nervosa e que tem propriedades químicas semelhantes às do corpo físico, donde provém. Apresenta-se viscosa, esbranquiçada, quase transparente, com reflexos leitosos, sendo evanescente sob a luz. É considerada a base dos efeitos mediúnicos chamados físicos (levitação, materialização, etc.), pois através dela os Espíritos podem atuar sobre a matéria.

@@ -1,16 +1,10 @@
 ---
-layout: default-md
-section: About
 title: Human Beings
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
-
-## A Human according to Spiritism
-
-Human Being is a [Spirit](/about/spirits) [incarnated](/about/incarnation) in a [material body](/about/physical-body). The [perispirit](/about/perispirit) is the semi-material body that unites the Spirit to the [physical body](/about/physical-body).
 
 In addition to the [material world](/about/material-world) inhabited by incarnate Spirits, which are Human Beings, there exists the spiritual world, inhabited by discarnate Spirits.
 

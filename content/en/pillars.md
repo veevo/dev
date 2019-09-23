@@ -1,7 +1,8 @@
 ---
 title: Pillars
-subtitle: Learn about our pillars - Spiritism, Education, Openness, Community and Zero Profit
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  Learn about our pillars - Spiritism, Education, Openness, Community and Zero Profit
 date: 2019-02-13 14:00:00
+image: "images/contact.jpg"
 ---
 
 Veevo.org is an independent, privacy-focused, completely volunteered developed and run organization. We don't host ads neither get any financial benefit from this site.
@@ -41,4 +42,4 @@ If ever, we kindly ask our readers to volunteer in [Spiritist Centers](/spiritis
 [Veevo.org - Disclaimer](/disclaimer)  
 [Veevo.org - Help](/help)  
 
-<a href="/get-started" class="button special">Get Started</a>
+

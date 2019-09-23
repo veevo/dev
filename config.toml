@@ -228,3 +228,7 @@ copyright = ", Veevo.org"
   name = "Contact"
   URL = "contact-us"
 
+  [[params.help]]
+  name = "Blog"
+  URL = "Our Blog"
+

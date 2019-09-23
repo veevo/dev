@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Monoideísmo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Monoideísmo [do grego mónos + -idéa + -ismo] - Estado de alma em todo o psiquismo que se acha dominado por uma idéia central; fixação em uma única idéia.

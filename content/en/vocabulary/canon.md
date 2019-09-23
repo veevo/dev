@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Cânon
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Cânon [do grego kánon= regra, do latim canon] - 1. Regra geral de onde se infere regras especiais. 2. Relação, catálogo, tabela. 3. Padrão, modelo, norma. 4. Lista autêntica dos livros considerados como inspirados por israelitas, católicos e protestantes, sendo o oposto de apócrifo.

@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Politeísmo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Politeísmo [do grego polus= vários + théos= Deus] – Religião que admite vários deuses. Entre os povos antigos a palavra deus revela a idéia de poder; para eles todo o poder superior ao vulgar era um deus. Mesmo os homens que haviam feito grandes coisas se tornavam deuses para eles. Manifestando-se os Espíritos por efeitos que lhes pareciam sobrenaturais, eram a seus olhos outras tantas divindades, entre as quais é impossível deixar de reconhecer os Espíritos de todos os graus, desde os batedores até os Espíritos superiores. O conhecimento das manifestações dos Espíritos é, pois, a fonte do politeísmo.

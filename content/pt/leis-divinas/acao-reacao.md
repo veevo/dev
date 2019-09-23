@@ -1,8 +1,6 @@
 ---
-layout: default-md
-section: Divine Laws
 title: Action and Reaction (or Karma)
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
 tags: 
 - divine-law
@@ -26,4 +24,4 @@ O céu e o inferno, Allan Kardec
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
 
 
-<a href="/divine-laws" class="button special">All Divine Laws</a>
+

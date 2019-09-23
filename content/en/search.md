@@ -1,6 +1,8 @@
 ---
-layout: default
 title: Search
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  Learn about our pillars - Spiritism, Education, Openness, Community and Zero Profit
+date: 2019-02-13 14:00:00
+image: "images/contact.jpg"
 ---
 
 ## Looking for a specific resource?  

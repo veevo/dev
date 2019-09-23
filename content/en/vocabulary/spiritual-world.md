@@ -1,15 +1,12 @@
 ---
-layout: default-md
-section: About
 title: Spiritual World
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Mundo espírita – Conjunto de seres inteligentes despidos de seu invólucro corpóreo. O mundo espiritual é um mundo normal, primitivo, preexistente e sobrevivente a tudo. O estado corporal é, para os Espíritos, transitório e passageiro. Ver: Mundo espiritual ou Mundo dos Espíritos.
-
 
 ## What is a Spiritual World?
 Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
@@ -19,7 +16,5 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 ## Related
 Mundo espiritual – Designação equivalente a Mundo espírita ou Mundo dos Espíritos.
 
-
-## See Also
-
+## See Also 
 TODO

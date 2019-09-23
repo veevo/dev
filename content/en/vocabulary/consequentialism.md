@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Consequentialism
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Theories focusing on the consequences any action might have. Understanding the results of a choice is vital to identifying if it is the ‘right’ choice. Correct consequences only come from correct choices, incorrect consequences must come from incorrect choices.

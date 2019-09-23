@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Diabo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Diabo [do grego diabolos] - delator, acusador, maldizente, caluniador] – Conforme a Doutrina dos Espíritos, constitui-se a personificação do mal; é um ser alegórico, resumindo em si todas as paixões más dos Espíritos imperfeitos. Espírito ou gênio do mal. demônio. Satanás.

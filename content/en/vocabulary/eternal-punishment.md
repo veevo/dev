@@ -1,15 +1,12 @@
 ---
-layout: default-md
-section: About
 title: Penas eternas
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
-Penas eternas – Os Espíritos superiores ensinam que só o bem é eterno, porque é a essência de Deus, e que o mal terá um fim. Por conseqüência deste princípio, combatem a doutrina da eternidade das penas como contrária à idéia que Deus nos dá de sua justiça e de sua bondade.
-
+Penas eternas – Os Espíritos superiores ensinam que só o bem é eterno, porque é a essência de Deus, e que o mal terá um fim. Por conseqüência deste princípio, combatem a doutrina da eternidade das penas como contrária à idéia que Deus nos dá de sua justiça e de sua bondade.  
 
 ## See Also
 TODO

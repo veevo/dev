@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Sonho
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Sonho [do latim somniu] – Efeito da emancipação da alma durante o sono. Quando os sentidos ficam entorpecidos, os laços que unem o corpo e a alma se afrouxam. Esta, tornando-se mais livre, recupera em parte suas faculdades de Espírito e entra mais facilmente em comunicação com os seres do mundo incorpóreo.

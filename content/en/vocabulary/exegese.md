@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Exegese
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Exegese [do grego exégesis] - De forma genérica, constitui-se o esclarecimento ou a minuciosa interpretação de um texto ou de uma palavra. Aplica-se especialmente em relação à Bíblia e demais textos religiosos, à gramática, às leis.

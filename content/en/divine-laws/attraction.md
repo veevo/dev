@@ -1,8 +1,6 @@
 ---
-layout: default-md
-section: Divine Laws
 title: Attraction
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
 tags: 
 - divine-law
@@ -31,5 +29,4 @@ Simonetti, Richard "A Influencia Dos Espiritos" [The Influence of Spirits]. Espi
 [ExploreSpiritism.com: The Law of Attraction](//www.explorespiritism.com/Science_Mediumship_We're%20All_Law%20of%20Attraction.htm)  
 
 
-<a href="/divine-laws" class="button special">All Divine Laws</a>
 

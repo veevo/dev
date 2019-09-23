@@ -1,11 +1,9 @@
 ---
-layout: default-md
 title: Caridade
-section: Virtues
-subtitle: TODO
+description: TODO
 date: 2019-02-01 19:00:00
 tags: 
-- virtue
+- virtues
 ---
 
 Caridade [do latim: caritate] - 1. No vocabulário cristão, o amor que move a vontade à busca efetiva do bem de outrem e que procura identificar-se com o amor de Deus. 2. Conforme ensino dos Espíritos nobres, Jesus entendia a caridade como "benevolência para com todos, indulgência para com as imperfeições alheias, perdão das ofensas".

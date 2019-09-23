@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: The Third Revelation
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Alma [latim: anima, do grego: anemos= sopro, emanação, ar] - É o ser imaterial, distinto e individual, unido ao corpo que lhe serve de invólucro temporário isto é, o Espírito em estado de encarnação, e que somente pertence à espécie humana. Unido ao corpo material pela encarnação, o Espírito constitui o homem; de forma que no homem há três coisas: a alma propriamente dita, ou princípio inteligente; o perispírito, ou envoltório fluídico da alma; o corpo, ou envoltório material.

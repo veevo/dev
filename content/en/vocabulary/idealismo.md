@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Idealismo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Idealismo [do latim ideale + -ismo] - Nome genérico de diversos sistemas filosóficos modernos que reduzem as coisas a alguma entidade de ordem subjetiva, ao espírito, p.ex., o ser ao pensamento. 

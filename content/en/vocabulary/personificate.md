@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Personificar
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Personificar - [do latim persona+facere]. Considerar como pessoa. Atribuir a uma coisa inanimada, a uma abstração, a imagem, os sentimentos ou a linguagem de uma pessoa real. Realizar ou representar na figura de uma pessoa; exprimir por um tipo. 

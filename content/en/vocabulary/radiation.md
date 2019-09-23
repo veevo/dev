@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Radiação
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Radiação [do latim radiatione] - 1. Ato ou efeito de radiar. 2. Qualquer dos processos físicos de emissão e propagação de energia. 

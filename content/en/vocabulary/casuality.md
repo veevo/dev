@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Causalidade
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Causalidade [do latim causale + -idade] - Chama-se princípio ou lei da causalidade ao axioma segundo o qual todo o fenômeno tem uma causa. Lei de causalidade é o mesmo que [Lei de Causa e Efeito](/divine-laws/cause-effect) ou [Lei de Ação e Reação](/divine-laws/action-reaction).

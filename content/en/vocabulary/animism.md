@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Animism
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 All mediums and directors of mediumship sessions must be aware of, and know how to recognize, the phenomenon of animism.  Animism is a state of trance, provoked unconsciously and unintentionally, by the spirit of the medium.  This is made possible by the property of expansion of the medium’s perispirit, and occurs without any intervention from another spirit.  As the author, Martins Peralva, writes, "Many times, that which appears to be a mediumistic trance, with all the appearances of the influence of a spirit, is nothing more than the medium, naturally a maladjusted medium, reliving scenes and events extracted from his own subconscious mind, a phenomena which is provoked by the magnetic contact, meaning the approach of entities with whom the medium shares experiences of the remote past.  In the phenomena of animism, the medium expresses himself as if there were truly a discarnate spirit there to communicate."

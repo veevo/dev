@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Incorporação
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Incorporação [do latim incorporatione] – 1. Ato ou efeito de incorporar(-se). 2. O termo incorporação tem sido aplicado inadequadamente à mediunidade psicofônica, pois não tem como dois espíritos ocuparem o mesmo corpo. No entanto, alguns teóricos espíritas afirmam que a incorporação se dá quando o Espírito, ainda que sob o controle do médium, tem a liberdade de movimentar por completo o corpo do mesmo, o que seria também chamado de psicopraxia. 

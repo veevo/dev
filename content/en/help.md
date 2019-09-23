@@ -1,23 +1,20 @@
 ---
-layout: default
 title: Help
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2020-01-01
+image: "images/contact.jpg"
 ---
 
 ## Getting Started
-Want to <a href="/get-started/">get started</a>? We have prepared a special section to help with that.
-
+Want to 
 ## About Veevo.org
-Want to know more about us? Check the <a href="/about">about</a> and <a href="/disclaimer">pages</a> for more information.
-
+Want to know more about us? Check the 
 ## What is Spiritism?
-All that we present has to adhere to the principles of Spiritism. Check out <a href="/spiritism/faq">Spiritism - FAQ</a> and <a href="/spiritism/learn">Spiritism - Introduction</a> for more information about it.
-
+All that we present has to adhere to the principles of Spiritism. Check out 
 
 ## About Veevo.org
-Want to know more about us? Check the <a href="/about">about page</a> for more information.
-
+Want to know more about us? Check the 
 ## Contributing
-A big part of what we do is based on contributions. Want to help? Check our <a href="/contribute">contribute</a> page for more information.
-
+A big part of what we do is based on contributions. Want to help? Check our 
 ## Reporting Errors
-Since we also make mistakes, everyone is invited to <a href="/report-error">report errors</a>. We will be happy to fix them as fast as possible.
+Since we also make mistakes, everyone is invited to 

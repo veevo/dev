@@ -1,10 +1,8 @@
 ---
-layout: default-md
-section: Veevo.org
 title: About Us
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date: 2019-02-13 14:00:00
-hide_share: true
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2020-01-01
+image: "images/contact.jpg"
 ---
 
 Veevo.org is an independent, privacy-focused, completely volunteered developed and run organization. We don't host ads, we don't get any financial benefit and we will never will.
@@ -48,4 +46,4 @@ While every published content is reviewed and validated against the [Spiritist D
 [Veevo.org - Disclaimer](/disclaimer)  
 
 
-<a href="/get-started" class="button special">Get Started</a>
+

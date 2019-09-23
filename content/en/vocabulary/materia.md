@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Matéria
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Matéria - Laço que prende o Espírito. Agente, intermediário com o auxílio do qual e sobre o qual atua o Espírito.

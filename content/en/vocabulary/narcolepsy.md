@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Narcolepsia
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Narcolepsia [do grego nárke= torpor + lepsis= acesso] – Desejo incontrolável de dormir ou acessos repentinos de sono que aparecem a intervalos.

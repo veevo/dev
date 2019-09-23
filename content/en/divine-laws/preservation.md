@@ -1,8 +1,6 @@
 ---
-layout: default-md
-section: Divine Laws
 title: Preservation
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
 tags: 
 - divine-law
@@ -16,4 +14,4 @@ To fulfill the plans that make up the designs of Providence, all beings must hav
 TODO
 
 
-<a href="/divine-laws" class="button special">All Divine Laws</a>
+

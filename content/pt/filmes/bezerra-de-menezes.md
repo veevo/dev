@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Filmes
 title: Bezerra de Menezes
-subtitle: Carlos Vereza, Lúcio Mauro
+description: Thou shalt love thy neighbour as thyself On these two commandments hang all the Law the prophet Carlos Vereza, Lúcio Mauro
+date: 2020-01-01
 tags: 
 - movie
 - spiritist-movie
@@ -25,4 +24,4 @@ Contar a vida desse ilustre Cearense é um projeto que ambiciona, mais do que pr
 TODO
 
 
-<a href="/movies" class="button">All Movies</a>
+

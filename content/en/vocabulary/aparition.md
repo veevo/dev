@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Aparição
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Aparição [do latim apparitione] - 1. Aparecimento, presença rápida e breve de pessoa ou coisa. 2. Espectro, fantasma. 3. Visão de um ser fantástico ou sobrenatural. 4. Astron. Momento em que um astro começa a se fazer visível ao observador. 5. Origem, princípio.

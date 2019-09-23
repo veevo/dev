@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Ovóides
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Estágio de degradação a que chegam certos espíritos sofredores-obsessores. O espírito, ligado ao obsediado, de maneira intrínseca no seu afã de prejudicar, adquire uma forma ovóide, assemelhando-se á um ovo de consistência indefinida que se "cola" no corpo de seu alvo distorcendo-lhe pensamentos, opiniões e agindo incessantemente para lhe proporcionar toda sorte de infortúnios.

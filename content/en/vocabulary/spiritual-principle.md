@@ -1,16 +1,12 @@
 ---
-layout: default-md
-section: About
 title: Princípio espiritual
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Princípio espiritual - Princípio a partir do qual se dá a individualização do espírito. Um dos elementos gerais do Universo em parceria com o Fluido Cósmico Universal.
-
-
 
 ## See Also
 TODO

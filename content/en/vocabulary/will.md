@@ -1,15 +1,12 @@
 ---
-layout: default-md
-section: About
 title: Vontade
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Vontade [do latim voluntate] - 1. Faculdade de mentalmente desejar um ato que pode ou não ser executado. 2. Sentimento que leva a pessoa a atingir o fim a que mentalmente se propôs. 3. Firmeza moral. Desejo; intenção; gosto; empenho; interesse; necessidade física ou moral; apetite; disposição favorável ou não.
-
 
 ## See Also
 TODO

@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: About
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 <div>
@@ -17,8 +15,7 @@ tags:
             {% for tag in post.tags %}
             {% if tag == "about" %}
                 <li>
-                    <a href="{{ post.url }}">{{ post.title }}</a><br>
-                    <p>{{ post.subtitle }}</p>
+                                        <p>{{ post.subtitle }}</p>
                 </li>
             {% endif %}
             {% endfor %}

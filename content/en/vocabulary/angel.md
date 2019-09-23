@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Angels
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Anjo [do latim: angelus; do grego: aggelos= mensageiro] - Segundo a Doutrina Espírita, os anjos não são seres aparte e de uma natureza especial. São os Espíritos da primeira ordem, isto é, os que chegaram ao estado de puros Espíritos depois de terem sofrido todas as provas.

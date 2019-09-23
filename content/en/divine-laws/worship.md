@@ -1,8 +1,6 @@
 ---
-layout: default-md
-section: Divine Laws
 title: Worship
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
 tags: 
 - divine-law
@@ -12,9 +10,14 @@ Worship, the result of an unborn feeling or innate instinct, is the act of raisi
 
 From the moment our spirit is created, even before our first earthly incarnation, we all instinctively possess an understanding of the existence of God. We innately realize God exists, that this is our creator and that we possess the tool to communicate with this creator, the tool of prayer. This is the actual cause for divine worship found in all human cultures no matter how diverse and isolated. 
 
+# Definitions
+Adoração: [do latim adoratione]. Ato de adorar a Deus; respeito; submissão. Uma das dez leis morais.
+
+Adorar [do latim adorare] - 1. Render culto a (divindade). 2. Reverenciar, venerar, idolatrar, amar extremosamente. 3. É a elevação do pensamento a Deus, pois que, pela adoração, a alma se aproxima Dele.
+
 
 ## See Also
 TODO
 
 
-<a href="/divine-laws" class="button special">All Divine Laws</a>
+

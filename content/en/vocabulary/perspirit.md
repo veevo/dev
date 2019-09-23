@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Perispírito
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Perispírito [do latim peri= em redor + spiritus= espírito] - Invólucro semimaterial do Espírito depois de sua separação do corpo. Nos encarnados, serve de laço ou intermediário entre o Espírito e a matéria. O Espírito o tira do mundo em que se acha e o troca ao passar de um a outro. Ele é mais ou menos sutil ou grosseiro, segundo a natureza de cada globo. O perispírito pode tomar todas as formas à vontade do Espírito; ordinariamente ele assume a imagem que este tinha em sua última existência corporal.

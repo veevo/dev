@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Vampirismo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Vampirismo [do húngaro vampir e do francês vampire] – Absorção das forças psíquicas de encarnados e desencarnados por parte de Espíritos obsessores.

@@ -1,11 +1,10 @@
 ---
-section: Veevo.org
 title: Disclaimer
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-date: 2019-02-13 14:00:00
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2020-01-01
+image: "images/contact.jpg"
 ---
 
-## Introduction
 Veevo.org is an independent, privacy-focused, completely volunteered developed and run organization. We don't host ads. We don't benefit financially from this site and we never will.
 
 Our mission is different: we expect to provide light to the human being through the teachings of [Spiritism](/spiritism).
@@ -46,4 +45,4 @@ In case any of the published content violates any copyright, feel free to [conta
 [Veevo.org - Help](/help)  
 
 
-<a href="/get-started" class="button special">Get Started</a>
+

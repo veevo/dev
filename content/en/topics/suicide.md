@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Topics
 title: Suicide
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
 tags: 
 - topics
 ---

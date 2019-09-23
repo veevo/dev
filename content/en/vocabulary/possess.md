@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Possesso
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Possesso [do latim possessu] – Segundo a idéia ligada a essa palavra, o possesso é aquele no qual um demônio veio alojar-se. Tomando o demônio não em sua acepção vulgar, mas no sentido de Espírito mau, Espírito impuro, Espírito malfazejo, Espírito imperfeito, tratar-se-ia de saber se um Espírito desta natureza ou outro qualquer pode eleger domicílio no corpo de um homem conjuntamente com o que nele está encarnado, ou a ele se substituindo. Poder-se-ia perguntar que destino toma, neste último caso, a alma assim expulsa.

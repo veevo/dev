@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Noctâmbulo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Noctâmbulo [do latim nox, noctis= a noite + ambulare= marchar, passear] – Aquele que marcha ou passeia durante a noite, dormindo; sinônimo de sonâmbulo. 

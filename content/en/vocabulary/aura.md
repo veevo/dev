@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Aura
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Aura [do latim aura] - Emanação fluídica do corpo humano e dos demais corpos. A aura é uma radiação que cobre todo o corpo físico, através dele são evidenciadas as emanações da parte física, mental e emocional.É o espelho que mostra toda nossa situação espiritual.Quando uma pessoa está tomada de raiva, seu aura mostra emanações curtas e avermelhadas.Quando nos tomamos pelo ciúme ele adquire uma coloração roxa.Quando nossos sentimentos são puros, desprovidos de qualquer paixão carnal, ele toma uma coloração azul e se torna amplo com grande faixa de irradiação.Ele é dividido em três zonas distintas.:

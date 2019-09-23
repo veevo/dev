@@ -1,11 +1,10 @@
 ---
-layout: default-md
-section: Virtues
 title: Virtues
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-02-01 19:00:00
+tags: 
+- virtuess
 ---
-
-## Introduction
 
 Virtue-based ethical theories focus on helping people develop good character traits, such as [kindness](kindness) and [generosity](generosity). These character traits will, in turn, allow a person to make the correct decisions later on in life. Virtue theorists also emphasize the need for people to learn how to break bad habits of character, like [greed](greed) or [anger](anger)
 

@@ -1,17 +1,14 @@
 ---
-layout: default-md
-section: About
 title: Jesus
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Jesus – O ser mais perfeito que Deus ofereceu aos homens para lhes servir de modelo e guia.
 
 O espírito de maior grau ou patente evolutiva já encarnado no planeta terra. Segundo a doutrina espírita, Jesus é o "administrador" espiritual do planeta e de todos os espíritos que nele se encontram, sejam encarnados ou não. Sob sua tutela estão todos os espíritos aqui existentes. Trata-se de uma entidade espiritual de altíssima evolução moral cujas faculdades morais e espirituais jamais poderiamos definir em nossa linguagem.
-
 
 ## Who is Jesus?
 Jesus is the "greatest model of charity and moral perfection that we have to follow" [1].

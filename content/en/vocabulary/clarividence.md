@@ -1,18 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Clarividência
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-subtitle: TODO
-date: 2019-02-01 19:00:00
-tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Clarividência [do latim claru + -i- + videntia] - 1. Para a Doutrina Espírita, é propriedade inerente à alma e que dá a certas pessoas a faculdade de ver sem o auxílio dos órgãos da visão. 2. Visão mais perfeita, mais clara.

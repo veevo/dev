@@ -1,10 +1,9 @@
 ---
-layout: default-md
-section: Filmes
 title: Estudo - Os chakras e suas funções
-subtitle: TODO
+description: Aprenda sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.
+date: 2020-01-01
 tags: 
-- video
+- videos
 ---
 
 ## Introdução

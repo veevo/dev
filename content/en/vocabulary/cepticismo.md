@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Cepticismo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Cepticismo [de céptico]. Doutrina que interdita (em grau diverso), a possibilidade de o homem atingir a certeza e preconiza a suspensão do juízo, afirmativo ou negativo, em todos ou em determinados domínios. Propensão à dúvida. Estado de quem duvida de tudo. Descrença. 

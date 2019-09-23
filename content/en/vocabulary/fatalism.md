@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Fatalismo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Fatalismo [do latim fatale + -ismo] - Corrente filosófica segundo a qual as coisas estão predeterminadas e se produzirão, apesar do esforço contrário da inteligência e da vontade. Observação: o Espiritismo não se vincula a tal modo de ver e interpretar os fatos da vida. Ver: Livre-arbítrio.

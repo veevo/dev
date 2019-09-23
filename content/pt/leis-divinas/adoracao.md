@@ -1,8 +1,6 @@
 ---
-layout: default-md
-section: Divine Laws
 title: Worship
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
 tags: 
 - divine-law
@@ -17,4 +15,4 @@ From the moment our spirit is created, even before our first earthly incarnation
 TODO
 
 
-<a href="/divine-laws" class="button special">All Divine Laws</a>
+

@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Pneumatofonia
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Pneumatofonia [do grego pneuma= ar, e de phoné= som ou voz] - Comunicação verbal e direta dos Espíritos sem o concurso dos órgãos fonadores humanos. Voz direta.

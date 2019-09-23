@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Loucura
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 O Espiritismo explica a loucura assim como todas as deformações psíquicas do caráter humano pela lei da ação e reação. Um espírito padecedor de loucura, em todas suas formas assim como desvios do caráter como esquizofrenias, personalidades psicóticas, etc, expia por erros pregressos, geralmente graves.

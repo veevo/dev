@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Umbral
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Universo - [do latim universu]. Conjunto ilimitado de todo o espaço existente e o seu conteúdo. 

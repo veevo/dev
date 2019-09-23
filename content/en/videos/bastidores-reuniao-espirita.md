@@ -1,10 +1,9 @@
 ---
-layout: default-md
-section: Filmes
 title: Nos bastidores de uma Reunião Espírita
-subtitle: Aprenda sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.
+description: Aprenda sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.
+date: 2020-01-01
 tags: 
-- video
+- videos
 ---
 
 Este e um vídeo explicativo, com narrativa ilustrada, sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.

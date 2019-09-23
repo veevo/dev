@@ -1,8 +1,6 @@
 ---
-layout: default-md
-section: Laws
 title: Divine Laws
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## About Divine Laws
@@ -20,8 +18,7 @@ We are frequently updating our virtues so be sure to be back or subscribe for no
         {% for tag in post.tags %}
         {% if tag == "divine-law" %}
             <li>
-                <a href="{{ post.url }}">{{ post.title }}</a><br>
-                <p>{{ post.subtitle }}</p>
+                                <p>{{ post.subtitle }}</p>
             </li>
         {% endif %}
         {% endfor %}

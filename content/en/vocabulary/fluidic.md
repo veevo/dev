@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Fluídico
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Fluídico [do latim fluidu] - 1. Relativo ou semelhante a fluido. 2. Etérico ou imponderável.

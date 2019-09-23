@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Purgatório
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Purgatório [do latim purgatorium= efeito de purgare= purgar; raiz purus= puro, que se derivado do grego pyr, pyrus= fogo, antigo emblema da purificação] – Lugar de expiação temporária, segundo a Igreja Católica, para as almas que têm ainda que se purificar. A Igreja não define de um modo preciso o lugar onde se acha o Purgatório e não se explica mais claramente sobre a natureza das penas ali sofridas. O ensino dos Espíritos é muito mais explícito a este respeito.

@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Centro Espírita
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Centro Espírita - 1. Casa ou sociedade espírita. 2. Local de reunião dos espíritas, para orar e praticar a Doutrina dos Espíritos. 3. Sociedade civil legalmente constituída, com a finalidade de praticar o Espiritismo.

@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Filmes
 title: As Cartas Psicografadas de Chico Xavier 
-subtitle: Terence Stamp, Ron Moody
+description: Thou shalt love thy neighbour as thyself On these two commandments hang all the Law the prophet Terence Stamp, Ron Moody
+date: 2020-01-01
 tags: 
 - movie
 - spiritist-movie
@@ -24,4 +23,4 @@ https://www.youtube.com/watch?v=LboiqgLWbV0
 TODO
 
 
-<a href="/movies" class="button">All Movies</a>
+

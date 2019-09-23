@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Necromancia
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Necromancia [do grego nekros= morte + mantéia= adivinhação] – Arte de evocar as almas dos mortos para obter delas revelações. Por extensão, esta palavra foi aplicada a todos os meios de adivinhação. Ver: Quiromancia e Cartomancia.

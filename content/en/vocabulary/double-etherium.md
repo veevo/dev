@@ -1,14 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Duplo Etéreo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
-date: 2019-02-01 19:00:00
-tags: 
-- about
+- vocabulary
 ---
 
 Duplo Etéreo – Algumas regiões do Brasil preferem duplo etéreo a perispírito, embora mantendo-se o sentido deste. Há porém de se diferenciar o duplo etéreo - apontado pelos pesquisadores do magnetismo - , do perispírito propriamente dito. O primeiro refere-se ao conjunto de interações de natureza magnética que é inerente a vida e que somente com esta pode se manifestar, desfazendo-se com a morte do corpo físico.

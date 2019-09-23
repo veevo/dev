@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Missionário
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Missionário - [do francês missionaire]. Propagandista de uma idéia. Aquele que missiona, que prega a fé, evangeliza. 

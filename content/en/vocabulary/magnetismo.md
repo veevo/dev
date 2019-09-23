@@ -1,11 +1,9 @@
 ---
-layout: default-md
-section: About
 title: Magnetismo
-subtitle: TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
 tags:
-- about
+- vocabulary
 ---
 
 Magnetismo [do francês magnétisme] – 1. É o processo pelo qual o homem, emitindo energia do seu perispírito, age sobre outro homem, bem como sobre todos os corpos animados ou inanimados. 2. O magnetismo, chamado também de magnetismo animal, pode ser assim definido: ação recíproca de dois seres vivos por intermédio de um agente especial chamado fluido magnético.
