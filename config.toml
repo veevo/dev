@@ -114,18 +114,6 @@ copyright = ", Veevo.org"
 	URL = "/spiritism/learn"
 
     [[params.footer.spiritism]]
-	name = "The Codification"
-	URL = "/spiritism/codification"
-	
-    [[params.footer.spiritism]]
-	name = "Foundations"
-	URL = "/spiritism/foundations" 
-
-    [[params.footer.spiritism]]
-	name = "Who was Allan Kardec?"
-	URL = "/spiritism/allan-kardec"
-
-    [[params.footer.spiritism]]
 	name = "Spiritist Councils"
 	URL = "/spiritism/councils"
 
@@ -152,7 +140,7 @@ copyright = ", Veevo.org"
 	URL = "studies"
     
     [[params.footer.resources]]
-	name = "Topics"
+	name = "Browse by Topic"
 	URL = "topics"
     
     [[params.footer.resources]]
@@ -167,68 +155,69 @@ copyright = ", Veevo.org"
 	name = "Videos"
 	URL = "videos"
     
-    [[params.footer.resources]]
-	name = "Knowledge Base"
-	URL = "kb"
 
-    
     # Help
-    [[params.footer.help]]
-	name = "Get Started"
-	URL = "get-started"
+    [[params.footer.contribute ]]
+	name = "How can you help"
+	URL = "contribute/"
     
+    [[params.footer.contribute ]]
+	name = "Contribute"
+	URL = "contribute/how"
+
+    [[params.footer.contribute ]]
+	name = "Translate"
+	URL = "contribute/translate"
+
+    [[params.footer.contribute ]]
+	name = "Report an error"
+	URL = "contribute/report-error"
+
+    [[params.footer.contribute ]]
+	name = "Submit a Fix"
+	URL = "contribute/submit-a-fix"
+
+	[[params.footer.contribute ]]
+	name = "Share"
+	URL = "contribute/share"
 
 
+	# social site
+	[[params.social]]
+	icon = "ti-facebook"
+	URL = "https://facebook.com/veevo"
+	  
+	[[params.social]]
+	icon = "ti-twitter-alt"
+	URL = "https://twitter.com/veevo"
+	
+	[[params.social]]
+	icon = "ti-linkedin"
+	URL = "https://linkedin.com/veevo"
+	  
+	[[params.social]]
+	icon = "ti-github"
+	URL = "https://github.com/veevo"
 
 
-  # social site
-  [[params.social]]
-  icon = "ti-facebook"
-  URL = "https://facebook.com/veevo"
-  
-  [[params.social]]
-  icon = "ti-twitter-alt"
-  URL = "https://twitter.com/veevo"
-  
-  [[params.social]]
-  icon = "ti-linkedin"
-  URL = "https://linkedin.com/veevo"
-  
-  [[params.social]]
-  icon = "ti-github"
-  URL = "https://github.com/veevo"
+	# about-us
+	[[params.help]]
+	name = "About Us"
+	URL = "about-us"
 
+	[[params.help]]
+	name = "Pillars"
+	URL = "pillars"
 
-  # about-us
-  [[params.help]]
-  name = "About Us"
-  URL = "about-us"
+	[[params.help]]
+	name = "Disclaimer"
+	URL = "disclaimer"
 
-  [[params.help]]
-  name = "Pillars"
-  URL = "pillars"
+	[[params.help]]
+	name = "Contact"
+	URL = "contact-us"
 
-  [[params.help]]
-  name = "Contribute"
-  URL = "contribute"
-
-  [[params.help]]
-  name = "Report an error"
-  URL = "report-error"
-
-  [[params.help]]
-  name = "Translate"
-  URL = "translate"
-
-  [[params.help]]
-  name = "Disclaimer"
-  URL = "disclaimer"
-
-  [[params.help]]
-  name = "Contact"
-  URL = "contact-us"
-
-  [[params.help]]
-  name = "Blog"
-  URL = "Our Blog"
+	[[params.help]]
+	name = "Blog"
+	URL = "Our Blog"
 
