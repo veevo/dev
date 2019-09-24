@@ -1,7 +1,7 @@
 ---
 title: Bezerra de Menezes
 description: Thou shalt love thy neighbour as thyself On these two commandments hang all the Law the prophet Carlos Vereza, Lúcio Mauro
-date: 2020-01-01
+date: 2019-01-01
 tags: 
 - movie
 - spiritist-movie

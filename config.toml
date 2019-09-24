@@ -1,6 +1,6 @@
 baseURL = "https://veevo.org/"
-languageCode = "en-us"
-title = "Veevo | Know thyself"
+#languageCode = "en-us"
+#title = "Veevo | Know thyself"
 theme = "parsa"
 summaryLength = "10"
 paginate = 6
@@ -8,6 +8,22 @@ paginate = 6
 [outputs]
   home = ["HTML", "AMP", "RSS", "JSON"]
   page = ["HTML"]
+
+
+[languages]
+  [languages.en]
+    baseURL = "https://www.veevo.org/en"
+    languageName = "English"
+    title = "Veevo | Know Thyself"
+    weight = 1
+	contentDir = "content/en"
+  [languages.fr]
+    baseURL = "https://www.veevo.org/pt"
+    languageName = "Portugues"
+    title = "Veevo | Conhece-te a ti mesmo"
+    weight = 2
+	contentDir = "content/pt"
+
 
 # Plugins
 [params.plugins]
@@ -103,27 +119,27 @@ copyright = ", Veevo.org"
     # spiritism
     [[params.footer.spiritism]]
 	name = "Introduction"
-	URL = "/spiritism"
+	URL = "spiritism"
     
     [[params.footer.spiritism]]
 	name = "FAQ"
-	URL = "/spiritism/faq"
+	URL = "spiritism/faq"
 
     [[params.footer.spiritism]]
 	name = "Learn"
-	URL = "/spiritism/learn"
+	URL = "spiritism/learn"
 
     [[params.footer.spiritism]]
 	name = "Spiritist Councils"
-	URL = "/spiritism/councils"
+	URL = "spiritism/councils"
 
     [[params.footer.spiritism]]
 	name = "Spiritist Centers"
-	URL = "/spiritism/centers"
+	URL = "spiritism/centers"
 
     [[params.footer.spiritism]]
 	name = "Advanced Topics"
-	URL = "/spiritism/advanced"
+	URL = "spiritism/advanced"
 
     
     # Resources
@@ -203,21 +219,21 @@ copyright = ", Veevo.org"
 	# about-us
 	[[params.help]]
 	name = "About Us"
-	URL = "about-us"
+	URL = "help/about-us"
 
 	[[params.help]]
 	name = "Pillars"
-	URL = "pillars"
+	URL = "help/pillars"
 
 	[[params.help]]
 	name = "Disclaimer"
-	URL = "disclaimer"
+	URL = "help/disclaimer"
 
 	[[params.help]]
-	name = "Contact"
-	URL = "contact-us"
+	name = "Contact Us"
+	URL = "help/contact-us"
 
 	[[params.help]]
 	name = "Blog"
-	URL = "Our Blog"
+	URL = "help/Our Blog"
 

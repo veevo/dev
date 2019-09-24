@@ -37,9 +37,9 @@ We don't host ads, we don't get any financial benefit from this site and we will
 
 If ever, we kindly ask our readers to volunteer in [Spiritist Centers](/spiritism/centers), divulging Spiritism or working on a local charity. Check the [Charity - Virtue](/virtues/charity) page for more information on how we understand charity and how it is different from the materialist aspect of simply donating money.
 
-# Related
-[Veevo.org - About Us](/about-us)  
-[Veevo.org - Disclaimer](/disclaimer)  
-[Veevo.org - Help](/help)  
+## Related
+[About Us](/about-us)  
+[Disclaimer](/disclaimer)  
+[Help](/help)  
 
 

@@ -1,7 +1,7 @@
 ---
 title: Estudo - Os chakras e suas funções
 description: Aprenda sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.
-date: 2020-01-01
+date: 2019-01-01
 tags: 
 - videos
 ---

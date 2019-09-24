@@ -41,7 +41,7 @@ h1, h2, h3, h4, h5, h6 {
   font-family: "Open Sans";
   font-weight: 600;
   line-height: 1.2;
-  padding: 0.5rem 0 0 0;
+  padding: 1rem 0 0 0;
 }
 
 h1, .h1 {
@@ -55,7 +55,7 @@ h1, .h1 {
 }
 
 h2, .h2 {
-  font-size: 40px;
+  font-size: 30px;
 }
 
 @media (max-width: 767px) {
@@ -281,8 +281,7 @@ a.text-dark:hover {
 }
 
 .section {
-  padding-top: 60px;
-  padding-bottom: 60px;
+  padding: 40px 0;
 }
 
 .section-sm {
@@ -817,9 +816,11 @@ blockquote {
   font-weight: 600;
 }
 
+/*
 .content * {
   margin-bottom: 20px;
 }
+*/
 
 .content img{
   max-width: 100%;
