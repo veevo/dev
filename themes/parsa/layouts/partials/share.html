@@ -1,0 +1,12 @@
+  <div class="widget">
+    <h6 class="mb-4">TOPICS</h6>
+    {{- if isset .Site.Taxonomies "topics" }}
+    {{- if not (eq (len .Site.Taxonomies.topics) 0) }}
+    <ul class="list-inline tag-list">
+      {{- range $name, $items := .Site.Taxonomies.topics }}
+      <li class="list-inline-item m-1"><a href="{{ "topics/" | relLangURL }}{{ $name | urlize | lower }}">{{ $name | humanize }}</a></li>
+      {{- end }}
+    </ul>
+    {{- end }}
+    {{- end }}
+  </div>

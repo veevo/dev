@@ -2,8 +2,11 @@
 title: Society
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- divine-law
+image: "images/contact.jpg"
+categories:
+- "divine-laws"
+topics: 
+- society
 ---
 
 The forming of societies is natural to human beings, it is necessary for intellectual and ethical progress.

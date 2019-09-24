@@ -2,8 +2,11 @@
 title: Preservation
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- divine-law
+image: "images/contact.jpg"
+categories:
+- "divine-laws"
+topics: 
+- progress
 ---
 
 Human Beings are given the free will to act, but they must answer for the consequences of their actions.

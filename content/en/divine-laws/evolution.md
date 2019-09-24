@@ -2,8 +2,11 @@
 title: Evolution
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- divine-law
+image: "images/contact.jpg"
+categories:
+- "divine-laws"
+topics: 
+- evolution
 ---
 
 Lei a qual todos os espíritos estão subordinados. Todos os espíritos progridem. Jesus, o espírito mais iluminado que já encarnou na terra, já foi um antropófago, um selvagem.Assim como um assassino chegará, mais tempo menos tempo, de acordo com o seu progresso ,a ser um regente espiritual de um planeta , um anjo, um arcanjo e assim por diante.

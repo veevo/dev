@@ -2,8 +2,11 @@
 title: Reproduction
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- divine-law
+image: "images/contact.jpg"
+categories:
+- "divine-laws"
+topics: 
+- reproduction
 ---
 
 Simply put, for all beings to continue to exist and evolve in the material world reproduction in some form is a necessity. As for humans, reproduction is a necessity in order for spirits to continue to have opportunities for incarnation and reincarnation. 

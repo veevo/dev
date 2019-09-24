@@ -2,8 +2,11 @@
 title: Free Will
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- divine-law
+image: "images/contact.jpg"
+categories:
+- "divine-laws"
+topics: 
+- "free-will"
 ---
 
 Livre-arbítrio – 1. Liberdade de juízo e de conduta, entendida como resultado puro da vontade, quando perante uma escolha. 2. É a liberdade moral do homem, faculdade que ele tem de se guiar pela sua vontade na realização de seus atos. Os Espíritos ensinam que a alteração das faculdades mentais, por uma causa acidental ou natural, é o único caso em que o homem fica privado de seu livre-arbítrio. Fora disso, é sempre senhor de fazer ou de não fazer. Ver: Fatalidade.

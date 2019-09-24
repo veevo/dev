@@ -2,8 +2,11 @@
 title: Destruction
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- divine-law
+image: "images/contact.jpg"
+categories:
+- "divine-laws"
+topics: 
+- destruction
 ---
 
 All things in the material world, everything from a human body to the worlds in our solar system will eventually end. The elements within them of course will simply change from one form to another. This change is a necessity because from it comes renewal. On a smaller scale on earth there is constant birth, death and rebirth, materially speaking. Fire and natural calamities bring much destruction but eventually it brings about renewal. For intelligent beings like us, destruction is just another tool for learning. As our bodies decay we endure and learn from these changes. For human societies, destruction and rebuilding means grouth and new opportunities for the society to take more positive paths to meet its goals.

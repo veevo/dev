@@ -2,11 +2,16 @@
 title: Justice, Love and Charity
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- divine-law
+image: "images/contact.jpg"
+categories:
+- "divine-laws"
+topics: 
+- justice
+- love
+- charity
 ---
 
-As humans, we are born with a natural notion of justice, which is the respect for others' rights, though often our worldly ambitions blur our true sense of justice.  These rights are determined by human law, based on present, yet evolving societal values which are not always consistent with true justice, and by natural law, the criterion for which is to wish for others what we would wish for ourselves.  Also, using this criterion, our deep down consciousness of our own strengths and weaknesses will allow us to sense when to defer and show respect for those whose wisdom or virtues set them apart.  The most important among our natural rights is the right to life.  We do have the right to accumulate wealth and possessions, but this should be the result of honest work and a selfless stance towards life and family, and should be acquired without injury to others.
+As humans, we are born with a natural notion of justice, which is the respect for others' rights, though often our worldly ambitions blur our true sense of justice.  These rights are determined by human law, based on present, yet evolving societal values which are not always consistent with true justice, and by natural law, the criterion for which is to wish for others what we would wish for ourselves.  Also, using this criterion, our deep down consciousness of our own strengths and weaknesses will allow us to sense when to defer and show respect for those whose wisdom or "divine-laws" set them apart.  The most important among our natural rights is the right to life.  We do have the right to accumulate wealth and possessions, but this should be the result of honest work and a selfless stance towards life and family, and should be acquired without injury to others.
 
 The true meaning of love in Jesus' teaching to "Love Thy Neighbor" means compassion for everyone, tolerance for the imperfections of others, and forgiveness of all offenses.  "Loving one's enemies" does not mean to feel an ardent and tender affection for those who have hurt or offended us, but rather to forgive them and return good for wrong-doing.  True charity refers to a compassionate and discrete assistance to those in need causing humiliation.
 

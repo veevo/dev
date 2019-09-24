@@ -24,6 +24,9 @@ paginate = 6
     weight = 2
 	contentDir = "content/pt"
 
+[taxonomies]
+  category = "categories"
+  topic = "topics"
 
 # Plugins
 [params.plugins]
@@ -156,7 +159,7 @@ copyright = ", Veevo.org"
 	URL = "studies"
     
     [[params.footer.resources]]
-	name = "Browse by Topic"
+	name = "Topics"
 	URL = "topics"
     
     [[params.footer.resources]]
@@ -171,6 +174,10 @@ copyright = ", Veevo.org"
 	name = "Videos"
 	URL = "videos"
     
+    [[params.footer.resources]]
+	name = "Laws"
+	URL = "laws" 
+
 
     # Help
     [[params.footer.contribute ]]

@@ -2,8 +2,11 @@
 title: Attraction
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- divine-law
+image: "images/contact.jpg"
+categories:
+- "divine-laws"
+topics: 
+- attraction
 ---
 
 The moral and trustworthy nature of the intuitions we receive relates directly to the kinds of spirits that they come from. So, do we have any control over the kinds of spirits who transmit these thoughts to us?  In fact we do, and the answer stems from the Law of Moral Affinity, which says that individuals of a like moral nature attract one another, and those of a contrary moral nature repel one another. The kinds of spirits who accompany us and inspire us are those who are attracted to us through this moral or vibrational affinity, which depends on the thoughts we cultivate and the behaviors that are habitual to us. 
