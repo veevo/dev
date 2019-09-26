@@ -1,9 +1,15 @@
 ---
 title: "Astral City: A Spiritual Journey"
-description: Thou shalt love thy neighbour as thyself On these two commandments hang all the Law the prophets In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-01
-tags:
-- movies
+image: "images/contact.jpg"
+topics:
+- reincarnation
+- death
+- "life after death"
+- "hell"
+categories:
+- "movies"
 ---
 
 Based on the best selling book [Nosso Lar](/books/andre-luis/nosso-lar) by the medium [Chico Xavier](/profiles/chico-xavier), the film tells the story of Andre Luiz, a successful doctor who experiences an enlightening spiritual awakening after his death. When he wakes up in the spiritual world, he embarks on a new journey of self-discovery and transformation, from his first days in a dimension of pain and suffering, until when he is rescued and taken to the spiritual Astral City.

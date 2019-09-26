@@ -2,8 +2,12 @@
 title: Nos bastidores de uma Reunião Espírita
 description: Aprenda sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.
 date: 2019-01-01
-tags: 
-- videos
+image: "images/contact.jpg"
+categories: 
+- "divine-laws"
+topics: 
+- "action-reaction"
+- karma
 ---
 
 Este e um vídeo explicativo, com narrativa ilustrada, sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.
@@ -15,4 +19,3 @@ Este e um vídeo explicativo, com narrativa ilustrada, sobre os bastidores de um
 TODO
 
 
-<a href="/videos" class="button special">All Videos</a>

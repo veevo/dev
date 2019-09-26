@@ -1,9 +1,14 @@
 ---
 title: Chico Xavier's Life
 description: Thou shalt love thy neighbour as thyself On these two commandments hang all the Law the prophets 
-tags: 
-- movie
-- spiritist-movie
+date: 2019-01-11 13:00:00
+image: "images/contact.jpg"
+topics: 
+- "Chico Xavier"
+- mediunimity
+- spirits
+categories:
+- "movies"
 ---
 
 TODO 

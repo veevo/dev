@@ -2,11 +2,14 @@
 title: Estudo - Os chakras e suas funções
 description: Aprenda sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.
 date: 2019-01-01
-tags: 
-- videos
+image: "images/contact.jpg"
+categories: 
+- "divine-laws"
+topics: 
+- "action-reaction"
+- karma
 ---
 
-## Introdução
 Vamos estudar aqui o tópico Os chakras do perispírito e as suas funções físicas, psíquicas e espirituais disponibilizado pelo Programa Espiritizar do site www.espiritizar.org, Curso Fluidoterapia Espírita com Alírio de Cerqueira Filho.
 
 ## Video 1/2
@@ -20,4 +23,3 @@ Vamos estudar aqui o tópico Os chakras do perispírito e as suas funções fís
 [Estudo sobre Chakras - Estudo](/spiritism/chakras)
 
 
-<a href="/videos" class="button special">All Videos</a>

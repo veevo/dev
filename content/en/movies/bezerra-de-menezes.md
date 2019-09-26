@@ -2,8 +2,14 @@
 title: Bezerra de Menezes
 description: Thou shalt love thy neighbour as thyself On these two commandments hang all the Law the prophets Carlos Vereza, Lúcio Mauro
 date: 2019-01-01
-tags:
-- movies
+image: "images/contact.jpg"
+topics:
+- virtues
+- patience
+- resilience
+- renounciation
+categories:
+- "movies"
 ---
 
 A vida de nosso personagem começa em 1831, na localidade de Riacho do Sangue, Ceará.
