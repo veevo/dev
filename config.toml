@@ -185,10 +185,6 @@ copyright = ", Veevo.org"
 	URL = "contribute/"
     
     [[params.footer.contribute ]]
-	name = "Contribute"
-	URL = "contribute/how"
-
-    [[params.footer.contribute ]]
 	name = "Translate"
 	URL = "contribute/translate"
 
