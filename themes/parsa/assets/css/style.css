@@ -281,7 +281,7 @@ a.text-dark:hover {
 }
 
 .section {
-  padding: 40px 0;
+  padding: 20px 0;
 }
 
 .section-sm {
@@ -439,6 +439,7 @@ textarea.form-control {
   transition: all .4s ease-in-out;
   padding: 10px 40px;
   background-color: #fff;
+  border-bottom: 1px solid #ff6f00;
 }
 
 @media (max-width: 575px) {
@@ -469,6 +470,11 @@ textarea.form-control {
   .navbar .nav-item .nav-link {
     padding: 10px;
   }
+}
+
+.navbar-brand {
+  font-size: 1.5rem;
+  line-height: inherit;
 }
 
 .navbar .dropdown:hover .dropdown-menu {
@@ -866,6 +872,13 @@ blockquote {
 
 .border {
   border: 1px solid !important;
+}
+
+.breadcrumb {
+  background-color: #FFF !important;
+  margin-bottom: 0rem !important; 
+  padding: .75rem 0 !important;
+  border-bottom: 1px solid #dedede;
 }
 
 /*# sourceMappingURL=maps/style.css.map */
