@@ -881,4 +881,9 @@ blockquote {
   border-bottom: 1px solid #dedede;
 }
 
+.fill-current{
+  opacity: .6; 
+  fill: currentColor;
+}
+
 /*# sourceMappingURL=maps/style.css.map */
