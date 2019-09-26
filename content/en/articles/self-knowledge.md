@@ -2,11 +2,12 @@
 title: Self Knowledge, what does it mean?
 description: How to know ourselves, make progress and be happier
 date: 2019-02-01 19:00:00
+type: "post"
 image: "images/masonary-post/post-2.jpg"
 categories: 
   - "articles"
-tags: 
-- self-knowledge
+topics: 
+  - "self-knowledge"
 ---
 
 Just like all animals have an instinctual code of conduct that comes from natural evolution, the spirits within human animals too have an ingrained code of conduct. A code that comes from the conclusions made based on the experiences in present and in past existences. This set of criteria is what we use to make all the decisions of our lives and is called our Ethical Code
@@ -46,6 +47,6 @@ Spiritisim provides us, not just with an understanding of ethics, but of how we 
 [Article based on SGNY.org: Spiritism & Ethics](http://www.sgny.org/spiritism-guide/spiritism-topics/spiritism-ethics/index.html)
 
 ## See Also
-[Article: Spiritism & Ethics](/articles/spiritism-ethics)
-[Article: Evolution trough incarnations](/articles/evolution-trough-incarnations)
+[Article: Spiritism & Ethics](/articles/spiritism-ethics)  
+[Article: Evolution trough incarnations](/articles/evolution-trough-incarnations)  
 [Virtue: Ethics ](/virtues/ethics)

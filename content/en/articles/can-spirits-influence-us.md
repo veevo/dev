@@ -6,7 +6,7 @@ type: "post"
 image: "images/masonary-post/post-2.jpg"
 categories: 
   - "articles"
-tags: 
+topics: 
 - spirits
 ---
 

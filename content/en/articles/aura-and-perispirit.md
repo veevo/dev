@@ -6,7 +6,7 @@ type: "post"
 image: "images/masonary-post/post-2.jpg"
 categories: 
   - "articles"
-tags: 
+topics: 
 - aura
 - perispirit
 - spiritism
@@ -18,7 +18,7 @@ Barbosa explains that "they are not the same thing, nor do they fulfill the same
 
 Even while undergoing an incarnation or material existence, the spirit, including its perispirit, can momentarily leave the material body while the latter is asleep or in a trance state, though the spirit still remains tied to the body through a fluidic chord.  In this case, the form represented is an exact copy of the material body, and can, if conditions permit, be seen by a medium, or even materialize.
 
-## See Also
+## Source
 [ExploreSpiritism.com: What are Spirits | Perispirit Nature](//www.explorespiritism.com/Philosophy_Perispirit_Nature.htm)  
 TODO
 

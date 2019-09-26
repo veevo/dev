@@ -2,10 +2,11 @@
 title: Spiritism & Ethics
 description: How can Spiritism contribute with Ethics. How does it help us being better and happier human beings
 date: 2019-02-01 19:00:00
+type: "post"
 image: "images/masonary-post/post-2.jpg"
 categories: 
   - "articles"
-tags: 
+topics: 
 - ethics
 - law
 - spiritism
