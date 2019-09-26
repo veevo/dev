@@ -2,7 +2,7 @@
 title: Caridade
 description: TODO
 date: 2019-02-01 19:00:00
-tags: 
+topics: 
 - virtues
 ---
 
@@ -14,4 +14,4 @@ Postulado básico do espiritismo que tem como uma de suas leis áureas a seguint
 TODO
 
 
-<a href="./" class="button special">All Virtues</a>
+

@@ -4,7 +4,7 @@ description: Aprenda sobre os bastidores de uma casa espírita durante os trabal
 date: 2019-01-01
 image: "images/contact.jpg"
 categories: 
-- "divine-laws"
+- "videos"
 topics: 
 - "action-reaction"
 - karma

@@ -2,7 +2,7 @@
 title: Solidariedade
 description: TODO
 date: 2019-02-01 19:00:00
-tags: 
+topics: 
 - virtues
 ---
 
@@ -12,4 +12,4 @@ Solidariedade - [de solidário]. Qualidade de solidário. caráter do que, de fa
 TODO
 
 
-<a href="./" class="button special">All Virtues</a>
+

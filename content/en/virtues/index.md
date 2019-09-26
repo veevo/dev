@@ -2,8 +2,8 @@
 title: Virtues
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-02-01 19:00:00
-tags: 
-- virtuess
+topics: 
+- virtues
 ---
 
 Virtue-based ethical theories focus on helping people develop good character traits, such as [kindness](kindness) and [generosity](generosity). These character traits will, in turn, allow a person to make the correct decisions later on in life. Virtue theorists also emphasize the need for people to learn how to break bad habits of character, like [greed](greed) or [anger](anger)
@@ -15,17 +15,17 @@ Dates back to the ancient Greek thinkers and is thus the oldest type of ethical 
 ## Our List of Virtues
 Since we are frequently updating the list of virtues, be sure to be back or subscribe for notifications for updates.
 
-<div class="left">
-    <ul>
+
+    
         {% for post in site.pages %}
         {% for tag in post.tags %}
         {% if tag == "virtue" %}
-            <li>
-                <a href="{{ post.url }}">{{ post.title }}</a><br>
-                <p>{{ post.subtitle }}</p>
-            </li>
+            
+                
+                
+            
         {% endif %}
         {% endfor %}
         {% endfor %}
-    </ul>
-</div>
+    
+

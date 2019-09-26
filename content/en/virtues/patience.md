@@ -2,7 +2,7 @@
 title: Love
 description: TODO
 date: 2019-02-01 19:00:00
-tags: 
+topics: 
 - virtues
 ---
 
@@ -14,4 +14,4 @@ Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tin
 TODO
 
 
-<a href="./" class="button special">All Virtues</a>
+

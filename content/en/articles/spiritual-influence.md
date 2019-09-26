@@ -7,8 +7,9 @@ image: "images/masonary-post/post-2.jpg"
 categories: 
   - "articles"
 topics: 
-- question
+- spirits
 - ghosts
+- obsession
 ---
 
 > Do spirits influence our thoughts and actions?  
