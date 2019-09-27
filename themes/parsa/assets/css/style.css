@@ -886,4 +886,8 @@ blockquote {
   fill: currentColor;
 }
 
+#TableOfContents ul {
+	padding: 0px;
+}
+
 /*# sourceMappingURL=maps/style.css.map */

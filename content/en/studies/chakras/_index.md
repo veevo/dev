@@ -1,10 +1,10 @@
 ---
-title: Family
+title: Chakras
 description: todo
 date: 2019-01-01
 image: "images/contact.jpg"
 topics:
-- family
+- chakras
 category:
 - studies
 ---

@@ -6,13 +6,13 @@ topics:
 - virtues
 - benevolence
 - indulgence
+- charity
 ---
 
 Benevolência [do latim benevolentia]. Qualidade do que é benevolente. Boa vontade para com alguém; estima e afeto.
 
 
 ## See Also
-TODO
-
+Spirits Book, Q.886
 
 

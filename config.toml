@@ -147,6 +147,10 @@ copyright = ", Veevo.org"
     
     # Resources
     [[params.footer.resources]]
+	name = "All Resources"
+	URL = "resources"
+
+    [[params.footer.resources]]
 	name = "Articles"
 	URL = "articles"
     
@@ -176,7 +180,7 @@ copyright = ", Veevo.org"
     
     [[params.footer.resources]]
 	name = "Laws"
-	URL = "laws" 
+	URL = "divine-laws" 
 
 
     # Help
