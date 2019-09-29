@@ -2,8 +2,7 @@
 title: Spiritism
 description: spf13-vim is a cross platform distribution of vim plugins and resources
 date: "2019-01-01"
-tags:
-- spiritist-centers
+image: "images/masonary-post/post-2.jpg"
 categories:
 - spiritism
 ---

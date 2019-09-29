@@ -1,0 +1,38 @@
+{{ define "main" }}
+
+<section class="section">
+  <div class="container">
+    <div class="row">
+      <div class="col-lg-12">
+        <h1>{{.Title }}</h1>
+		<h3 class="font-weight-light mb-4">{{ .Description }}</h3>
+        <img src="{{.Params.Image | absURL }}" alt="{{.Title}}" class="img-fluid w-100 mb-4">
+        {{ .Content }}
+      </div>
+    </div>
+  </div>
+</section>
+
+<!-- category post -->
+<section>
+  <div class="container">
+    <div class="row">
+      <div class="col-lg-12">
+        <div class="row masonry-container pt-5">
+		  {{ range sort .Site.Sections }}
+          <div class="col-sm-4 mb-5">
+            <article class="text-center">
+              <a href="{{.Permalink}}" class="btn btn-transparent"><img class="img-fluid mb-4" src="{{.Params.Image | absURL }}" alt="post-thumb"></a>
+              <h4><a class="text-dark" href="{{.Permalink}}">{{.Title}}</a></h4>
+              <p>{{.Description}}</p>
+            </article>
+          </div>
+		  {{ end }}
+        </div>
+      </div>
+    </div>
+  </div>
+</section>
+<!-- /category post -->
+
+{{ end }}

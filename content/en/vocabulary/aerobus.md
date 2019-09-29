@@ -1,8 +1,9 @@
 ---
 title: Aerobus
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
 date: 2019-02-01 19:00:00
-tags:
+image: "images/masonary-post/post-2.jpg"
+category:
 - vocabulary
 ---
 

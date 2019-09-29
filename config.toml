@@ -3,7 +3,7 @@ baseURL = "https://veevo.org/"
 #title = "Veevo | Know thyself"
 theme = "parsa"
 summaryLength = "10"
-paginate = 6
+paginate = 5
 
 [outputs]
   home = ["HTML", "AMP", "RSS", "JSON"]
@@ -141,6 +141,10 @@ copyright = ", Veevo.org"
 	URL = "spiritism/centers"
 
     [[params.footer.spiritism]]
+	name = "Mediumship"
+	URL = "spiritism/mediumship"
+
+    [[params.footer.spiritism]]
 	name = "Advanced Topics"
 	URL = "spiritism/advanced"
 
@@ -155,16 +159,8 @@ copyright = ", Veevo.org"
 	URL = "articles"
     
     [[params.footer.resources]]
-	name = "Profiles"
-	URL = "profiles"
-    
-    [[params.footer.resources]]
 	name = "Studies"
 	URL = "studies"
-    
-    [[params.footer.resources]]
-	name = "Topics"
-	URL = "topics"
     
     [[params.footer.resources]]
 	name = "Books"
@@ -178,10 +174,6 @@ copyright = ", Veevo.org"
 	name = "Videos"
 	URL = "videos"
     
-    [[params.footer.resources]]
-	name = "Laws"
-	URL = "divine-laws" 
-
 
     # Help
     [[params.footer.contribute ]]
@@ -244,3 +236,10 @@ copyright = ", Veevo.org"
 	name = "Blog"
 	URL = "help/Our Blog"
 
+    [[params.footer.resources]]
+	name = "Our Vocabulary"
+	URL = "vocabulary"
+
+    [[params.footer.resources]]
+	name = "The Gospel"
+	URL = "gospel"

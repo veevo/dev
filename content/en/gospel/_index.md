@@ -1,11 +1,8 @@
 ---
 title: "Gospel"
 date: 2019-05-14T14:46:10+06:00
-description: "This is meta description"
-type: "post"
-image: "images/posts/gospel.jpg"
+description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
+image: "images/masonary-post/post-2.jpg"
 ---
 
-TODO :: Gospel
-
-
+Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
