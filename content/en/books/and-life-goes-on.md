@@ -1,12 +1,8 @@
 ---
-layout: default-md
-section: Books
 title: And Life Goes On
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 author: Andre Luis
 date: 2019-01-11 13:00:00
-tags: 
-- book
 ---
 
 This inspirational novel by André Luiz, physician and poet, who writes through the pen of Francisco C. Xavier, gently awakens us to the rich meaning of life, friendship, and love.  In it, we find that life is a journey on which we add to and recreate our innermost selves - in effect designing our own path toward the goal of love each of us seeks.

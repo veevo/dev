@@ -1,11 +1,7 @@
 ---
-layout: default-md
-section: Books
 title: Léon Denis
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- author
 ---
 
 ## Bibliography

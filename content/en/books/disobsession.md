@@ -9,6 +9,10 @@ tags:
 - book
 ---
 
+In this book, the spiritual mentor, André Luiz, presents the basic guidelines for the Spiritist mediumship session that is held for the loving and dedicated rescue work of disobsession.  He outlines the flow of events, before, during, and after the session, discusses the various members of the work team and their roles, and offers sound advice regarding the sense of care and responsibility with which each participant, as well as the group as a whole, should carry out their tasks.
+
+This is a must read for anyone who wishes to participate in this kind of mediumistic work, and a recommended reading for anyone who wishes to learn more about mediumship and the work of Spiritist Centers.
+
 The faculty of mediumship, with its various manifestations, has been the dominant factor in proving the reality of the afterlife and the transcendental nature of the universe. Through this faculty, a multitude of phenomena has been witnessed, demonstrating to the astonishment of many that intelligence is not merely a product of brain cells.
 
 Among the several types of mediumship known today, psychography is the most often used within Spiritism, especially for the writing of books and messages.
@@ -17,8 +21,10 @@ André Luiz’ purpose in writing this book was to recruit new groups of workers
 
 Through the work of several collaborators, this volume is an important synthesis in the effort to aid those suffering from obsessive processes. It is characterized by its absolute simplicity in the explanation of the circumstances that are indispensable for the constitution and maintenance of spiritist groups, which are devoted to the liberation and healing task of disobsession.
 
-## Author(s)
-Francisco Xavier and André Luiz (Spirit)
+## Book Information
+Book Title: Disobsession  
+Spirit Author: André Luiz  
+Medium: Francisco Cândido Xavier   
 
 ## From the Publisher
 Title: 	Disobsession  

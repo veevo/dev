@@ -1,12 +1,9 @@
 ---
-layout: default-md
-section: Books
 title: Sex and Destiny
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-author: Chico Xavier
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+medium: Chico Xavier
 date: 2019-01-11 13:00:00
-tags: 
-- book
 ---
 
 This book presents a description of the spirit after the death of the physical body and demonstrates that the mental state directly impacts our existence in the spiritual world.
@@ -44,13 +41,17 @@ Publication Date: 	1963
 Language: 	Brazilian Portuguese  
 
 ## Related Books
-TODO
+[Nosso Lar](nosso-lar)  
+[Missionaries of the Light](missionaries-of-the-light)  
+[In The Realms Of Mediumship](in-the-realms-of-mediumship)  
+[In The Greater World](in-the-greater-world)  
+[Liberation](liberation)  
+[The Messengers](the-messengers)  
+[Workers of the Life Eternal](workers-of-the-life-eternal)  
+[Action and Reaction](action-and-reaction)  
+[And Life Goes On](and-life-goes-on)  
 
-## See also
-[About Chico Xavier](/profile/chico-xavier)  
-TODO
+## See Also
+[Chico Xavier](/bio/chico-xavier)  
 
-
-<a href="/books/chico-xavier" class="button">Back to Chico Xavier Books</a>
-<a href="/books" class="button">All Books</a>
 

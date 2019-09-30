@@ -1,12 +1,9 @@
 ---
-layout: default-md
-section: Books
 title: The Messengers
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-author: Chico Xavier
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+author: Andre Luis
+medium: Chico Xavier
 date: 2019-01-11 13:00:00
-tags: 
-- book
 ---
 
 This book unveils that spiritual life after death is always evolving. In 51 chapters, it describes the experiences of a number of spirits who reincarnated with pre-planned endeavors needed for their personal spiritual growth. Moreover, it also deals with subjects such as the Gospel worship at home, the benefits of practicing the good, carelessness regarding one’s spiritual obligations, and fear of death. The spiritual author focuses on the opportunities of service for mediums, warning them about the need to practice at a personal level what they learn in order to avoid returning to the spiritual world without having fulfilled the duties assumed before reincarnating.
@@ -40,13 +37,18 @@ Publication Date: 	1944
 Language: 	Brazilian Portuguese  
 
 ## Related Books
-TODO
+[Nosso Lar](nosso-lar)  
+[Missionaries of the Light](missionaries-of-the-light)  
+[In The Realms Of Mediumship](in-the-realms-of-mediumship)  
+[In The Greater World](in-the-greater-world)  
+[Liberation](liberation)  
+[Workers of the Life Eternal](workers-of-the-life-eternal)  
+[Action and Reaction](action-and-reaction)  
+[Sex and Destiny](sex-and-destiny)  
+[And Life Goes On](and-life-goes-on)  
 
 ## See also
 [About Chico Xavier](/profile/chico-xavier)  
 TODO
 
-
-<a href="/books/chico-xavier" class="button">Back to Chico Xavier Books</a>
-<a href="/books" class="button">All Books</a>
 
