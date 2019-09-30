@@ -159,6 +159,10 @@ copyright = ", Veevo.org"
 	URL = "articles"
     
     [[params.footer.resources]]
+	name = "Biographies"
+	URL = "bio"
+
+    [[params.footer.resources]]
 	name = "Studies"
 	URL = "studies"
     
