@@ -18,15 +18,13 @@
   <div class="container">
     <div class="row">
       <div class="col-lg-12">
-		<h2>List of Laws</h2>
         <div class="row masonry-container pt-5">
           {{ range .Pages }}
           <div class="col-sm-4 mb-5">
             <article class="text-center">
-              <img class="img-fluid" src="{{.Params.Image | absURL }}" alt="post-thumb">
+              <a href="{{.Permalink}}" class="btn btn-transparent"><img class="img-fluid" src="{{.Params.Image | absURL }}" alt="post-thumb"></a>
               <h4><a class="text-dark" href="{{.Permalink}}">{{.Title}}</a></h4>
               <p>{{.Description}}</p>
-              <a href="{{.Permalink}}" class="btn btn-transparent">read more</a>
             </article>
           </div>
           {{ end }}
@@ -35,6 +33,7 @@
   </div>
 </section>
 <!-- /category post -->
+
 
 
 {{ end }}
