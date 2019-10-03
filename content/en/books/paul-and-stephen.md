@@ -1,15 +1,18 @@
 ---
-layout: default-md
-section: Books
 title: Paul and Stephen
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 author: Emmanuel
 medium: Chico Xavier
 date: 2019-01-11 13:00:00
-tags: 
-- book
+topics:
+- renunciation
+- jesus
+- disciples
+- dedication
+- history
 ---
 
+## Introduction
 How did an old man’s trip to the market to buy fist and vegetables lead to a chain of cause and effect events  that would change the religious face the world forever?
 
 Who was [Paul of Tarsus](/profiles/paul-of-tarsus)?
@@ -34,6 +37,3 @@ Medium: Francisco Cândido Xavier
 [Renunciation](renunciation)  
 
 
-
-<a href="/books/emmanuel" class="button">Emmanuel - Bibliography</a>
-<a href="/books" class="button">All Books</a>

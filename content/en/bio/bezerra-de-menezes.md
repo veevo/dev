@@ -6,6 +6,7 @@ categories:
 - biographies
 ---
 
+## Introduction
 Adolfo Bezerra de Menezes Cavalcanti was born in the old neighborhood of Freguesia do Riacho de Sangue (Stream of Blood), today Solonopole, in Ceara, Brazil, on August 29 th, 1831. He died in Rio de Janeiro, on April 11th, 1900.
 
 In the year of 1838, Adolfo Bezerra de Menezes Cavalcanti, started studying at the public school of the Friar’s Villa, where in only ten months he sufficiently prepared himself to reach the degree of knowledge of his master, who was responsible to guide his first educational phase. At a very early age, he revealed to be extremely intelligent. When he was eleven years old he was able to commence the course on Humanities. At thirteen he knew Latin so well that he not only gave classes to his colleagues, but also was called to replace his teacher every time he had to be absent.

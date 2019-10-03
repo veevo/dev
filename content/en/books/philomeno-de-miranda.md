@@ -10,6 +10,8 @@ Manoel Philomeno de Miranda (1876-1942) was a physician born in Bahia, Brazil. H
 More about [Manoel Philomeno de Miranda](/profiles/philomeno-de-miranda)
 
 
+
+
 ### Novels
 [Obsession](obsession)
 

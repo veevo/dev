@@ -890,4 +890,18 @@ blockquote {
 	padding: 0px;
 }
 
+footer h6 {
+	text-transform: uppercase;
+}
+
+div.sidebar h6, div.sidebar h2, div.sidebar h3 {
+	text-transform: uppercase;
+	font-size: 18px !important;
+}
+
+.sidebar aside .btn {
+	padding: 5px !important;
+	border: none !important;
+}
+
 /*# sourceMappingURL=maps/style.css.map */

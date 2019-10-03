@@ -241,7 +241,7 @@ copyright = ", Veevo.org"
 	URL = "help/Our Blog"
 
     [[params.footer.resources]]
-	name = "Our Vocabulary"
+	name = "Vocabulary"
 	URL = "vocabulary"
 
     [[params.footer.resources]]
