@@ -1,6 +1,6 @@
-baseURL = "https://veevo.org/"
-#languageCode = "en-us"
-#title = "Veevo | Know thyself"
+baseURL = "https://en.veevo.org/"
+title = "Veevo | Know thyself"
+language = "en-US"
 theme = "parsa"
 summaryLength = "10"
 paginate = 5
@@ -8,21 +8,6 @@ paginate = 5
 [outputs]
   home = ["HTML", "AMP", "RSS", "JSON"]
   page = ["HTML"]
-
-
-[languages]
-  [languages.en]
-    baseURL = "https://www.veevo.org/en"
-    languageName = "English"
-    title = "Veevo | Know Thyself"
-    weight = 1
-	contentDir = "content/en"
-  [languages.fr]
-    baseURL = "https://www.veevo.org/pt"
-    languageName = "Portugues"
-    title = "Veevo | Conhece-te a ti mesmo"
-    weight = 2
-	contentDir = "content/pt"
 
 [taxonomies]
   category = "categories"
