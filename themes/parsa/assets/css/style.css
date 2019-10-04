@@ -904,4 +904,10 @@ div.sidebar h6, div.sidebar h2, div.sidebar h3 {
 	border: none !important;
 }
 
+div.lang a {
+	border-radius: 5px;
+	padding: 4px 10px;
+	border: 1px solid #AAA;
+}
+
 /*# sourceMappingURL=maps/style.css.map */
