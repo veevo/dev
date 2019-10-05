@@ -86,6 +86,7 @@ contactFormAction = "#"
 googleAnalitycsID = "Your ID"
 # copyright
 copyright = ", Veevo.org"
+ghissues = "https://github.com/veevo/www-en/issues"
 
   # Preloader
   [params.preloader]
@@ -220,10 +221,6 @@ copyright = ", Veevo.org"
 	[[params.help]]
 	name = "Contact Us"
 	URL = "help/contact-us"
-
-	[[params.help]]
-	name = "Blog"
-	URL = "help/Our Blog"
 
     [[params.footer.resources]]
 	name = "Vocabulary"

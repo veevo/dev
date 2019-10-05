@@ -8,6 +8,7 @@
             {{ range .Site.Params.help }}
 			<li class="font-secondary text-dark"><a href="{{ .URL | absURL }}" class="text-dark">{{.name}}</a></li>
             {{ end }}
+			<li class="font-secondary text-dark"><a href="https://blog.veevo.org" target="_new" class="text-dark">Blog</a></li>
           </ul>
 		  <ul class="list-inline d-inline-block mt-3">
             {{ range .Site.Params.social }}
@@ -46,9 +47,12 @@
       </div>
     </div>
   </div>
-  <div class="text-center pb-1">
-    <p class="mb-0 small">Copyright ©<script>var CurrentYear = new Date().getFullYear()
-    document.write(CurrentYear)</script> {{.Site.Params.copyright | markdownify}}
+  <div class="text-center copyright">
+	  <p class="mb-0 small">
+	  <a href="https://en.wikipedia.org/wiki/Copyleft" target="_new">Copyleft ©</a>
+	  <script>var CurrentYear = new Date().getFullYear(); document.write(CurrentYear)</script>
+	  {{.Site.Params.copyright | markdownify}}. 
+	  Made with <i class="ti-heart"></i> by the Veevo Community.
 	</p>
   </div>
 </footer>

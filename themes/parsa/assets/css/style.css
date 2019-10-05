@@ -104,13 +104,13 @@ h6, .h6 {
 }
 
 .btn-primary {
-  background: #ff6f00;
+  background: #e83e8c;
   color: #fff;
   border: 0;
 }
 
 .btn-primary:active {
-  background: #ff6f00 !important;
+  background: #e83e8c !important;
 }
 
 .btn-primary:hover {
@@ -135,7 +135,7 @@ h6, .h6 {
 }
 
 .btn-transparent {
-  color: #ff6f00;
+  color: #e83e8c;
   border: 0;
 }
 
@@ -184,7 +184,7 @@ body {
   height: 16px;
   top: 12px;
   left: 15px;
-  background: #ff6f00;
+  background: #e83e8c;
   border-radius: 50%;
   -webkit-transform: translateX(0);
           transform: translateX(0);
@@ -207,7 +207,7 @@ body {
   width: 16px;
   height: 16px;
   margin-left: 16px;
-  background: #ff6f00;
+  background: #e83e8c;
   border-radius: 50%;
 }
 
@@ -270,10 +270,10 @@ select:focus {
 }
 
 a:hover {
-  color: #ff6f00;
+  color: #e83e8c;
 }
 a.text-dark:hover {
-  color: #ff6f00 !important;
+  color: #e83e8c !important;
 }
 
 .slick-slide {
@@ -335,7 +335,7 @@ a.text-dark:hover {
 }
 
 .bg-primary {
-  background: #ff6f00 !important;
+  background: #e83e8c !important;
 }
 
 .bg-secondary {
@@ -343,7 +343,7 @@ a.text-dark:hover {
 }
 
 .text-primary {
-  color: #ff6f00 !important;
+  color: #e83e8c !important;
 }
 
 .text-color {
@@ -415,7 +415,7 @@ a.text-dark:hover {
 .form-control:focus {
   outline: 0;
   box-shadow: none;
-  border-color: #ff6f00;
+  border-color: #e83e8c;
 }
 
 textarea.form-control {
@@ -439,7 +439,7 @@ textarea.form-control {
   transition: all .4s ease-in-out;
   padding: 10px 40px;
   background-color: #fff;
-  border-bottom: 1px solid #ff6f00;
+  border-bottom: 1px solid #e83e8c;
 }
 
 @media (max-width: 575px) {
@@ -524,7 +524,7 @@ textarea.form-control {
 
 .navbar .dropdown-item:active {
   color: #fff;
-  background-color: #ff6f00;
+  background-color: #e83e8c;
 }
 
 .search-icon {
@@ -661,7 +661,7 @@ textarea.form-control {
 }
 
 .instagram-post ul a:hover {
-  color: #ff6f00 !important;
+  color: #e83e8c !important;
 }
 
 .instagram-post:hover::before {
@@ -867,7 +867,7 @@ blockquote {
 }
 
 .tag-list li a:hover {
-  color: #ff6f00;
+  color: #e83e8c;
 }
 
 .border {
@@ -906,8 +906,14 @@ div.sidebar h6, div.sidebar h2, div.sidebar h3 {
 
 div.lang a {
 	border-radius: 5px;
-	padding: 4px 10px;
-	border: 1px solid #AAA;
+	padding: 2px 7px;
+	border: 1px solid #007bff;
+}
+
+.copyright{
+	background-color: #c9d2da;
+	padding: 0.7rem; 
+	color: #333;
 }
 
 /*# sourceMappingURL=maps/style.css.map */
