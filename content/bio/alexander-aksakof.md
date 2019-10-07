@@ -2,8 +2,8 @@
 title: Alexander N. Aksakof
 description: TODO
 date: 2019-02-01 19:00:00
-tags: 
-- profiles
+topics: 
+- Russia
 ---
 
 Imperial Councilor to the Czar, the pioneer spiritualist of Russia, a Swedenborg enthusiast whose introduction to modern spiritualism was effected by Andrew Jackson Davis’s “Nature’s Divine Revelations” in 1855. In order to form a correct judgment of both physiological and psychological phenomena he studied medicine at the University of Moscow for two years. He translated Swedenborg’s “Heaven and Hell”, Count Szapary’s “Magnetic Healing” and the principal works of Prof. Hare, Crookes, Edmonds, Owen and the “Report of the Dialectical Society”. As, however, works on spiritualism in

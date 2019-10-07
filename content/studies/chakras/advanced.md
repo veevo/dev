@@ -1,10 +1,8 @@
 ---
-layout: default-md
-section: Spiritism
 title: Chakras - Advanced Notes
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-03-07 10:00:00
-tags:
+topics:
 - chakras
 ---
 
@@ -39,7 +37,7 @@ Nos estudos mais atuais sobre Chakras já encontramos os dois sendo classificado
 Segundo André Luiz, o Centro de Força Esplênico é um dos mais importantes do Perispírito e foi incluído em sua relação de Chakras principais no livro “Evolução em Dois Mundos”.
 
 
-# Conclusão
+## Conclusion
 Os Chakras são Centros de Força vital! Por eles são feitas leituras espirituais. Neles, seres de outros planos lêem tudo aquilo que vai dentro das energias do ser humano.
 
 Seres que se apresentam com formas só de luz, sem a limitação da forma humanóide, quando observam o ser humano, o fazem por esses chakras. Eles não observam a forma humana, apenas os chakras.
@@ -49,5 +47,5 @@ Os Centros Inferiores estão ligados a Terra, agradeça ao planeta por hospedá-
 O Homem está entre o Céu e a Terra, e é um elemento híbrido. Veio das estrelas, mas ocupa um invólucro terrestre. Tem as duas naturezas em si mesmo, é filho da Terra e filho do Espaço!
 
 
-# Fonte
+## Source
 http://www.harmoniaespiritual.com.br/2011/05/centros-vitais-ou-centros-de-forca.html

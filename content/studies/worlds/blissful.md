@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Inhabited Worlds
 title: Blissful
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
 ---
 
 ## Blissful Worlds
@@ -20,7 +19,3 @@ TODO
 TODO
 
 
-
-<a href="regeneration" class="button">Previous: Regeneration Worlds</a>
-<a href="./" class="button special">Inhabited Worlds</a>
-<a href="celestial" class="button">Next: Celestial Worlds</a>

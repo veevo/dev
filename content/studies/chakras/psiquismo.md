@@ -1,10 +1,8 @@
 ---
-layout: default-md
-section: Spiritism
 title: Chakras e psiquismo
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-03-07 10:00:00
-tags:
+topics:
 - chakras
 ---
 
@@ -29,5 +27,5 @@ A expressão e o objetivo principal do chakra cardíaco é o "amor incondicional
 Quando aprendemos a desenvolver e a manifestar os aspectos espirituais superiores do chakra cardíaco, torna-se mais exeqüível, para nós, promovermos a transmutação das doenças a partir das energias doces e equilibradoras que recebemos de Deus pelo sétimo chakra, e que são distribuídas, amplamente pelo chakra do amor.
 
 
-# Fonte
+## Source
 http://www.harmoniaespiritual.com.br/2011/05/centros-vitais-ou-centros-de-forca.html

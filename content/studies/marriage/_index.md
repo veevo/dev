@@ -1,8 +1,10 @@
 ---
 title: Marriage
-description: todo
-tags:
-- marriage
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
+image: "images/contact.jpg"
+layout: list-3col
 ---
 
-todo 
+In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+

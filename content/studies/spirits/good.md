@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Good Spirits
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## GOOD SPIRITS
@@ -42,6 +41,4 @@ TODO
 
 
 
-<a href="imperfect" class="button">Previous: Imperfect Spirits</a>
-<a href="./" class="button special">Spirits</a>
-<a href="pure" class="button">Next: Pure Spirits</a>
+

@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Inferior Spirits Communication
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Characteristics of Inferior spirits and their Communications
@@ -42,6 +41,4 @@ TODO
 
 
 
-<a href="pure" class="button">Previous: Pure Spirits</a>
-<a href="./" class="button special">Spirits</a>
-<a href="superior-communication" class="button">Next: Superior Spirits</a>
+

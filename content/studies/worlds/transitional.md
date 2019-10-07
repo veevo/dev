@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Inhabited Worlds
 title: Transitional
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
 ---
 
 ## Transitional Worlds  
@@ -26,6 +25,3 @@ TODO
 TODO
 
 
-
-<a href="celestial" class="button">Previous: Celestial Worlds</a>
-<a href="./" class="button special">Inhabited Worlds</a>

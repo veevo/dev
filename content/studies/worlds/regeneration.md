@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Inhabited Worlds
 title: Regeneration
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
 ---
 
 ##  Worlds of Regeneration
@@ -21,7 +20,3 @@ TODO
 TODO
 
 
-
-<a href="trial-purification" class="button">Previous: Trials & Purifications Worlds</a>
-<a href="./" class="button special">Inhabited Worlds</a>
-<a href="blissful" class="button">Next: Blissful Worlds</a>

@@ -1,8 +1,6 @@
 ---
-layout: default-md
-section: Fluidic Therapy
 title: Recommended Bibliography
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Recommended Bibliography

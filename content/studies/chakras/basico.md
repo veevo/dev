@@ -1,10 +1,8 @@
 ---
-layout: default-md
-section: Spiritism
 title: Chakra Básico
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-03-07 10:00:00
-tags:
+topics:
 - chakras
 ---
 
@@ -19,5 +17,5 @@ Na tradição indiana seu nome é “Muladhara” que significa  base e fundamen
 Quando esse Chakra está enfraquecido indica distúrbios da sexualidade ou disfunções endócrinas. Quando muito energizado, indica excesso de hormônios, sexualidade exagerada.
 
 
-# Fonte
+## Source
 http://www.harmoniaespiritual.com.br/2011/05/centros-vitais-ou-centros-de-forca.html

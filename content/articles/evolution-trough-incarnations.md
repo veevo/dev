@@ -1,4 +1,5 @@
 ---
+
 title: Evolution trough incarnations
 description: How we evolve troughout our multiple material existences, known as "incarnations". And what can we do to accelerate our own progress to happiness
 date: 2019-02-01 19:00:00
@@ -96,6 +97,6 @@ Spiritisim provides us, not just with an understanding of ethics, but of how we 
 [Article based on SGNY.org: Spiritism & Ethics](http://www.sgny.org/spiritism-guide/spiritism-topics/spiritism-ethics/index.html)
 
 ## See Also
-[Article: Spiritism & Ethics](/articles/spiritism-ethics)
-[Article: Self Knowledge](/articles/self-knowledge)
-[Virtue: Ethics ](/virtues/ethics)
+[Article: Spiritism & Ethics](/articles/spiritism-ethics)  
+[Article: Self Knowledge](/articles/self-knowledge)  
+[Virtue: Ethics ](/virtues/ethics)  

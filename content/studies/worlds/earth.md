@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Material and Spiritual Worlds
 title: Earth
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
 ---
 
 ## What about Earth?
@@ -28,8 +27,3 @@ TODO
 ## Suggested Reading
 TODO
 
-
-
-<a href="intro" class="button">Previous: Introduction</a>
-<a href="./" class="button special">Inhabited Worlds</a>
-<a href="primitive" class="button">Next: Primitive Worlds</a>

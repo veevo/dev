@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Introduction
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Introduction
@@ -29,6 +28,4 @@ TODO
 
 
 
-<a href="introduction" class="button">Previous: Introduction</a>
-<a href="./" class="button special">Spirits</a>
-<a href="creation" class="button">Next: Creation</a>
+

@@ -2,8 +2,9 @@
 title: Andre Luis
 description: TODO
 date: 2019-02-01 19:00:00
-tags: 
-- profiles
+topics: 
+- Medicine
+- Spiritism
 ---
 
 André Luiz was a physician and researcher who lived in Rio de Janeiro, Brazil at the beginning of the XX century. After his discarnation, he spent over eight years in the lower zones, being finally rescued by Clarêncio, an assistant from "Nosso Lar", one of the spiritual colonies neighboring Earth. After a period of learning and intense work at Nosso Lar, André Luiz gradually overcame pride and selfishness, and eventually acquired citinzenship at Nosso Lar.

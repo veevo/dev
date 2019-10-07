@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: The Perispirit
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## The Perispirit
@@ -31,6 +30,4 @@ TODO
 
 
 
-<a href="physical-nature" class="button">Previous: Physical Nature</a>
-<a href="./" class="button special">Spirits</a>
-<a href="perispirit-characteristics" class="button">Next: Persispirit Characteristics</a>
+

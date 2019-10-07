@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Perispirit - Functions
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Functions of the Perispirit
@@ -41,6 +40,4 @@ TODO
 
 
 
-<a href="perispirit-characteristics" class="button">Previous: Persispirit Characteristics</a>
-<a href="./" class="button special">Spirits</a>
-<a href="vital-principle" class="button">Next: Vital Principe</a>
+

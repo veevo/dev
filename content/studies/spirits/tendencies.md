@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Tendencies, Vices, and Virtues
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Tendencies, Vices, and Virtues of Spirits
@@ -41,6 +40,4 @@ TODO
 TODO
 
 
-<a href="attributes" class="button">Previous: Attributes</a>
-<a href="./" class="button special">Spirits</a>
-<a href="categories" class="button">Next: Categories of Spirits</a>
+

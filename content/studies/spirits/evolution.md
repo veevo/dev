@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Evolution
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Spirit Evolution
@@ -43,6 +42,4 @@ TODO
 
 
 
-<a href="creation" class="button">Previous: Creation</a>
-<a href="./" class="button special">Spirits</a>
-<a href="physical-nature" class="button">Next: Physical Nature</a>
+

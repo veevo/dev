@@ -1,10 +1,8 @@
 ---
-layout: default-md
-section: Spiritism
 title: Chakra Esplênico
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-03-07 10:00:00
-tags:
+topics:
 - chakras
 ---
 
@@ -21,5 +19,5 @@ Responsável pelo funcionamento do baço, pela formação e reposição das defe
 
 
 
-# Fonte
+## Source
 http://www.harmoniaespiritual.com.br/2011/05/centros-vitais-ou-centros-de-forca.html

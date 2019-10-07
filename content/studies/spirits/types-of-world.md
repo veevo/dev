@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Types of Worlds
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Types of Worlds
@@ -62,6 +61,4 @@ TODO
 
 
 
-<a href="superior-communication" class="button">Previous: Superior Spirits</a>
-<a href="./" class="button special">Spirits</a>
-<!-- <a href="" class="button">Next: </a> -->
+<!-- 

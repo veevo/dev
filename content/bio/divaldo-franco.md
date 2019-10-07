@@ -2,11 +2,12 @@
 title: Divaldo Pereira Franco
 description: TODO
 date: 2019-02-01 19:00:00
-tags: 
+topics: 
 - profiles
 ---
 
 
+## Introduction
 Pessoa simples, profundamente culta, com mais de cinquenta anos dedicados à mediunidade. É figura de destaque mundial, tanto no meio espírita como fora dele, pois sua cultura, o seu saber, bem como a sua mediunidade são cartões-de-visita que lhe granjearam respeito e credibilidade, mesmo pelos céticos que se curvam perante a cultura deste homem invulgar.
 
 Mais de 40 anos a serviço do próximo, especialmente dedicados aos meninos de rua, no Brasil, fizeram dele um foco de atenção.
@@ -15,7 +16,7 @@ De origem humilde, aos 20 anos, fundou a Mansão do Caminho, enorme obra assiste
 
 Conferencista de renome mundial, é Doutor Honoris Cause pela Faculdade e Governo de Montreal (Província do Quebec-Canadá) e pela Universidade de Viena. Já palestrou por seis vezes na ONU, bem como em Sorbonne, entre outros lugares de destaque.
 
-Origem humilde
+## Origem humilde
 
 De origem humilde, Divaldo Pereira Franco nasceu em 5 de maio de 1927, na cidade de Feira de Santana, na Bahia. Filho de Francisco Pereira Franco e Ana Alves Franco (desencarnados), desde a infância, comunica-se com os Espíritos. Cursou a Escola Normal Rural de Feira de Santana, recebendo o diploma de professor primário, em 1943.
 
@@ -31,9 +32,9 @@ Aos 18 anos, em 1945, Divaldo mudou-se para Salvador, sendo aprovado no concurso
 
 Espírita convicto, fundou o Centro Espírita Caminho da Redenção em 7 de setembro, de 1947. Dois anos depois iniciou a sua tarefa de psicografia. Diversas mensagens foram escritas por seu intermédio. Sob a orientação dos Benfeitores Espirituais guardou o que escreveu, até que um dia recebeu a recomendação de que queimasse tudo o que escrevera até ali, pois não passava de simples exercício.
 
-Com a continuação, vieram novas mensagens assinadas por diversos Espíritos, dentre eles, Joanna de Ângelis, que durante muito tempo apresentava-se como "um Espírito Amigo", ocultando-se no anonimato à espera do instante oportuno para se apresentar. Joanna revelou-se como sua orientadora espiritual, escrevendo inúmeras mensagens, num estilo agradável repassado de profunda sabedoria e infinito amor, que conforta as pessoas necessitadas de diretriz espiritual.
+Com a continuação, vieram novas mensagens assinadas por diversos Espíritos, dentre eles, [Joanna de Ângelis](/bio/joanna-de-angelis), que durante muito tempo apresentava-se como "um Espírito Amigo", ocultando-se no anonimato à espera do instante oportuno para se apresentar. Joanna revelou-se como sua orientadora espiritual, escrevendo inúmeras mensagens, num estilo agradável repassado de profunda sabedoria e infinito amor, que conforta as pessoas necessitadas de diretriz espiritual.
 
-Em 1964, Joanna de Ângelis selecionou várias mensagens de sua autoria e enfeixou-as no livro Messe de Amor, que se tornou o primeiro livro psicografado por Divaldo. Atualmente, o médium é recordista e conta com 175 títulos publicados, incluindo os biográficos que retratam a sua vida e obra.
+Em 1964, [Joanna de Ângelis](/bio/joanna-de-angelis) selecionou várias mensagens de sua autoria e enfeixou-as no livro Messe de Amor, que se tornou o primeiro livro psicografado por Divaldo. Atualmente, o médium é recordista e conta com 175 títulos publicados, incluindo os biográficos que retratam a sua vida e obra.
 
 ## Médium escritor
 
@@ -74,44 +75,44 @@ O Encontro Mundial pela Paz já produziu resultados:
 2. Elaboração de um documento com sugestões e propostas encaminhado a todos os governos da Terra, no qual se destaca a importância do desarmamento universal de todos os artefatos, inclusive os bacteriológicos e químicos.
 Compareceram, para o aludido Encontro, 749 delegados de 73 países, num total de 3.000 representantes, incluindo do Budismo, Hinduísmo, Xintoísmo, Masdeísmo e da alta hierarquia das Igrejas Católica e Ortodoxa Russa.
 
-As propostas em prol da paz
+## As propostas em prol da paz
 
 Podemos trabalhar pela paz se enfrentarmos os quatro temas escolhidos, que Divaldo Franco compara e complementa com os ensinamentos de Allan Kardec, contidos em O Livro dos Espíritos.
 
-1ª − A paz em si mesma
+### 1ª − A paz em si mesma
 
 Quando souber aproveitar todos os recursos de sua inteligência e quando souber cuidar de sua conservação pessoal, que alia o sentimento de uma verdadeira caridade por seus semelhantes.
 
-2ª − Trabalhar para acabarmos com a pobreza
+### 2ª − Trabalhar para acabarmos com a pobreza
 
 Em uma sociedade em que alguém passa fome, deveríamos ter vergonha de viver nela.
 
-3ª − Respeito ao meio ambiente
+### 3ª − Respeito ao meio ambiente
 
 A Terra é nossa mãe e este mundo, hoje de provas e expiações, cederá lugar ao mundo de regeneração.
 
-4ª − O perdão e a reconciliação
+### 4ª − O perdão e a reconciliação
 
 O homem pacífico não é vingativo. A exemplo de Jesus, perdoa as ofensas para não se recordar senão dos benefícios, porque sabe que lhe será perdoado como ele próprio tiver perdoado.
 
-Considerações de Divaldo
+### Considerações de Divaldo
 
 Divaldo Franco considerou a reunião emocionante, principalmente porque foi um significativo encontro mundial de líderes religiosos que, pela primeira vez na História, não estavam brigando. Budistas ao lado de hinduístas, islamitas, indígenas da África, da América do Norte, índios brasileiros pataxós e caetés, guatemaltecos etc. Participaram as 15 religiões mais representativas da Terra e também o Espiritismo, catalogado como uma religião com os mesmos direitos das outras, num universo de 1 bilhão de hinduístas, 1 bilhão e 200 milhões de cristãos e 600 milhões de islamitas e muçulmanos.
 
-A simplicidade
+## A simplicidade
 
 Divaldo Franco se reconhece apenas como servidor da Causa Espírita, apesar de ter-lhe sido conferido pelos promotores do evento o título de líder religioso. Na condição de divulgador da Doutrina Espírita e médium, ali esteve discreto, conforme recomenda o pensamento kardequiano.
 
-Considerações de Joanna de Ângelis
+### Considerações de Joanna de Ângelis
 
-Ao abordar sua religião, um líder judeu afirmou que para ser respeitada sua crença, ele deveria respeitar as outras religiões, já que não era a única. Nesse momento, Joanna de Ângelis, parafraseando uma parábola, disse ao médium: Deus tomou de um imenso espelho no qual Ele estava refletido e atirou-o à Terra. Ao bater no solo, fragmentou-se em mil pedaços. Cada criatura da Terra, ao pegar-lhe um pedaço, ficou com um fragmento que reflete Deus, mas ninguém conseguiu a posse total, razão porque Deus se revela proporcionalmente ao nível de consciência e inteligência de cada um. Assim são as religiões: se encarregam de revelar parcialmente Deus, sem o fazer em sua totalidade.
+Ao abordar sua religião, um líder judeu afirmou que para ser respeitada sua crença, ele deveria respeitar as outras religiões, já que não era a única. Nesse momento, [Joanna de Ângelis](/bio/joanna-de-angelis), parafraseando uma parábola, disse ao médium: Deus tomou de um imenso espelho no qual Ele estava refletido e atirou-o à Terra. Ao bater no solo, fragmentou-se em mil pedaços. Cada criatura da Terra, ao pegar-lhe um pedaço, ficou com um fragmento que reflete Deus, mas ninguém conseguiu a posse total, razão porque Deus se revela proporcionalmente ao nível de consciência e inteligência de cada um. Assim são as religiões: se encarregam de revelar parcialmente Deus, sem o fazer em sua totalidade.
 
-A escolha do tema
+### A escolha do tema
 
 Divaldo Franco escolheu a pobreza por desejar conhecer as soluções para as propostas. Fez uso da tribuna, explicou as bases do Espiritismo e ressaltou: Este encontro comprova que a Doutrina Espírita possui as mesmas propostas aqui apresentadas e que o grande inimigo do homem ainda é o egoísmo. O filho predileto do egoísmo é a ignorância, que envolve as criaturas em sombras. Citou Allan Kardec, que defendeu a educação moral para pôr fim à miséria no mundo e não apenas a educação convencional.
  
 
-Países onde visita e atua
+## Países onde visita e atua
 
 
  

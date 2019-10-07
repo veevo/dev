@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Perispirit - Characteristics
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Characteristics of the Perispirit
@@ -32,7 +31,4 @@ TODO
 
 
 
-<a href="perispirit" class="button">Previous: The Persispirit</a>
-<a href="./" class="button special">Spirits</a>
-<a href="perispirit-functions" class="button">Previous: Persispirit Functions</a>
 

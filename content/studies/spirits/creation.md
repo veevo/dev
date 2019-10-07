@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Creation
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Spirit Creation
@@ -47,6 +46,4 @@ TODO
 
 
 
-<a href="introduction" class="button">Previous: Introduction</a>
-<a href="./" class="button special">Spirits</a>
-<a href="evolution" class="button">Next: Evolution</a>
+

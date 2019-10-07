@@ -2,8 +2,8 @@
 title: Amalia Domingo Soler
 description: TODO
 date: 2019-02-01 19:00:00
-categories: 
-- biographies
+topics:
+- Spiritism
 ---
 
 During the time in which the sun had not as yet set on the vast Spanish empire – that covered the Americas and extended throughout the Pacific – the city where Amalia was born, Seville, was the seaport accessible to all the territories beyond the seas. Wealth from every corner of the planet flowed into its warehouses, and from there was

@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Inhabited Worlds
 title: Trials and Purifications
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
 ---
 
 ##  Worlds of Trials and Purifications
@@ -22,7 +21,3 @@ TODO
 TODO
 
 
-
-<a href="primitive" class="button">Previous: Primitive Worlds</a>
-<a href="./" class="button special">Inhabited Worlds</a>
-<a href="regeneration" class="button">Next: Regeneration Worlds</a>

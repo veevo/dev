@@ -2,14 +2,15 @@
 title: Joanna de Ângelis
 description: TODO
 date: 2019-02-01 19:00:00
-tags: 
-- profiles
+topics: 
+- Francis de Assis
 ---
 
+## Introduction
  Um Espírito que irradia ternura e sabedoria, despertando-nos para a vivência do amor na sua mais elevada expressão, mesmo que, para vivê-lo, seja-nos imposta grande soma de sacrifícios. Trata-se do Espírito que se faz conhecido pelo nome Joanna de Ângelis e que, nas estradas dos séculos, vamos encontrá-la na mansa figura de Joana de Cusa, numa discípula de Francisco de Assis, na grandiosa Sóror Juana Inés de La Cruz e na intimorata Joana Angélica de Jesus
 Conheça agora cada um destes personagens que marcaram a história com o seu exemplo de humildade e heroísmo.
 
-Joana de Cusa
+## Joana de Cusa
 
 Joana de Cusa, segundo informações de Humberto de Campos, no livro Boa Nova, era alguém que possuía verdadeira fé. Narra o autor que: Entre a multidão que invariavelmente acompanhava JESUS nas pregações do lago, achava-se sempre uma mulher de rara dedicação e nobre caráter, das mais altamente colocadas na sociedade de Cafarnaum. Tratava-se de Joana, consorte de Cusa, intendente de Ântipas, na cidade onde se conjulgavam interesses vitais de comerciantes e de pescadores.
 O seu esposo, alto funcionário de Herodes, não lhe compartilhava os anseios de espiritualidade, não tolerando a doutrina daquele Mestre que Joana seguia com acendrado amor. Vergada ao peso das injunções domésticas, angustiada pela incompreensão e intolerância do esposo, buscou ouvir a palavra de conforto de JESUS que, ao invés de convidá-la a engrossar as fileiras dos que O seguiam pelas ruas e estradas da Galileia, aconselhou-a a situá-lo a distância, servindo-O dentro do próprio lar, tornando-se um verdadeiro exemplo de pessoa cristã, no atendimento ao próximo mais próximo: seu esposo, a quem deveria servir com amorosa dedicação, sendo fiel a Deus, amando o companheiro do mundo como se fora seu filho.
@@ -26,11 +27,11 @@ Após recordar sua existência inteira, responde:
 "- Cala-te, meu filho! JESUS era puro e não desdenhou o sacrifício. Saibamos sofrer na hora dolorosa, porque, acima de todas as felicidades transitórias do mundo, é preciso ser fiel a DEUS!"
 Logo em seguida, as labaredas consomem o seu corpo envelhecido, libertando-a para a companhia do seu Mestre, a quem tão bem soube servir e com quem aprendeu a sublimar o amor.
 
-Uma Discípula de Francisco de Assis
+## Uma Discípula de Francisco de Assis
 
 Séculos depois, Francisco, o Pobrezinho de Deus, o Sol de Assis, reorganiza o Exército de Amor do Rei Galileu; ela também se candidata a viver com ele a simplicidade do Evangelho de Jesus, que a tudo ama e compreende, entoando a canção da fraternidade universal.
 
-Sóror Juana Inés de La Cruz
+## Sóror Juana Inés de La Cruz
 
 No século XVII, ela reaparece no cenário do mundo, para mais uma vida dedicada ao Bem. Renasce em 1651, na pequenina San Miguel Nepantla, a uns oitenta quilômetros da cidade do México, com o nome de Juana de Asbaje Y Ramirez de Santillana, filha de pai basco e mãe indígena.
 Após 3 anos de idade, fascinada pelas letras, ao ver sua irmã aprender a ler e escrever, engana a professora e diz-lhe que sua mãe mandara pedir-lhe que a alfabetizasse. A mestra, acostumada com a precocidade da criança, que já respondia às perguntas que a irmã ignorava, passa a ensinar-lhe as primeiras letras.
@@ -46,13 +47,13 @@ A linda monja era conhecida e admirada por todos, sendo os seus escritos popular
 Se imortalizou também por defender o direito da mulher de ser inteligente, capaz de lecionar e pregar livremente.
 Em 1695, houve uma epidemia de peste na região. Juana socorreu durante o dia e a noite as suas irmãs religiosas que, juntamente com a maioria da população, estavam enfermas. Foram morrendo, aos poucos, uma a uma das suas assistidas e quando não restava mais religiosas, ela, abatida e doente, tombou vencida, aos 44 anos de idade.
 
-Sóror Joana Angélica de Jesus
+## Sóror Joana Angélica de Jesus
 
 Passados 66 anos do seu regresso à Pátria Espiritual, retornou, agora na cidade de Salvador, na Bahia, em 1761, como Joana Angélica, filha de uma abastada família. Aos 21 anos de idade, ingressou no Convento da Lapa, como franciscana, com o nome de Sóror Joana Angélica de Jesus, fazendo profissão de Irmã das Religiosas Reformadas de Nossa Senhora da Conceição. Foi irmã, escrivã e vigária, quando, em 1815, tornou-se Abadessa e, no dia 20 de fevereiro, de 1822, defendendo corajosamente o Convento, a casa do Cristo, assim como a honra das jovens que ali moravam, foi assassinada por soldados que lutavam contra a Independência do Brasil.
 Nos planos divinos, já havia uma programação para esta sua vida no Brasil, desde antes, quando reencarnara no México como Sóror Juana Inés de La Cruz. Daí, sua facilidade extrema para aprender português. É que, nas terras brasileiras, estavam reencarnados, e reencarnariam, brevemente, Espíritos ligados a ela, almas comprometidas com a Lei Divina, que faziam parte de sua família espiritual e aos quais desejava auxiliar.
 Dentre esses afeiçoados a Joanna de Ângelis, destacamos Amélia Rodrigues, educadora, poetisa, romancista, dramaturga, oradora e contista que viveu no fim do século passado ao início deste.
 
-Joanna na Espiritualidade
+## Joanna na Espiritualidade
 
 Quando, na metade do século passado, "as potências do Céu" se abalaram, e um movimento de renovação se alastrou pela América e pala Europa, fazendo soar aos "quatro cantos" a canção da esperança com a revelação da vida imortal, Joanna de Ângelis integrou a equipe do Espírito de Verdade, para o trabalho de implantação do Cristianismo redivivo, do Consolador prometido por Jesus.
 E ela, no livro Após a Tempestade, em sua última mensagem, referindo-se aos componentes de sua equipe de trabalho diz:
@@ -67,7 +68,6 @@ Quase um século foi passado, quando os obreiros do Senhor iniciaram na Terra, e
 Nesse ínterim, os colaboradores foram reencarnando em lugares diversos, em épocas diferentes, com instrução variada e experiências diversificadas para, aos poucos, e quando necessário, serem "chamados" para atender aos compromissos assumidos na espiritualidade. Nem todos, porém, residiriam na Comunidade, mas, de onde se encontrassem, enviariam a sua ajuda, estenderiam a mensagem evangélica, solidários e vigilantes, ligados ao trabalho comum.
 A Instituição crescendo sempre comprometida a assistir os sofredores da Terra, os tombados nas provações, os que se encontram a um passo da loucura e do suicídio.
 Graças às atividades desenvolvidas, tanto no plano material como no plano espiritual, com a terapia de emergência a recém-desencarnados e atendimentos especiais, a Mansão do Caminho adquiriu uma vibração de espiritualidade que suplantas humanas vibrações dos que ali residem e colaboram.
-
 
 
 # English

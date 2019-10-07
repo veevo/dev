@@ -2,6 +2,7 @@
 title: Estudo - Os chakras e suas funções
 description: Aprenda sobre os bastidores de uma casa espírita durante os trabalhos de atendimento.
 date: 2019-01-01
+image: "images/contact.jpg"
 categories: 
 - "videos"
 topics: 
@@ -18,7 +19,7 @@ Vamos estudar aqui o tópico Os chakras do perispírito e as suas funções fís
 <iframe width="1041" height="781" src="https://www.youtube.com/embed/3hFhv4ZKmKY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
-## Relacionados
-[Estudo sobre Chakras - Estudo](/spiritism/chakras)
+## Related
+[Studies - Chakras](/studies/chakras)
 
 

@@ -2,15 +2,14 @@
 title: Allan Kardec
 description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
-categories: 
-- biographies
+topics:
+- Spiritism
 ---
 
-jij ijij
 
 Born in Lyon, France , on October 3, 1804 , of a traditional family, greatly distinguished in the legal profession and court system, Allan Kardec (Hippolyte Léon Denizard Rivail) did not pursue these careers. From his youth, he was inclined toward the studies of science and of philosophy.
 
-Educated in the renown School of [Pestalozzi](../johann-pestalozzi), in Yverdun ( Switzerland ), he became one of that celebrated teacher’s most eminent pupils and one of the most zealous propagandists of the Educational system that exercised a great influence in the reform of the Educational system in France and in Germany.
+Educated in the renown School of [Pestalozzi](../johann-pestalozzi), in [Yverdun ( Switzerland )](https://www.yverdon-les-bains.ch/), he became one of that celebrated teacher’s most eminent pupils and one of the most zealous propagandists of the Educational system that exercised a great influence in the reform of the Educational system in France and in Germany.
 
 Endowed with a notable intelligence, he was drawn to teaching, due to his character and his special aptitudes. At fourteen, he had already started to teach what he had previously studied, to some of his schoolmates, who had assimilated less than him. It was at that school that the ideas originated, which would later categorize him in the class of the progressive and free-thinkers individuals of the day.
 

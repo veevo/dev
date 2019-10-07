@@ -20,8 +20,8 @@
     <div class="row">
       <div class="col-lg-9">
         <ul class="list-inline d-flex justify-content-between py-3">
-          <li class="list-inline-item"><i class="ti-user mr-2"></i>Posted by {{.Site.Params.author}} on {{ .PublishDate.Format "Jan 02, 2006" }}</li>
-		  <li class="list-inline-item"><i class="ti-calendar mr-2"></i>Reading Time: {{ .ReadingTime }} minutes</li>
+          <li class="list-inline-item"><i class="ti-calendar mr-2"></i>Published on {{ .PublishDate.Format "Jan 02, 2006" }}</li>
+		  <li class="list-inline-item"><i class="ti-time mr-2"></i>Reading Time: {{ .ReadingTime }} minutes</li>
         </ul>
         <article class="content">
           <img src="{{.Params.Image | absURL }}" alt="post-thumb" class="img-fluid rounded float-left mr-5 mb-4">
@@ -31,8 +31,9 @@
       </div>
 	  <div class="col-lg-3 sidebar">
 		{{ partial "toc.html" . }}
-		{{partial "share.html" . }}
-		{{partial "report-error.html" . }}
+		{{ partial "share.html" . }}
+		{{ partial "related-topics.html" . }}
+		{{ partial "report-error.html" . }}
 	  </div>
     </div>
   </div>

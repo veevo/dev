@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Inhabited Worlds
-title: Introduction
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Types of World - Introduction
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
 ---
 
 ## Introduction
@@ -27,6 +26,3 @@ TODO
 
 
 
-
-<a href="./" class="button special">Inhabited Worlds</a>
-<a href="types" class="button">Next: Types of Worlds</a>

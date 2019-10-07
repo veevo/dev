@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Physical Nature
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Attributes of Spirits
@@ -70,6 +69,4 @@ TODO
 TODO
 
 
-<a href="physical-nature" class="button">Previous: Physical Nature</a>
-<a href="./" class="button special">Spirits</a>
-<a href="tendencies" class="button">Next: Tendencies, Vices, and Virtues</a>
+

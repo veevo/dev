@@ -33,7 +33,7 @@ In case any of the published content violates any copyright, feel free to [conta
 ## Response Time
 [Openness](/pillars/openness), one of our pillars also implies that we should reply inquiries as fast as possible. While we do our best efforts to respond as fast as possible, please note that we are an organization completely run by volunteers and delays may occur. That said, we will do our best to respond to very request submitted to us as fast as possible.
 
-## Related
+## Related Topics
 [Pillars](/help/pillars)  
 [Contact](/help/contact-us)  
 [Contribute](/contribute)  

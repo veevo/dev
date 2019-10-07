@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Pure Spirits
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## FIRST ORDER – PURE SPIRITS
@@ -23,6 +22,4 @@ They have passed up through every degree of the scale of progress, and have free
 TODO
 
 
-<a href="good" class="button">Previous: Good Spirits</a>
-<a href="./" class="button special">Spirits</a>
-<a href="inferior-communication" class="button">Next: Communication - Inferior Spirits</a>
+

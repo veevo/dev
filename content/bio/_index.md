@@ -3,6 +3,7 @@ title: "Biographies"
 date: 2019-05-14T14:46:10+06:00
 description: "Lorem ipsum dolor sit amet consectetur adipisicing elit."
 image: "images/author.jpg"
+layout: list-description
 ---
 
 Lorem ipsum dolor sit amet consectetur adipisicing elit. Dolorem deserunt tempora doloribus non, voluptas

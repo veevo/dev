@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Inhabited Worlds
 title: Celestial
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+date: 2019-01-01
 ---
 
 ## Celestial or Divine Orbs
@@ -25,9 +24,4 @@ TODO
 ## Suggested Reading
 TODO
 
-
-
-<a href="blissful" class="button">Previous: Blissful Worlds</a>
-<a href="./" class="button special">Inhabited Worlds</a>
-<a href="transitional" class="button">Next: Transitional Worlds</a>
 

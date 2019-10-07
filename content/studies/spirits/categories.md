@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Categories
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Categories of Spiritis
@@ -29,6 +28,4 @@ TODO
 
 
 
-<a href="evolution" class="button">Previous: Evolution</a>
-<a href="./" class="button special">Spirits</a>
-<a href="imperfect" class="button">Next: Imperfect Spirits</a>
+

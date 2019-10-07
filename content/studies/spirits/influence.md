@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Influence of Spirits
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## The Influence of Spirits in our lives
@@ -47,4 +46,4 @@ TODO
 [Article: Spiritual Influences](/articles/spiritual-influences)
 
 
-<a href="./" class="button special">Spirits</a>
+

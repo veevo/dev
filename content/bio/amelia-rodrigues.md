@@ -2,8 +2,6 @@
 title: Amélia Rodrigues
 description: TODO
 date: 2019-02-01 19:00:00
-categories: 
-- biographies
 ---
 
 
@@ -18,6 +16,7 @@ Amélia Rodriguez, Divaldo Franco
 
 
 ## Related
+[Divaldo Franco](/bio/divaldo-franco)  
 TODO
 
 

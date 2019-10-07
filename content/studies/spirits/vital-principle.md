@@ -1,8 +1,7 @@
 ---
-layout: default-md
-section: Spirits
+date: 2019-01-01
 title: Vital Principle
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 ---
 
 ## Vital Principle
@@ -20,6 +19,4 @@ TODO
 TODO
 
 
-<a href="physical-nature" class="button">Previous: Physical Nature</a>
-<a href="./" class="button special">Spirits</a>
-<a href="types-of-worlds" class="button">Next: Types of Worlds</a>
+
