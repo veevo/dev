@@ -4,6 +4,7 @@ description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do ei
 date: 2019-01-01
 image: "images/contact.jpg"
 layout: list-2col
+hide: true
 ---
 
 ## Ways you can contribute

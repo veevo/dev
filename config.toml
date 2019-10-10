@@ -3,7 +3,7 @@ title = "Veevo | Know thyself"
 language = "en-US"
 theme = "parsa"
 summaryLength = "10"
-paginate = 5
+paginate = 12
 
 [outputs]
   home = ["HTML", "AMP", "RSS", "JSON"]
@@ -149,10 +149,6 @@ ghissues = "https://github.com/veevo/www-en/issues"
 	URL = "bio"
 
     [[params.footer.resources]]
-	name = "Studies"
-	URL = "studies"
-    
-    [[params.footer.resources]]
 	name = "Books"
 	URL = "books" 
 
@@ -161,9 +157,26 @@ ghissues = "https://github.com/veevo/www-en/issues"
 	URL = "movies" 
 
     [[params.footer.resources]]
+	name = "Topics"
+	URL = "topics"
+
+	[[params.footer.resources]]
+	name = "Studies"
+	URL = "studies"
+    
+    [[params.footer.resources]]
 	name = "Videos"
 	URL = "videos"
     
+    [[params.footer.resources]]
+	name = "Vocabulary"
+	URL = "about"
+
+    [[params.footer.resources]]
+	name = "The Gospel"
+	URL = "gospel"
+
+
 
     # Help
     [[params.footer.contribute ]]
@@ -222,10 +235,3 @@ ghissues = "https://github.com/veevo/www-en/issues"
 	name = "Contact Us"
 	URL = "help/contact-us"
 
-    [[params.footer.resources]]
-	name = "Vocabulary"
-	URL = "vocabulary"
-
-    [[params.footer.resources]]
-	name = "The Gospel"
-	URL = "gospel"

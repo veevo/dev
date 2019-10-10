@@ -2,6 +2,7 @@
 title: Getting Started
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 image: "images/masonary-post/post-2.jpg"
+hide: true
 ---
 
 Get Ready! You are about to start a jouney that may change your life forever.
