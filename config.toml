@@ -173,7 +173,7 @@ ghissues = "https://github.com/veevo/www-en/issues"
 	URL = "about"
 
     [[params.footer.resources]]
-	name = "The Gospel"
+	name = "The Gospel Explained"
 	URL = "gospel"
 
 

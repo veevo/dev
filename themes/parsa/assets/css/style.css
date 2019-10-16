@@ -33,7 +33,7 @@ p, .paragraph {
   font-size: 1.2rem;
   line-height: 1.5;
   font-family: "Open Sans", sans-serif;
-  padding: 0.4rem;
+  padding-top: 0.6rem;
 }
 
 h1, h2, h3, h4, h5, h6 {
@@ -525,6 +525,13 @@ textarea.form-control {
 .navbar .dropdown-item:active {
   color: #fff;
   background-color: #e83e8c;
+}
+
+.subheader {
+	font-family: Georgia, Times, serif;
+	font-size: 1.6rem;
+	font-style: italic;
+	color: #666;
 }
 
 .search-icon {

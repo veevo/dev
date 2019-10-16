@@ -7,7 +7,9 @@
         <h1>{{.Title }}</h1>
 		<h3 class="font-weight-light mb-4">{{ .Description }}</h3>
         <img src="{{.Params.Image | absURL }}" alt="{{.Title}}" class="img-fluid w-100 mb-4">
-        {{ .Content }}
+        <div class="paragraph">
+          {{.Content}}
+        </div>
       </div>
     </div>
   </div>
@@ -22,7 +24,9 @@
           {{ range .Pages }}
           <div class="col-sm-4 mb-5">
             <article class="text-center">
-              <img class="img-fluid" src="{{.Params.Image | absURL }}" alt="post-thumb">
+              <a class="text-dark" href="{{.Permalink}}">
+				<img class="img-fluid" src="{{.Params.Image | absURL }}" alt="post-thumb">
+			  </a>
               <h4><a class="text-dark" href="{{.Permalink}}">{{.Title}}</a></h4>
               <p>{{.Description}}</p>
               <a href="{{.Permalink}}" class="btn btn-transparent">read more</a>
