@@ -30,7 +30,7 @@ Education is also cited by [The Spirit of Truth](/about/spirit-of-truth) on [The
 > Espíritas! amai-vos, este o primeiro ensinamento; instruí-vos, este o segundo. No Cristianismo encontram-se todas as verdades; são de origem humana os erros que nele se enraizaram. Eis que do além-túmulo, que julgáveis o nada, vozes vos clamam: “Irmãos! nada perece. Jesus Cristo é o vencedor do mal, sede os vencedores da impiedade.”
 
 ## Openness
-We think that everything that we do should be open to the public for inspection, adaptation and improvement. Nothing should be hidden. We [keep our source code code open](https://github.com/veevo), provide an open channel for [contribution](/contribute), [communication](/help/contact-us) and [error reporting](/contribute/report-error).
+We believe that everyone benefits from open collaboration thus we belive that everything that we do should be open to the public for inspection, adaptation and improvement. Nothing should be hidden. We [keep our source code code open](https://github.com/veevo), provide an open channel for [contribution](/contribute), [communication](/help/contact-us) and [error reporting](/contribute/report-error). We also expose whenever possible the original source of every published material and, if necessary translation information so our users can validate that using other mediums.
 
 We also have an open channel for [questions](/help/contact-us) and accept requests of [articles](/articles). All for the benefit of the community.
 
