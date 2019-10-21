@@ -1,9 +1,11 @@
 ---
-title: Gospel At Home - Why Practice
+title: Why Practice the Gospel at Home
 description: Realizing the Gospel at Home is more than just studying the Gospel. Learn why.
 date: "2019-01-01"
+image: "images/contact.jpg"
 ---
 
+We understand [what the Gospel at home is](../). But why practice it?
 On this post, let's understand why spiritists are encouraged to practice the **gospel at home** with their family.
 
 ### Moral And Spiritual Fortitude
@@ -21,4 +23,8 @@ When we dedicate ourselves to morally edifying study and put into practice the l
 ### Education of Discarnate Spirits
 With the regular practice of Gospel At Home meetings, the family members may begin to host an audience of discarnate spirits who will also be present during the meeting to learn from the readings and discussions. These are spirits in need of moral education or inspiration to step out of the shadows of despair precipitated by a fixation of their minds on something that caused them emotional suffering.  Just like the family members themselves, these spirits also need to learn about the God who loves all his children, the operation and justice of the natural laws that govern both the material and spiritual worlds, and the lessons left by Jesus as well as his love that continues with us at all moments.  Sometimes the spirits are drawn to the meeting on their own, and sometimes they are brought by higher spirits.  The fact that these spirits may be present is another reason for family members to always be aware of their behavior, especially on the meeting day, for their behaviors will be observed by these discarnate brothers and sisters, who can benefit from the household members' good examples.
 
+## Read Next
+[Suggested Format](../format)  
+[Guidelines for a fruitful Gospel at Home](../guidelines)  
+[What is the Gospel at Home](../)  
 

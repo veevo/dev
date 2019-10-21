@@ -2,14 +2,16 @@
 title: Umbral
 description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- worlds
+- universe
+- life
 ---
 
-Universo - [do latim universu]. Conjunto ilimitado de todo o espaço existente e o seu conteúdo. 
+## Introduction
+Within the Universe there are other inhabited worlds, with beings at different degrees of evolution: some equal, others more or less evolved than Human Beings.  
+The spirit-world is the normal, original, eternal world; it is pre-existent to and survives everything else.  
+The physical world is secondary.  It could cease to exist, or even have never existed at all, and that would not affect the essence of the spirit-world.  
 
 ## See Also
 TODO
-
-## Source
-[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

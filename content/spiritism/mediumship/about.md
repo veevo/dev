@@ -4,8 +4,6 @@ description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in 
 date: "2019-01-01"
 tags:
 - mediumship
-categories:
-- spiritism
 ---
 
 On this post, let's understand a little more mediumship and mediums.

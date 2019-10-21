@@ -134,6 +134,18 @@ ghissues = "https://github.com/veevo/www-en/issues"
 	name = "Advanced Topics"
 	URL = "spiritism/advanced"
 
+    [[params.footer.spiritism]]
+	name = "Spiritism for Kids"
+	URL = "spiritism/for-kids"
+
+    [[params.footer.spiritism]]
+	name = "Spiritism for Teens"
+	URL = "spiritism/for-teens"
+
+    [[params.footer.spiritism]]
+	name = "Gospel at Home"
+	URL = "spiritism/gospel-at-home"
+
     
     # Resources
     [[params.footer.resources]]

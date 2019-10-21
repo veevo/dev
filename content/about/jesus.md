@@ -1,23 +1,29 @@
 ---
 title: Jesus
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+description: Learn about Jesus, the Spiritual Governor of Earh, Model and Guide of Humankind.
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- jesus
 ---
 
-Jesus – O ser mais perfeito que Deus ofereceu aos homens para lhes servir de modelo e guia.
 
-O espírito de maior grau ou patente evolutiva já encarnado no planeta terra. Segundo a doutrina espírita, Jesus é o "administrador" espiritual do planeta e de todos os espíritos que nele se encontram, sejam encarnados ou não. Sob sua tutela estão todos os espíritos aqui existentes. Trata-se de uma entidade espiritual de altíssima evolução moral cujas faculdades morais e espirituais jamais poderiamos definir em nossa linguagem.
-
-## Who is Jesus?
+## Introduction
 Jesus is the "greatest model of charity and moral perfection that we have to follow" [1].
 
 He is the Guide and Model for all Humankind.
 
 The Doctrine He taught and exemplified is the most pure expression of God’s Law.
 
-The morality of Christ, as contained in the Gospels, is the pathway for the secure progress of all Human Beings. Its practice is the solution for all human problems and the objective to be attained by Humankind
+The morality of Christ, as contained in the [Gospel](/gospel), is the pathway for the secure progress of all Human Beings. Its practice is the solution for all human problems and the objective to be attained by Humankind
+
+Jesus is the Guide and Model for all Humankind. The Doctrine He taught and exemplified is the most pure expression of God’s Law.  
+
+The morality of Christ, as contained in the [Gospel](/gospel), is the pathway for the secure progress of all Human Beings. Its practice is the solution for all human problems and the objective to be attained by Humankind.  
+
+## PT-BR 
+Jesus – O ser mais perfeito que Deus ofereceu aos homens para lhes servir de modelo e guia.
+
+O espírito de maior grau ou patente evolutiva já encarnado no planeta terra. Segundo a doutrina espírita, Jesus é o "administrador" espiritual do planeta e de todos os espíritos que nele se encontram, sejam encarnados ou não. Sob sua tutela estão todos os espíritos aqui existentes. Trata-se de uma entidade espiritual de altíssima evolução moral cujas faculdades morais e espirituais jamais poderiamos definir em nossa linguagem.
 
 ### References
 The Spirits' Book, Question 625
