@@ -26,11 +26,12 @@ it is permissible to do the meeting, wherever they are, if circumstances permit.
 
 ### Duration
 The approximate duration of the meeting should be **between 30 minutes to one hour**.
+It's important to respect the time since our [Spiritual Guides](/about/spiritual-guide) also have a very busy schedule.
 
 ### Environment
-The environment should be a place inside the home, where participants can **feel comfortable** and 
-which allows for the open reading of books. If a household member is sick at the time, you can conduct 
-the meeting where he is, if he would like. If desired, soft music can be played in the background.
+The environment should be a place inside the home, where participants **feel comfortable** and 
+which allows for the open reading of books. If a household member is sick at the time,
+the meeting can be conducted they are, if they would like. If desired, soft music can be played in the background.
 There is no need for any kind of special decor, candles, or other objects.
 
 The only item you are advised to have on the table, other than your books, is a pitcher of water to be magnetized,
@@ -49,6 +50,6 @@ Once the meeting begins, it should not be interrupted for phone calls or other a
 
 ## Read Next
 [Why practice the Gospel at Home](../why)  
-[Suggested Format](format)  
+[Suggested Format](../format)  
 [What is the Gospel at Home](../)  
 

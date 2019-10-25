@@ -1,19 +1,23 @@
 ---
 title: Spiritual Influences
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: What are "Spiritual Influences"? Do they really exist?
 date: "2019-01-01"
 tags:
 - mediumship
-categories:
-- spiritism
 ---
 
-About Spiritual Influences:
+## Introduction
+TODO
+
+## About Spiritual Influences
+Let's see what [The Spirits' Book](/books/spirits-book) says:
+
 > Q. 459: "Do spirits influence our thoughts and actions?"  
 > "To a greater extent than you suppose, they can have a significant influence on both."<br><br>
-> The Spirits' Book
 
-It is through the kind of exchanges previously mentioned that spirits are able to suggest ideas to us that we receive in the form of [intuitions](/about/intuitions). As described on the [Law of Attraction](/divine-laws/attraction), these influences can be **good or bad**.
+It is through the kind of exchanges previously mentioned that spirits are able to suggest ideas to us 
+that we receive in the form of [intuitions](/about/intuitions). As described on the [Law of Attraction](/divine-laws/attraction),
+these influences can be **good or bad**.
 
 ### Good Influences
 Good and friendly spirits who wish to help us on our road of progress will suggest to us ideas that can, should we listen to them, help us to make good decisions.  This is often the case when we are pondering over a decision we must make or are seeking the best way to finish a given task, and, almost as if "out of the blue", an idea comes to mind that leads us to the answer we needed.  Suggestions of good advice, however, don't always "spring" upon us, as they may simply become interwoven into the orderly thought process through which we arrive at our decision.  

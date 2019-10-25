@@ -1,17 +1,16 @@
 ---
-title: Mediums and Mediumship
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Mediumship
+description: There's a lot of misinformation about mediumship. Learn what it is and how it helps the human being on their spiritual journey.
 date: "2019-01-01"
+image: "images/contact.jpg"
+layout: list-simple
 tags:
 - mediumship
-categories:
-- spiritism
 ---
 
 ### Basic Concepts
 [What is mediumship](about)  
-[Who is a medium](who-is)  
-[Why are we mediums?](why)  
+[Why Mediumship exists?](why)  
 [Spiritual Influences](influences)  
 
 ### Types of mediumship

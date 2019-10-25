@@ -1,0 +1,25 @@
+{{ define "main" }}
+
+<section class="section">
+  <div class="container">
+    <div class="row">
+      <div class="col-lg-12">
+        <h1>{{.Title }}</h1>
+		<h3 class="font-weight-light mb-4">{{ .Description }}</h3>
+        <img src="{{.Params.Image | absURL }}" alt="{{.Title}}" class="img-fluid w-100 mb-4">
+        <div class="paragraph">
+          {{.Content}}
+        </div>
+		<h2 id="see-also">On this section</h2>
+		<p class="see-also">
+		    {{ range .Pages }}
+			<a href="{{.Permalink}}">{{.Title}}</a><br />
+			{{ end }}
+		 </p>
+      </div>
+    </div>
+  </div>
+</section>
+
+
+{{ end }}
