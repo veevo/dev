@@ -3,6 +3,7 @@ title: Suggested Format for your Gospel at Home
 description: Understand some of the procedures and recommended behavior when practing your Gospel at Home.
 date: 2019-01-01
 image: "images/contact.jpg"
+weight: 200
 ---
 
 ## Introduction

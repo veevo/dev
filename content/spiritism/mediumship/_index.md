@@ -8,22 +8,8 @@ tags:
 - mediumship
 ---
 
-### Basic Concepts
-[What is mediumship](about)  
-[Why Mediumship exists?](why)  
-[Spiritual Influences](influences)  
-
-### Types of mediumship
-[Types of mediums](types)  
-[Physical mediums](physical)  
-[Intellectual mediums](intellectual)  
-[Curing mediums](curing)  
-
-### Behavior and Development
-[Expected Behavior from a Medium](behavior)  
-[Virtues Mediums should have](virtues)  
-[Evolution of the Mediumship](evolution)  
-
-### Common Questions
-[Misconception: Are Mediums Superior?](superiority)  
+Mediumship is an important tool for self-knowledge and moral development.
+On this section, learn more about what [Spiritism](/spiritism) teaches us and
+how it will help you understand more in depth the relationship between the
+phisical and the [spiritual world](/about/spiritual-world).
 

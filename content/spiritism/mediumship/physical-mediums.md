@@ -1,6 +1,6 @@
 ---
-title: Types Of Mediums - Physical Mediums
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Physical mediums
+description: Know more about Physical Mediums
 date: "2019-01-01"
 tags:
 - mediumship
@@ -8,10 +8,15 @@ categories:
 - spiritism
 ---
 
-Physical Mediums are: 
+## Introduction
+According to [Allan Kardec](/bio/allan-karec) on [The Mediums Book](/books/allan-kardec/mediums-book) Chapter XVI (item 189), pysical mediums are: 
+
 > Mediums who have a tendency to physical manifestations of Spirit communications through the giving of [ectoplasm](/about/ectoplasm).
 
-The list below is based on Allan Kardec's [The Mediums Book](/books/allan-kardec/mediums-book) Chapter XVI (item 189), describing the types of physical mediums encountered.
+
+## Types of Physical Mediums
+[The Mediums Book](/books/allan-kardec/mediums-book) Chapter XVI (item 189), 
+describes the types of physical mediums encountered. Please find the list below.
 
 ### Rapping Mediums
 Those by whose influence noises and raps are produced.  A very common variety of medianimity, whether voluntary or involuntary.
@@ -32,9 +37,18 @@ Those who provoke apparitions, whether fluidic or tangible, which are visible to
 Those who are employed by spirits as aids in the transport of material objects. Variation of the motor mediums and mediums for displacements.  Exceptionally rare. (see Ch XVI, item 96) 
 
 ### Nocturnal Mediums
-Those who only obtain certain physical effects in the dark.  Here is the answer of a spirit to our inquiry as to whether such mediums should be considered as forming a separate variety: 
+Those who only obtain certain physical effects in the dark.  Here is the answer of a spirit to our inquiry as to whether such mediums 
+should be considered as forming a separate variety: 
 
-> "This form of medianimity may certainly be spoken of as a specialty, although the necessity of darkness has to do rather with surrounding conditions than with the nature of the medium, or with that of the manifesting spirits; for, in fact, some of these mediums overcome this peculiar necessity, and the greater number of nocturnal mediums are able to, through exercise, obtain the same manifestations in the light.  There are but few of this variety of mediums; and we feel bound to point out that this peculiar form of medianimity offers a wide field for trickery, ventriloquism, acoustic tubes, etc, enabling charlatans to play upon credulity and to pocket money. The behind the scenes tricksters, just like those on the public square, will be cruelly unmasked, and the spirits will prove that they are up to no good,  intermeddling with their work.  I repeat: some charlatans will receive, in quite a severe way, the punishment that will take away their delight in acting as false mediums." − Erastes.
+> "This form of medianimity may certainly be spoken of as a specialty, although the necessity of darkness has to do rather with 
+surrounding conditions than with the nature of the medium, or with that of the manifesting spirits;
+for, in fact, some of these mediums overcome this peculiar necessity, and the greater number of nocturnal mediums are able to,
+through exercise, obtain the same manifestations in the light.  There are but few of this variety of mediums;
+and we feel bound to point out that this peculiar form of medianimity offers a wide field for trickery, ventriloquism,
+acoustic tubes, etc, enabling charlatans to play upon credulity and to pocket money. The behind the scenes tricksters,
+fjust like those on the public square, will be cruelly unmasked, and the spirits will prove that they are up to no good,
+intermeddling with their work.  I repeat: some charlatans will receive, in quite a severe way, the punishment that will 
+take away their delight in acting as false mediums." − [Erastes](/bio/erastes)
      
 
 ### Pneumatographic Mediums
@@ -58,8 +72,8 @@ Persons who, by their influence, have the power of developing the faculty of wri
 
 
 ## See Also
-[SGNY: Types Of Mediums](http://www.sgny.org/spiritism-guide/mediumship/medium-types/)
-[ExploreSpiritism.com: How Physical Mediumship Works](//www.explorespiritism.com/Science_Mediumship_Physical_Intro.htm)
+[SGNY: Types Of Mediums](http://www.sgny.org/spiritism-guide/mediumship/medium-types/)  
+[ExploreSpiritism.com: How Physical Mediumship Works](//www.explorespiritism.com/Science_Mediumship_Physical_Intro.htm)  
 
 ## Suggested Reading
 [The Mediums Book](/books/allan-kardec/mediums-book), Chapter XVI #187-#189

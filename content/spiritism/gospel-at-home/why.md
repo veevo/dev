@@ -3,6 +3,7 @@ title: Why Practice the Gospel at Home
 description: Realizing the Gospel at Home is more than just studying the Gospel. Learn why.
 date: "2019-01-01"
 image: "images/contact.jpg"
+weight: 100
 ---
 
 We understand [what the Gospel at home is](../). But why practice it?

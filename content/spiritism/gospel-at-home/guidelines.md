@@ -3,6 +3,7 @@ title: Guidelines for a Healthy Gospel At Home
 description: Important and safe guidelines for practcing the Gospel at Home.
 date: "2019-01-01"
 image: "images/contact.jpg"
+weight: 300 
 ---
 
 ## Introduction

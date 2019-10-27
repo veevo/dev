@@ -12,7 +12,7 @@
         </div>
 		<h2 id="see-also">On this section</h2>
 		<p class="see-also">
-		    {{ range .Pages }}
+		    {{ range .Pages.ByWeight }}
 			<a href="{{.Permalink}}">{{.Title}}</a><br />
 			{{ end }}
 		 </p>

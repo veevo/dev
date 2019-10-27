@@ -4,6 +4,7 @@ description: Learn about Mediumship and Mediums, the people who practice mediums
 date: "2019-01-01"
 tags:
 - mediumship
+weight: 100
 ---
 
 On this post, let's understand a little more mediumship.

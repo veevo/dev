@@ -1,6 +1,6 @@
 ---
-title: Types Of Mediums - Intellectual Mediums
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Intellectual mediums
+description: Know more about intellectual mediums.
 date: "2019-01-01"
 tags:
 - mediumship
@@ -8,8 +8,16 @@ categories:
 - spiritism
 ---
 
+## Introduction
+[Allan Kardec](/bio/allan-kardec) provides us the what intellectual mediums are:
+
 > Mediums who have a tendency to intellectual manifestations of Spirit communications through the bonding of perispirits.   
 > The Mediums Book Chapter 16 #187 – #188
+
+
+## Types of Intellectual Mediums
+Let's now review the list of intellectual mediums provided by [Allan Kardec](/bio/allan-kardec) on [The Mediums' Book](/books/mediums-book).
+
 
 ### Clairvoyant and Somnambulic Mediums
 Seeing mediums are those who see spirits. This faculty is rare and is seldom permanent.
@@ -20,7 +28,8 @@ Though we normally refer to seeing mediums who see spirits while awake, as Karde
 
 
 ### Hearing Mediums
-Hearing mediums are those who hear the voices of spirits. This is a common type of mediumistic faculty.  As the spirit desiring to communicate approaches one such medium, and the two of them establish a fluidic connection (via their perispirits), there are two ways in which this medium could hear the spirit's "voice".  Sometimes, the perispirit of the medium receives the thought of the spirit, and the medium feels it as if it were an inner voice, speaking to his inner consciousness.  Other times, the connection between the communicating spirit and the medium occurs in such a way so as to make an impression on the auditory nerves of the medium. In this case, the medium hears the "voice" of the spirit as an external voice, just as if he were hearing the voice of another person.
+Hearing mediums are those who hear the voices of spirits. This is a common type of mediumistic faculty.  As the spirit desiring to communicate approaches one such medium, and the two of them establish a fluidic connection (via their perispirits), there are two ways in which this medium could hear the spirit's "voice".  Sometimes, the perispirit of the medium receives the thought of the spirit, and the medium feels it as if it were an inner voice, speaking to his inner consciousness.
+Other times, the connection between the communicating spirit and the medium occurs in such a way so as to make an impression on the auditory nerves of the medium. In this case, the medium hears the "voice" of the spirit as an external voice, just as if he were hearing the voice of another person.
 
 A hearing medium may be able hear the voice of spirits in both ways or only one.  The medium can converse with the spirits, acting as an interpreter to pass on to other incarnates what the spirit wishes to say  ̶  either by repeating the message or writing it down. These mediums are very common.  
 
@@ -71,11 +80,16 @@ To demonstrate the difference between the somnambulist and the somnambulistic me
 The case of medical prescriptions is also a form of somnambulic mediumship used by Spiritist groups, though it is not one of the more common mediumistic practices, since the faculty is rare.   Obviously, though, much caution should be taken when consulting such a medium, and one should not do so without proper knowledge of the medium's mediumistic abilities and moral character, as well as the seriousness of the Center in which the medium works.  Finally, and again, though it is rare, somnambulist mediums can also work as unconscious speaking mediums (see "Speaking Mediums" on menu bar at left). 
 
 ## Other Categories
-**According to the Development of the Medianimic Faculty**:  Novice, Unproductive, Fully Formed, Laconic, Explicit, Experienced, Flexible, Exclusive, Those For Evocations, Those Who Receive Spontaneous Communications.
+We are also provided with other categories to categorize intellectual mediums.
 
-**According to Kind and Specialty of Communications**: Verse-making, Poetic, Positive, Literary, Incorrect, Historical, Scientific, Medical, Religious, Philosophic and Moralistic, Those For Trivial and Obscene Communications.
+### According to the Development of the Medianimic Faculty
+Novice, Unproductive, Fully Formed, Laconic, Explicit, Experienced, Flexible, Exclusive, Those For Evocations, Those Who Receive Spontaneous Communications.
 
-**According to Physical Qualities of the Medium**: Calm, Rapid, Convulsive. 
+### According to Kind and Specialty of Communications
+Verse-making, Poetic, Positive, Literary, Incorrect, Historical, Scientific, Medical, Religious, Philosophic and Moralistic, Those For Trivial and Obscene Communications.
+
+### According to Physical Qualities of the Medium
+Calm, Rapid, Convulsive. 
 
 
 ## See Also

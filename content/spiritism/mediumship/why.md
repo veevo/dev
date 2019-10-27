@@ -1,11 +1,12 @@
 ---
-title: Why does Mediumship exist?
+title: Why mediumship exists
 description: Mediunity is not specific to a select group of people but to all of us.
 date: "2019-01-01"
 tags:
 - mediumship
 categories:
 - spiritism
+weight: 101
 ---
 
 As [previously said](../about), mediumship is a native aspect of every person and has a different purpose on each of us. See below what they are.
@@ -25,10 +26,11 @@ second from the constant works of charity performed when the gift is used to hel
 ### Revelation
 Mediumship is a precious instrument for revealing to people the truths about God,
 the [immortality of the soul](/about/immortal-spirit), [God’s laws](/divine-laws),
-the existence of the [spirit world](/about/spiritual-world) and the [after life](/about/erraticity).
+the existence of the [spiritual world](/about/spiritual-world) and the [after life](/about/erraticity).
 
 ### Information
-Mediumship is a channel for [thousands of books](/books) on all aspects of life in the physical and spirit world. It also provides information directly from Spirits to individuals who need this guidance.
+Mediumship is a channel for [thousands of books](/books) on all aspects of life in the physical and spiritual world.
+It also provides information directly from Spirits to individuals who need this guidance.
 
 ### Healing
 Trough Mediumship a medium can provide healing energy from the spiritual realm to cure needy individuals.

@@ -1,14 +1,17 @@
 ---
-title: Types Of Mediums
+title: Types of mediums
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: "2019-01-01"
 tags:
 - mediumship
-categories:
-- spiritism
+weight: 120
 ---
 
-The two main categories of [mediumistic phenomena](phenomena) are: **physical & intelligent**. From that, derive the two main types of mediums: physical and intellectual. Let's understand them.
+The two main categories of phenomena are: **physical & intelligent**. From them, derive the two main types of mediums: **physical and intellectual**.
+
+
+## Types of Mediums
+Let's now understand the types of mediums as described by [Allan Kardec](/bio/allan-kardec) on the profound [The Mediums' Book](/books/mediums-book).
 
 ### Sensitive Mediums
 Persons who feel the presence of spirits by a peculiar impression, general or local, vague or undecided. Most of these distinguish good or evil spirits by the nature of the impression caused by them.

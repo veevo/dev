@@ -1,17 +1,30 @@
 ---
-title: Expected Qualities from a Medium
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Virtues expected from mediums
+description: To correctly exercise the Mediumship, serious Mediums are required to develop essential virtues. Know which they are.
 date: "2019-01-01"
 tags:
 - mediumship
-categories:
-- spiritism
+- virtues
+weight: 111
 ---
 
-The text below contains exerts from `Eliseu Rigonatti` books `Development of Mediumship: Qualities of a Good Medium, Mediumship Without Tears, and Studying Mediumship` (Sao Paulo: Editora Pensamento Ltda) on the kind of ethical progress a medium must strive for:
+The text below contains exerts from `Eliseu Rigonatti` and is based on the books:
+`Development of Mediumship: Qualities of a Good Medium, Mediumship Without Tears, and Studying Mediumship`
+on the kind of ethical progress a medium must strive for.
+
+
+## Virtues
+The list below is only an excerpt of the essential [virtues](/virtues) serious [mediums](../mediums) are supposed to develop.
+Remember, the number of [virtues](/virtues) is virtually infinite and each of us brings in our
+reincarnatory plan, one essential virtual and satellite virtues.
+
+Due to the seriousness of the practice, mediums however, are required to develop themselves even more seriously as seen by the below list.
 
 ### Seriousness in purpose and use of the mediumship
-The serious mediums understand that their faculty has been given to them as a gift by which they can progress spiritually, through their assistance to those in need (both incarnate and discarnate) and in their cooperation in the dissemination of the instructive and inspiring messages. Therefore, they only use their faculties for good and useful ends. They do not exploit their brethren of the Spirit realm with requests for help in material matters or inferior spiritual desires, nor do they exercise their faculty to satisfy the curious and indifferent or for any other futile purpose.
+Serious mediums understand that their faculty has been given to them as a gift by which they can progress spiritually,
+through their assistance to those in need (both incarnate and discarnate) and in their cooperation in the dissemination of the instructive and inspiring messages.
+Therefore, they only use their faculties for good and useful ends. They do not exploit their brethren of the [Spirit realm](/about/spiritual-world)
+with requests for help in material matters or inferior spiritual desires, nor do they exercise their faculty to satisfy the curious and indifferent or for any other futile purpose.
 
 ### Modesty / Humility
 The Spirits teach us that pride is the most influential moral imperfection and continuously warn their students of its signs and consequences. In avoiding the downfalls caused by pride, the good medium remembers that he/she is only a simple instrument of others employed under Gods will and therefore does not assume any merit for the communications that he/she receives or for the healing energies that he/she helps bring to another. He/She also recognizes that he/she is not infallible and when duped by deceitful Spirits, he/she understands that that happened due to a fault in his/her character or some error in his/her conduct. The humble medium is willing to regularly practice self-criticism in order to recognize his/her own mistakes and avoid becoming unbalanced (through excessive enthusiasm, apathy toward results, or being at mercy of unenlightened Spirits who may plan for his/her failure). In addition to practicing self-criticism, the good medium is also open to constructive criticism from trust-worthy friends and mentors, and even seeks out advice and mentoring.
@@ -47,14 +60,10 @@ The medium should live their life as best they can and every evening ask themsel
 
 
 ## Recommended Bibliography
-Rigonatti, Eliseu. "O Desenvolvimento da Mediunidade" [Development of Mediumship]. A Mediunidade Sem Lagrimas [Mediumship Without Tears]. Sao Paulo: Editora Pensamento Ltda. 2000. 24-25.
-
+Rigonatti, Eliseu. "O Desenvolvimento da Mediunidade" [Development of Mediumship]. A Mediunidade Sem Lagrimas [Mediumship Without Tears]. Sao Paulo: Editora Pensamento Ltda. 2000. 24-25.  
 Rigonatti, Eliseu. "Qualidades de Um Bom Medium" [Qualities of a Good Medium]. A Mediunidade Sem Lagrimas [Mediumship Without Tears]. Sao Paulo: Editora Pensamento Ltda. 2000. 39-40.  
-
-Rigonatti, Eliseu. "Self Criticism." A Mediunidade Sem Lagrimas [Mediumship Without Tears]. Sao Paulo: Editora Pensamento Ltda. 2000. 119-112. 
-
-Peralva, Martins. "Mandato Mediunico" [Mandate of Mediumship] Estudando A Mediunidade [Studying Mediumship]. Rio de Janeiro-RJ, Brazil: Federação Espírita Brasileira [Brazilian Spiritist Federation].1998 (20th ed). 131-137.
-
+Rigonatti, Eliseu. "Self Criticism." A Mediunidade Sem Lagrimas [Mediumship Without Tears]. Sao Paulo: Editora Pensamento Ltda. 2000. 119-112.  
+Peralva, Martins. "Mandato Mediunico" [Mandate of Mediumship] Estudando A Mediunidade [Studying Mediumship]. Rio de Janeiro-RJ, Brazil: Federação Espírita Brasileira [Brazilian Spiritist Federation].1998 (20th ed). 131-137.  
 Kardec, Allan. "Mental And Moral Influence of the Medium" and "Special Mediums." The Mediums' Book. 2nd ed (1st edition FEB). Trans. Anna Blackwell (translated 1876). Ed. Livraria Espírita Allan Kardec. Brasilia-DF, Brazil:  Federação Espírita Brasileira [Brazilian Spiritist Federation}. 1986. 260-265 and 209-214 (sect. 196 & 197).
 
 
