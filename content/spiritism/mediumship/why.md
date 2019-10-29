@@ -1,6 +1,6 @@
 ---
 title: Why mediumship exists
-description: Mediunity is not specific to a select group of people but to all of us.
+description: Mediumship is not a gif to a select group of people but to all of us. Understand how.
 date: "2019-01-01"
 tags:
 - mediumship

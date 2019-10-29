@@ -1,12 +1,25 @@
 ---
 title: Obsession - Recommended Bibliography
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: Would you like to study more about obsession? We provide extensive documentation about the topic.
 date: "2019-01-01"
 tags:
 - obsession
-categories:
-- mediumship
 ---
+
+
+## Introduction
+Obsession is an extensive, complex and very delicate topic. There are inumerous works that provide
+detailed information from both [encarnated](/about/encarnated) and [discarnated](/about/discarnate) authors.
+
+Below we recommend some of the most important works. Please note that we'll be updating this list
+regularly so feel free to return often for more books.
+
+## Discarnated Authors
+The main discarnated authors are:
+
+* [Andre Luis](/bio/andre-luis)
+* [Manoel Philomeno De Miranda](/bio/philomeno-de-miranda) 
+
 
 ## Recommended Bibliography
 Kardec, Allan. "Obsession." The Mediums' Book. 2nd ed (1st edition FEB). Trans. Anna Blackwell (translated 1876). Ed. Livraria Espírita Allan Kardec. Brasilia-DF, Brazil:  Federação Espírita Brasileira [Brazilian Spiritist Federation}. 1986. 277-281.
