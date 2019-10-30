@@ -1,11 +1,9 @@
 ---
 title: Intellectual mediums
-description: Know more about intellectual mediums.
+description: Know more about the various types of intellectual mediums.
 date: "2019-01-01"
 tags:
 - mediumship
-categories:
-- spiritism
 ---
 
 ## Introduction
@@ -48,10 +46,8 @@ Like the process that takes place in psychophony, in order for this to happen, t
 
 ¹ though only partially, i.e. always remains connected via a fluidic "chord", since complete separation would mean death.
 
-
 ### Intuitive Mediums
 Intuitive mediums are found among the mediums through whom spirits speak and write, though we put them here in a separate category, in order to distinguish the mechanism involved.  As mentioned in a previous topic (see Speaking and Writing Mediums), the mediums known as conscious and unconscious speaking mediums, as well as mechanical and semi-mechanical writing mediums, exercise a mediumistic faculty that involves the direct action of the spirit upon parts of their physical body, though always with a simultaneous mental connection.  In the intuitive medium, the spirit acts only upon the incarnate soul, with which it temporarily identifies. The intuitive medium is one who captures the thoughts of the spirits.   
-
 
 ### Inspired Mediums
 Inspired mediums, such as Allan Kardec himself, are those to whom the spirits suggest thoughts. They are a variety of the intuitive mediums, the difference being that in the inspired medium, the action of the spirits upon the medium is so subtle that even the medium himself does not feel it and only perceives that he is being helped in his ideas.  Consequently, it is even more difficult than with the intuitive medium to distinguish the medium's thought from that which is suggested.
@@ -79,23 +75,16 @@ To demonstrate the difference between the somnambulist and the somnambulistic me
 
 The case of medical prescriptions is also a form of somnambulic mediumship used by Spiritist groups, though it is not one of the more common mediumistic practices, since the faculty is rare.   Obviously, though, much caution should be taken when consulting such a medium, and one should not do so without proper knowledge of the medium's mediumistic abilities and moral character, as well as the seriousness of the Center in which the medium works.  Finally, and again, though it is rare, somnambulist mediums can also work as unconscious speaking mediums (see "Speaking Mediums" on menu bar at left). 
 
-## Other Categories
-We are also provided with other categories to categorize intellectual mediums.
+### Painting and Drawing mediums
+those who paint and draw under the influence of spirits. We are speaking of those whose medianimically-produced works are worthy of attention, for we cannot apply this designation to mediums who, under the influence of mocking spirits, obtain absurd productions that would disgrace the merest schoolboy.
 
-### According to the Development of the Medianimic Faculty
-Novice, Unproductive, Fully Formed, Laconic, Explicit, Experienced, Flexible, Exclusive, Those For Evocations, Those Who Receive Spontaneous Communications.
+### Musical mediums
+those who execute, compose, or write music, under the influence of spirits. They are mechanical, semi-mechanical, intuitive, and inspired; as are the mediums for literary communications
 
-### According to Kind and Specialty of Communications
-Verse-making, Poetic, Positive, Literary, Incorrect, Historical, Scientific, Medical, Religious, Philosophic and Moralistic, Those For Trivial and Obscene Communications.
-
-### According to Physical Qualities of the Medium
-Calm, Rapid, Convulsive. 
-
+## Suggested Reading
+[The Mediums Book](/books/allan-kardec/mediums-book), Chapter XVI #187-#189
 
 ## See Also
 [SGNY: Types Of Mediums](http://www.sgny.org/spiritism-guide/mediumship/medium-types/)  
 [ExploreSpiritism.com: Mediumship: How intellectual mediumship works](//www.explorespiritism.com/Science_Mediumship_Intellectual_Intro.htm)  
-
-## Suggested Reading
-[The Mediums Book](/books/allan-kardec/mediums-book), Chapter XVI #187-#189
 

@@ -15,8 +15,8 @@ According to [Allan Kardec](/bio/allan-karec) on [The Mediums Book](/books/allan
 
 
 ## Types of Physical Mediums
-[The Mediums Book](/books/allan-kardec/mediums-book) Chapter XVI (item 189), 
-describes the types of physical mediums encountered. Please find the list below.
+We present below what is described on [The Mediums Book](/books/allan-kardec/mediums-book) Chapter XVI (item 189),
+related to the topic.
 
 ### Rapping Mediums
 Those by whose influence noises and raps are produced.  A very common variety of medianimity, whether voluntary or involuntary.
@@ -77,5 +77,10 @@ Persons who, by their influence, have the power of developing the faculty of wri
 
 ## Suggested Reading
 [The Mediums Book](/books/allan-kardec/mediums-book), Chapter XVI #187-#189
+
+## See Also
+[Types of Mediums](../types-of-mediums)  
+[Intellectual Mediums](../intellectual-mediums)  
+[Curing Mediums](../curing-mediums)  
 
 

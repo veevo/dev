@@ -7,12 +7,26 @@ tags:
 weight: 120
 ---
 
+## Introduction
 The two main categories of phenomena are: **physical & intelligent**. From them, derive the two main types of mediums: **physical and intellectual**.
+
+On this article we present [Imperfect Mediums](#imperfect-mediums) and [Good Mediums](#good-mediums).
+This list is a compilation written by [Allan Kardec](/bio/allan-kardec) on [The Mediums' Book](/books/mediums-book).
+
+## How mediums can be categorized
+Mediumship can also be categorized as per the below list.
+
+#### According to the Development of the Medianimic Faculty:
+Novice, Unproductive, Fully Formed, Laconic, Explicit, Experienced, Flexible, Exclusive, Those For Evocations, Those Who Receive Spontaneous Communications.
+
+#### According to Kind and Specialty of Communications:
+Verse-making, Poetic, Positive, Literary, Incorrect, Historical, Scientific, Medical, Religious, Philosophic and Moralistic, Those For Trivial and Obscene Communications.
+
+#### According to Physical Qualities of the Medium:
+Calm, Rapid, Convulsive. 
 
 
 ## Types of Mediums
-Let's now understand the types of mediums as described by [Allan Kardec](/bio/allan-kardec) on the profound [The Mediums' Book](/books/mediums-book).
-
 ### Sensitive Mediums
 Persons who feel the presence of spirits by a peculiar impression, general or local, vague or undecided. Most of these distinguish good or evil spirits by the nature of the impression caused by them.
 
@@ -98,6 +112,8 @@ those who use their faculty only for personal ends, and who keep to themselves t
 those who are vexed at seeing other mediums better developed, and more highly appreciated, than themselves. All these bad qualities of mediums have necessarily their counterparts in good ones.
 
 ## Good Mediums
+This is where most of people practicing mediumship should aim for. Good mediums are those who
+produce good communication and are trusted by the [Superior Spirits](/about/superior-spirits).
 
 ### Serious mediums
 those who only use their faculties for good and really useful ends, and who would regard it as a profanation to use them for the satisfaction of the curious and indifferent, or for any futile purpose.
@@ -111,10 +127,9 @@ those who understand that the true medium has a mission to fulfill, and that he/
 ### Safe mediums
 those who, in addition to their power, are worthy of confidence on account of their personal excellence and the elevated nature of the spirits who assist them, and who are thus the least likely to be deceived. We shall see hereafter that this security does not depend in any way upon the honorability of the names assumed by the communicating spirits.
 
-
-## Categories Of Mediums
-[Physical Mediums](physical-mediums)  
-[Intellectual Mediums](intellectual-mediums)  
-[Curing Mediums](curing-mediums)  
+## See Also
+[Physical Mediums](../physical-mediums)  
+[Intellectual Mediums](../intellectual-mediums)  
+[Curing Mediums](../curing-mediums)  
 
 
