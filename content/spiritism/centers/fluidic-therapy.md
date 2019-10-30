@@ -1,6 +1,6 @@
 ---
-title: About
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Fluidic Therapy
+description: Learn what Fluidic Therapy is and how it can help you revitalize your energies and your life.
 date: "2019-01-01"
 tags:
 - spiritist-centers
@@ -16,11 +16,10 @@ You can read more about Fluidic Therapy by reading the section titled "Intro to 
 
 
 ## See Also
-[Spiritist Center Activities - Public Meetings](public-meetings)  
-[Spiritist Center Activities - Fluidic Therapy](fluidic-therapy)  
-[Spiritist Center Activities - Children's and Youth Studies](children-youth-studies)  
-[Spiritist Center Activities - Class and Study Groups](study-groups)  
-[Spiritist Center Activities - Mediumship Sessions](mediumship-sessions)  
-[Spiritist Center Activities - Fraternal Assistance](fraternal-assistance)  
-[Spiritist Center Activities - Community Outreach](community-outreach) 
+[Public Meetings](../public-meetings)  
+[Children's and Youth Studies](../children-youth-studies)  
+[Class and Study Groups](../study-groups)  
+[Mediumship Sessions](../mediumship-sessions)  
+[Fraternal Assistance](../fraternal-assistance)  
+[Community Outreach](../community-outreach) 
 

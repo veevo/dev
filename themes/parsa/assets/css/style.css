@@ -56,6 +56,7 @@ h1, .h1 {
 
 h2, .h2 {
   font-size: 30px;
+  padding-top: 40px;
 }
 
 @media (max-width: 767px) {
@@ -841,11 +842,10 @@ blockquote {
 }
 
 .widget {
-  padding: 15px 0;
+  padding: 0;
 }
 
-.widget:not(:last-child) {
-  margin-bottom: 30px;
+.widget:last-child {
   border-bottom: 1px solid #f4f4f4;
 }
 

@@ -1,12 +1,13 @@
 ---
 title: Spiritist Councils and Federations
-description: Spiritist Councils and Federations are organizations that foster and promote the Spiritist Doctrine.
+description: Spiritist Councils and Federations are organizations that foster and promote the Spiritist Doctrine around the World. Read to understand what are their objectives.
 date: "2018-11-30"
 image: "images/contact.jpg"
 ---
 
 ## Introduction
-Spiritist Councils and Federation have as objective, to promote, unify and foster the Spiritist Doctrine in each country.
+Spiritist Councils and Federation have as objective, to promote, unify and foster the [Spiritist Doctrine](/spiritism) in each country.
+
 All federations are represented on the [International Spiritist Council](https://cei-spiritistcouncil.com/) (ISC),
 an organization that supports the Spiritist movement in each country. The ISC has regional departments having as 
 objective to work together with the representatives from each country.
@@ -52,3 +53,8 @@ Please, [contact us](/help/contact-us) and we'll be happy to add your suggestion
 ## Source
 [CEI - Member Countries](https://cei-spiritistcouncil.com/member-countries/#1485984587200-c49f8ddf-5f57)
 
+## See Also
+[Spiritism](/spiritism)  
+[Allan Kardec](/bio/allan-kardec)  
+[What is Spiritism?](/spiritism/about)  
+[The Gospel Explained](/gospel)  

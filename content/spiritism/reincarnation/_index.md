@@ -1,11 +1,11 @@
 ---
 title: Reincarnation
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: Reincarnation is one of the pillars of Spiritism and is the best way to understand life, past, present and future.
 date: "2019-01-01"
+layout: list-simple
+image: "images/contact.jpg"
 tags:
 - reincarnation
-categories:
-- spiritism
 ---
 
 ## Information about Reincarnation
