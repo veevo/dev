@@ -10,10 +10,14 @@ tags:
 ## What is spiritism?
 
 #### A lesson of love:
-Spiritism is a lesson of [love](/divine-laws/love) and everlasting life, in a continued pursuit of self-improvement, and harmony, with all the creation throughout multiple existences.  
+Spiritism is a lesson of [love](/divine-laws/love) and [everlasting life](/about/immortal-spirit), 
+in a continued pursuit of self-improvement, and [harmony](/divine-laws/harmony),
+with all the creation throughout [multiple existences](/about/reincarnation).  
 
 #### A collection of essential and immutable truths:
-It is the collection of principles and laws, as revealed by the Superior Spirits, contained in the works of Allan Kardec, which constitute the Codification of Spiritism: The Spirits' Book, The Mediums' Book, The Gospel According to Spiritism, Heaven and Hell, and Genesis.  
+[Spiritism](/spiritism) is the result of extensive and rigorous research performed by [Allan Kardec](/bio/allan-kardec).  
+It is the collection of principles and laws, as revealed by the Superior Spirits,
+contained in the works of Allan Kardec, which constitute the Codification of Spiritism: The Spirits' Book, The Mediums' Book, The Gospel According to Spiritism, Heaven and Hell, and Genesis.  
 
 #### The Consoler promised by Jesus 2000 years ago:
 Spiritism is the promised Consoler which came, at the appointed time, to compliment and remind us of what [Jesus](/bio/jesus) taught, 

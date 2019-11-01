@@ -1,0 +1,1 @@
+/home/veevo/src/www-en/content/divine-laws/justice.md
