@@ -2,10 +2,8 @@
 title: Physical mediums
 description: Know more about Physical Mediums
 date: "2019-01-01"
-tags:
+topics:
 - mediumship
-categories:
-- spiritism
 ---
 
 ## Introduction

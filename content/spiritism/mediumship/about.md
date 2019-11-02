@@ -2,7 +2,7 @@
 title: What is Mediumship?
 description: Learn about Mediumship and Mediums, the people who practice mediumship.
 date: "2019-01-01"
-tags:
+topics:
 - mediumship
 weight: 100
 ---

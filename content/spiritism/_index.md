@@ -15,8 +15,8 @@ contributions and how it can make you a better human being.
 
 ## Starting with Spiritism
 #### Want to start right away?  
-Read our [introduction to Spiritism](about) section, the [FAQ](faq) or jump right into the 
-[Spiritist Codification](codification), the foundation of all the teachings of Spiritism.
+Read our [introduction to Spiritism](about), the [FAQ](faq) or jump right into the 
+[Spiritist Codification](codification), the essance of the teachings of Spiritism.
 
 #### Prefer a study guide?
 Sure! Check our [Guide to Study Spiritism](learn) to get started.
@@ -38,7 +38,7 @@ places dedicated for studying, practicing and collecting the spiritual blessings
 On [this section](centers) you'll also learn about [Spiritist Councils](/councils), bodies that orient, 
 guide and foster the Spiritist doctrine around the world.
 
-Need help? Get in contact via the [Contact Page](/help/contact-us).
+Need help? Get in touch via the [Contact Page](/help/contact-us).
 
 ## Educational Resources
 Want to learn more or looking for educational material? We're glad to help.  

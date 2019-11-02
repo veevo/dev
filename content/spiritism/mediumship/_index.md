@@ -4,7 +4,7 @@ description: There's a lot of misinformation about mediumship. Learn what it is 
 date: "2019-01-01"
 image: "images/contact.jpg"
 layout: list-simple
-tags:
+topics:
 - mediumship
 ---
 

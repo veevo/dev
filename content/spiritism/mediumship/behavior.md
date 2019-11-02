@@ -2,7 +2,7 @@
 title: What's expected from mediums?
 description: Understanding what's expected from a Medium is important to correctly exercise this practice.
 date: "2019-01-01"
-tags:
+topics:
 - mediumship
 weight: 110
 ---

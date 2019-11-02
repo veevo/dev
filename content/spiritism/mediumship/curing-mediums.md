@@ -2,7 +2,7 @@
 title: Curing mediums
 description: Know more about Curing Mediums.
 date: "2019-01-01"
-tags:
+topics:
 - mediumship
 weight: 122
 ---

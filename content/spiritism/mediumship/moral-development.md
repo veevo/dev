@@ -2,7 +2,7 @@
 title: The moral development of mediums
 description: "Mediums are required to much more than just exercise the mediumship: know themselves and develop their moral character."
 date: "2019-01-01"
-tags:
+topics:
 - mediumship
 weight: 114
 ---

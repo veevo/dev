@@ -2,7 +2,7 @@
 title: Intellectual mediums
 description: Know more about the various types of intellectual mediums.
 date: "2019-01-01"
-tags:
+topics:
 - mediumship
 ---
 

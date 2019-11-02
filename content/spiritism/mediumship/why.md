@@ -2,11 +2,9 @@
 title: Why mediumship exists
 description: Mediumship is not a gif to a select group of people but to all of us. Understand how.
 date: "2019-01-01"
-tags:
-- mediumship
-categories:
-- spiritism
 weight: 101
+topics:
+- mediumship
 ---
 
 As [previously said](../about), mediumship is a native aspect of every person and has a different purpose on each of us. See below what they are.

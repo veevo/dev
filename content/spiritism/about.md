@@ -3,7 +3,7 @@ title: What is Spiritism?
 description: You heard about Spiritism and would like to know in what it is? We will try our best..
 date: "2019-01-01"
 image: "images/contact.jpg"
-tags:
+topics:
 - spiritist-centers
 ---
 
@@ -14,30 +14,33 @@ Spiritism is a lesson of [love](/divine-laws/love) and [everlasting life](/about
 in a continued pursuit of self-improvement, and [harmony](/divine-laws/harmony),
 with all the creation throughout [multiple existences](/about/reincarnation).  
 
-#### A collection of essential and immutable truths:
+#### Essential and immutable truths:
 [Spiritism](/spiritism) is the result of extensive and rigorous research performed by [Allan Kardec](/bio/allan-kardec).  
 It is the collection of principles and laws, as revealed by the Superior Spirits,
 contained in the works of Allan Kardec, which constitute the Codification of Spiritism: The Spirits' Book, The Mediums' Book, The Gospel According to Spiritism, Heaven and Hell, and Genesis.  
 
-#### The Consoler promised by Jesus 2000 years ago:
-Spiritism is the promised Consoler which came, at the appointed time, to compliment and remind us of what [Jesus](/bio/jesus) taught, 
+#### The Promised Consoler:
+Spiritism is the [Promised Consoler](/about/consoler) which came, at the appointed time, 
+to compliment and remind us of what [Jesus](/bio/jesus) taught, 
 "reestablishing all things in their true meaning", so bringing to Humanity the true basis for spiritualization.  
 
-The menthor of all this work was [The Spirit of Truth](/about/spirit-of-truth) present on the [Gospel](/gospel).
+The menthor of all this work was [The Spirit of Truth](/about/spirit-of-truth), Jesus himself, 
+mentioned on [John 14-26](/gospel/john/14-26/).
 
 ## What does Spiritism reveal?  
 
 #### New, proven and profound concepts:
-It reveals new and more profound concepts with respect to God, the universe, mankind, the spirits and the laws which govern life.  
+It reveals new and more profound concepts with respect to [God](/about/god), the universe, mankind, 
+the [spirits](/about/superior-spirits) and the [laws which govern life](/divine-laws).
 
 #### Who we are, where we go, why we suffer:
 Even more, it reveals what we are, from where we have originated, to where we shall go, and the cause of our pains and sufferings.  
 
 #### Psychology, Science and Self-Awareness:
-Spiritism touches on all areas of human knowledge, of all activities and the behavior of Human Beings.  
+Spiritism touches on all areas of human knowledge, of all activities and the behavior of Human Beings.
 
 ## Science, Philosophy, or Religion?
-All of them! Spiritism is at the same time **science, a philosophy, and religion**.
+All of them! Spiritism is at the same time [Science, Philosophy and Religion](/spiritism/science-philosophy-religion).
 
 #### Science:
 The [scientific aspect of Spiritism](../science) studies the existence and nature of [spirits](/about/spirit), which are nothing 
@@ -67,6 +70,8 @@ and examples come from [Jesus Christ](/about/jesus), the model and guide of huma
 
 
 ## See Also
-[Spiritism - Science, Philosophy or Religion?](../science-philosophy-religion)  
+[Learn Spiritism](../learn)  
+[Spiritism - Teachings](../teachings)  
 [Spiritism - FAQ](../faq)  
+[Spiritism - Science, Philosophy or Religion?](../science-philosophy-religion)  
 

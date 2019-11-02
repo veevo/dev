@@ -2,10 +2,8 @@
 title: Why has Spiritism Endured?
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: "2019-01-01"
-tags:
+topics:
 - spiritist-centers
-categories:
-- spiritism
 ---
 
 Today Spiritism has found a huge rebirth in the UK, Brazil, and America, with growing branches all over Europe and South America.

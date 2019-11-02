@@ -1,10 +1,11 @@
 ---
-title: How the communication happens
+title: Mediumship - How the communication happens
 description: Know the main categories of mediumistic communication and their workings
 date: "2019-01-01"
-weight: 300
-tags:
+weight: 110
+topics:
 - phenomena
+- mediumship
 ---
 
 ## Introduction

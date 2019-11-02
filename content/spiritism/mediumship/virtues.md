@@ -1,11 +1,11 @@
 ---
-title: Virtues expected from mediums
+title: Virtues expected from Mediums
 description: To correctly exercise the Mediumship, serious Mediums are required to develop essential virtues. Know which they are.
 date: "2019-01-01"
-tags:
+weight: 111
+topics:
 - mediumship
 - virtues
-weight: 111
 ---
 
 The text below contains exerts from `Eliseu Rigonatti` and is based on the books:

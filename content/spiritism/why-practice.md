@@ -2,10 +2,8 @@
 title: Why should we practice Spiritism?
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: "2019-01-01"
-tags:
+topics:
 - spiritist-centers
-categories:
-- spiritism
 ---
 
 Those who are faithful students of Spiritism come to understand the path of spiritual progression by which each of us travels, with the ultimate destination of [spiritual perfection](spirits/pure).  They come to understand the responsibilities that we have to support one another in this journey, and they understand the influence (upon self and others) of our individual thoughts, attitudes and behaviors. They also respect their spiritual superiors and seek out their help and guidance.

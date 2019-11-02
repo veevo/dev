@@ -2,9 +2,9 @@
 title: Types of mediums
 subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: "2019-01-01"
-tags:
-- mediumship
 weight: 120
+topics:
+- mediumship
 ---
 
 ## Introduction

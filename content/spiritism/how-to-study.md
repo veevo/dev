@@ -42,14 +42,15 @@ and all its implications in every aspect of modern life from human psychology to
 Most books are transcribed by a [Spiritist medium](/about/medium) and come from [superior spirits](/about/superior-spirit) 
 in the noble service of God.
 
-## Where to Participate?
+## Where to Practice?
 The study of the Spiritist codification is most effective when done in groups of like-minded individuals
 in a [Spiritist Center](../centers).
 
-The purpose of the study is not just to answer people’s questions but also to encourage the asking of 
-new ones  and the sharing of the conclusions each individual reaches from the studied material.
+The purpose of the study is not just to answer people’s questions but also to encourage asking 
+questions and sharing the conclusions each individual reaches from the studied material.  
+None of these benefits can be achieved if the student is alone during the study sessions.
 
-None of these benefits can be achieved when the student is always alone during the study sessions.
+For more information, check the [How to Practice article](../how-to-practice).
 
 ## Expected Behaviour
 Below, we provide some information regarding the essential changes in the behaviour a person
@@ -147,7 +148,7 @@ Article adapted from [SGNY: Practices for improving the medium and their mediums
 [Learn Spiritism](../learn)   
 [Spiritism - FAQ](../faq)  
 [What is Spiritism](../about)  
-[Spiritism - How to Study](../how-to-study)  
+[How to Practice](../how-to-practice)  
 [Spiritism - Science, Philosophy and Religion](../science-philosophy-religion)  
 [Spiritist Centers](../centers)  
 

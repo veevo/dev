@@ -1,8 +1,9 @@
 ---
-title: Misconceptions about mediumship
+title: Misconceptions about the Mediumship
 description: It's common to see misconceptions about the Mediumship. Read and know more.
 weight: 106
-tags:
+date: "2019-01-01"
+topics:
 - mediumship
 ---
 

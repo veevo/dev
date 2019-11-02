@@ -247,3 +247,7 @@ ghissues = "https://github.com/veevo/www-en/issues"
 	name = "Contact Us"
 	URL = "help/contact-us"
 
+	[[params.help]]
+	name = "Privacy Policy"
+	URL = "help/privacy"
+
