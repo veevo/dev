@@ -159,6 +159,7 @@ originally authored by
 ## See Also
 [What is Spiritism](../about)  
 [Spiritism - FAQ](../faq)  
+[Spiritism - Backlash to the Codification](../backlash)  
 [Learn Spiritism](../learn)  
 [Mediumship](../mediumship)  
 

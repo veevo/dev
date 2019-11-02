@@ -11,6 +11,9 @@ categories:
 ## About Fraternal Assistance 
 Fraternal assistance is a friendly counseling service offered to those who come to the Spiritist center looking for advice or help with a particular personal issue. The counselor will sit with the individual seeking help, listening to his or her problem and helping the individual to analyze the situation from Spiritist viewpoint.
 
+## Free of Charge
+Notice that all services provided by Spiritist instituions are free of charge.
+
 
 ## See Also
 [Public Meetings](../public-meetings)  

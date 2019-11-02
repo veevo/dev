@@ -25,7 +25,14 @@ A Spiritist center is more than just a place to study. It is a place to pray, le
 
 Spiritist centers cover an extremely broad spectrum in terms of size, number, and scope of activities.  There are some centers with as few as 10 or 20 people, others with hundreds, and even, in some cases, thousands of members.  Still, there are some basic activities common to most centers, regardless of size.
 
+## Free of Charge
+All practical activities that happen on [Spiritist Centers](../centers) such as 
+[mediumship](../mediumship), dissemination, [fraternal assistance](../centers/fraternal-assistance) are free of any charge, 
+which follows the [Gospel](/gospel) principle that we must "give for free what we receive for free.".  
 
+Spiritist institurions don't charge for any of the work that one is expected to be there.
+
+## Other Activities
 To know more about the activities that occour in a Spiritist Center, please read the following
 articles below:  
 [Public Meetings](../public-meetings)  

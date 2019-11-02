@@ -1,11 +1,9 @@
 ---
 title: The History of Spiritism
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: Understand the history of Spiritism.
 date: "2019-01-01"
-tags:
-- spiritist-centers
-categories:
-- spiritism
+topics:
+- spiritistm
 ---
 
 
@@ -79,4 +77,6 @@ As the souls are the spirits, one can not deny the existence of the spirits with
 Written by Allan Kardec in the 1860s, giving his personal explanation of the circumstances that led him to write the Spiritist codification.  
 Translated into English by A. L. Xavier Jr. and Carol de Macedo.  
 Based on the essay “O Espiritismo em sua mais simples expressão” by A. Kardec, 2nd ed., FEESP (1989).  
+[Original Source](http://www.sgny.org/spiritism-guide/a-history/)
+
 
