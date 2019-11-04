@@ -71,7 +71,9 @@ and examples come from [Jesus Christ](/about/jesus), the model and guide of huma
 
 ## See Also
 [Learn Spiritism](../learn)  
+[Spiritism - History](../history)  
 [Spiritism - Teachings](../teachings)  
+[Spiritism - The origin of Spiritism](../origin)  
 [Spiritism - FAQ](../faq)  
 [Spiritism - Science, Philosophy or Religion?](../science-philosophy-religion)  
 

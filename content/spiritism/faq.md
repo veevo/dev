@@ -1,35 +1,59 @@
 ---
 title: Spiritism - Frequently Asked Questions
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+description: Would you like to know more about Spiritism? Check our FAQ.
 image: "images/featured-post/post-4.jpg"
 type: "post"
 date: "2019-01-01"
 topics:
-- spiritist-centers
+- spiritism
 ---
 
-### 1- Is Spiritism part of the occult?
+## Introduction
+[Spiritism](../) is at the same time a [Science](../science), a [Philosophy](../philosophy) and a [Religion](../religion)
+at the same time. 
 
+Spiritism is also confused with Spiritualism and much-incorrectly criticized for
+people how barely know it.
+
+On this page, we list some of the most frequently asked questions, some of them, very incorrect.
+
+
+### 1- Is Spiritism part of the occult?  
 The dictionary defines Occult as meaning:
 
->– Hidden and difficult to see; “an occult fracture”;  
->– Having an import not apparent to the senses nor obvious to the intelligence; beyond ordinary understanding; “mysterious symbols”; “the mystical style of Blake”; “occult lore”; “the secret learning of the ancients”.
+>1. Hidden and difficult to see; “an occult fracture”;  
+2. Having an import not apparent to the senses nor obvious to the intelligence;
+beyond ordinary understanding; “mysterious symbols”; “the mystical style of Blake”;
+“occult lore”; “the secret learning of the ancients”.
 
-It is true that in the past, and still today those who do not understand Spiritism claim that is part of the occult. This has always been untrue. By its very nature Spiritism works to clarify and explain both the spirit related phenomena, spitit evolution and the divine laws that govern the universe to anyone who wishes to learn. So in no way is it mysterious, hidden, beyond ordinary understanding, or counter intuitive.
+It is true that in the past, and still today those who do not understand Spiritism 
+claim that is part of the occult. This has always been untrue.
 
-### 2- Is Spiritism pagan?
+By its very nature Spiritism works to clarify and explain both the spirit related phenomena,
+spitit evolution and the [divine laws](/divine-laws) that govern the universe to anyone who wishes to learn. 
 
+So in no way is it mysterious, hidden, beyond ordinary understanding, or counter intuitive.
+
+### 2- Is Spiritism pagan?  
 The dictionary defines Paganism as:
-> – Not acknowledging the God of Christianity and Judaism and Islam.
 
-This is an ironic question since the very first answer given by the spirit teachers as part of the Spiritist Codification defines and acknowledges the existence of one true God. Spiritism also goes on to acknowledges the inherent truths found not just in the three major western religions, but the sparks of truth found in all religions.
+> Not acknowledging the God of Christianity and Judaism and Islam.
 
-### 3- Is Spiritism anti-Jesus ?
+This is an ironic question since the [very first answer given by the spirit teachers](/books/spirits-book) 
+as part of the [Spiritist Codification](../codification) defines and acknowledges the existence of one true 
+[God](/about/god).
 
+Spiritism also goes on to acknowledges the inherent truths found not just in the three major 
+western religions, but the sparks of truth found in all religions.
+
+### 3- Is Spiritism anti-Jesus ?  
 To be ‘anti’ something is defined as:
-> – A person who is opposed to something, such as a group, policy, proposal, or practice.
 
-This is definitely not the way Spiritism sees Jesus. On the contrary Jesus is seen as a superior spirit, who incarnated and was the greatest of all our teachers. A person who’s sacrifice to be again reborn , tortured and then killed by those he wanted to enlighten, is seen as one of the most profound acts of love in human history.
+> A person who is opposed to something, such as a group, policy, proposal, or practice.
+
+This is definitely not the way Spiritism sees [Jesus](/about/jesus). On the contrary Jesus is seen as a [pure spirit](/about/pure-spirit),
+who [incarnated](/about/incarnated) and was the greatest of all our teachers. A person who’s sacrifice to be again reborn, 
+tortured and then killed by those he wanted to enlighten, is seen as one of the most profound acts of love in human history.
 
 ### 4- Spiritism is about telling the future?
 
@@ -275,43 +299,74 @@ No, one of the fundamental teachings of Spiritism is the understanding that one 
 
 ### 28- Do Spiritists define God in the same way as Christians, Jews, and/or Muslims do?
 
-No. Spiritism respects, recognizes the validity of, but does not share the definition given to God by the major western religions.
+No. Spiritism respects, recognizes the validity of, but does not share the definition 
+given to God by the major western religions.
 
-Spiritist defines God as a divine, perfect being who is the principle cause of all things. To Spiritism God has no recognizable human shape, nor does he favor certain groups, nor does he curse or punish those who sin and do not follow ‘his’ ways.
+Spiritist defines God as a divine, perfect being who is the principle cause of all things.
+To Spiritism God has no recognizable human shape, nor does he favor certain groups,
+nor does he curse or punish those who sin and do not follow ‘his’ ways.
 
-Spiritism sees God as a merciful loving creator who sees all the intelligent beings (us) of his creation as equal. In his infinite wisdom and charity God gives us the time (life times) we need to evolve and achieve our fullest potential. Certainly God established divine laws and reasonable consequences when those laws are not followed, but these are not curses or punishments, but tools for learning from our mistakes.
+Spiritism sees God as a merciful loving creator who sees all the intelligent beings (us)
+of his creation as equal. In his infinite wisdom and charity God gives us the time (life times)
+we need to evolve and achieve our fullest potential. Certainly God established divine laws and 
+reasonable consequences when those laws are not followed, but these are not curses or punishments,
+but tools for learning from our mistakes.
 
-This process of birth and rebirth, of learning and making mistakes and having to endure the consequences, is part of the path to the amazing gifts that come with our evolution. At no place in this long, difficult and personal journey of evolution does God forsake or condemn us, no matter how many times we stumble and fall. Instead God provides each one of us with spirit guides (angels) to help us again find our way, the opportunity to atone for those past errors and yet another chance to continue on our path of evolution.
+This process of birth and rebirth, of learning and making mistakes and having to endure the consequences,
+is part of the path to the amazing gifts that come with our evolution. At no place in this long, 
+difficult and personal journey of evolution does God forsake or condemn us, no matter how many times we stumble and fall.
+
+Instead God provides each one of us with spirit guides (angels) to help us again find our way,
+the opportunity to atone for those past errors and yet another chance to continue on our path of evolution.
 
 Surely this truly wise, all loving God was the one Jesus called Father and carried in his heart!
 
-### 29- Spiritism isn’t a religion, then why do they have churches?
+### 29- Spiritism isn’t a religion, then why do they have churches?  
+Spiritism has no churches, rituals, priests or dogmas. Many people with good but misguided intentions 
+who are spiritualist, or are ‘santeristas’ create churches they call Spiritist. 
 
-Spiritism has no churches, rituals, priests or dogmas. Many people with good but misguided intentions who are spiritualist, or are ‘santeristas’ create churches they call Spiritist. Sadly some less than honest individuals who are looking to exploit mediumistic phenomena for profit also create churches they call Spiritist.
+Sadly some less than honest individuals who are looking to exploit mediumistic phenomena for profit also create churches they call Spiritist.
 
-### 30- If Spiritists don’t have churches then what is SGNY and other such groups?
-
+### 30- If Spiritists don’t have churches then what is SGNY and other such groups?  
 What Spiritists who want to teach and expand their charitable work are encouraged to do, by the spirit teachers, is to form non-profit centers for study and charitable work. And we mean legal, government recognized non-profit groups.
 
-### 31- Spiritism talks about laws, are these like the laws of nature?
+### 31- Spiritism talks about laws, are these like the laws of nature?  
+Yes, but Spiritism reveals that the Laws of Nature cover both laws of physics and ethical laws. 
+These divine moral and physical laws are those that govern our existences and the rest of the universe.
+Here are a very brief summery of each:
 
-Yes, but Spiritism reveals that the Laws of Nature cover both laws of physics and ethical laws. These divine moral and physical laws are those that govern our existences and the rest of the universe. Here are a very brief summery of each:
+Law of free will/of Liberty: There is no fate. From the moment of our creation we are free to 
+take whatever paths we wish to take. We can learn and evolve at our own pace and deal with the consequences 
+of our mistakes as we see fit. When it is time for us to reincarnate we even choose our next existence and the 
+trials that we will learn from in that existence. Even the nature of our death and length of our lives are in our hands.
 
-Law of free will/of Liberty: There is no fate. From the moment of our creation we are free to take whatever paths we wish to take. We can learn and evolve at our own pace and deal with the consequences of our mistakes as we see fit. When it is time for us to reincarnate we even choose our next existence and the trials that we will learn from in that existence. Even the nature of our death and length of our lives are in our hands.
+Law of Cause and effect: We all possess the gift of free will, but eventually the consequences of past 
+choices push us into situations that correspond directly to those choices. These effects are not punishments,
+but tools for learning which is fundamental to our evolution.
 
-Law of Cause and effect: We all possess the gift of free will, but eventually the consequences of past choices push us into situations that correspond directly to those choices. These effects are not punishments, but tools for learning which is fundamental to our evolution.
+So the trials, lessons, and progress of every reincarnation are the effects of all our past decisions. 
+After every reincarnation a person’s spirit guide shows them all the major decisions of that existence. 
+Emphasizing the intention behind the action, the consequences of these actions and how these actions affected others. 
 
-So the trials, lessons, and progress of every reincarnation are the effects of all our past decisions. After every reincarnation a person’s spirit guide shows them all the major decisions of that existence. Emphasizing the intention behind the action, the consequences of these actions and how these actions affected others. Once a person has faced the very best and worst of themselves they choose how the consequences of these actions will play out in their next existence.
+Once a person has faced the very best and worst of themselves they choose how the consequences of these actions will play out in their next existence.
 
-### 32- This is all somewhat confusing, can a person make a distinction between a Spiritist center and one of these other places using the name ‘spiritist’?
+### 32- This is all somewhat confusing, can a person make a distinction between a Spiritist center and one of these other places using the name ‘spiritist’?  
+When you go to a Spiritist center (or one calling itself Spiritist) use good sense.
+If they want to sell you services, charms or holy water, if they use rituals, have priests or ministers, 
+and/or are associating themselves with santeria, then they are not spiritist centers. 
 
-When you go to a Spiritist center (or one calling itself Spiritist) use good sense. If they want to sell you services, charms or holy water, if they use rituals, have priests or ministers, and/or are associating themselves with santeria, then they are not spiritist centers. That’s why it is important to educate yourself about Spiritism so you can make the distinction between Spiritist organizations and those who use the label Spiritist but represent completely different ideas.
+That’s why it is important to educate yourself about Spiritism so you can make the distinction between 
+Spiritist organizations and those who use the label Spiritist but represent completely different ideas.
 
 
 
 ## Source
-TODO: Add Source
+Adapted from [SGNY: Myths And Misconceptions](http://www.sgny.org/spiritism-guide/myths-and-misconceptions/)  
 
 ## See Also 
-TODO
+[Learn Spiritism](../learn)  
+[Spiritism - Teachings](../teachings)  
+[Spiritism - History](../history)  
+[Spiritism - The origin of Spiritism](../origin)  
+[Spiritism - Science, Philosophy or Religion?](../science-philosophy-religion)  
 
