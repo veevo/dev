@@ -1,18 +1,31 @@
 ---
 title: What Spiritism is Not
-description: What you will not find at a Spiritist Center
+description: What you will not find at Spiritism.
 date: "2019-01-01"
 topics:
+- spiritism
 - spiritist-centers
+- religion
+- philosophy
+- science
 ---
 
-Spiritism differs from all known religions, by demonstrating the logic of its teachings through scientific studies and experiments, and by presenting a philosophy that is also based on experimentation and observation, as documented by a multitude of  intellectuals of  universal renown.
+## Introduction
+Spiritism differs from all known religions by demonstrating the logic of its teachings through scientific 
+studies and experiments and by presenting a [philosophy](../philosophy) that is also based on experimentation and observation, 
+as documented by a multitude of intellectuals of universal renown.
 
 A scientific and philosophic religion of teachings that are basic to all religions, Spiritism does not intend to demolish those faiths which came before it, and instead recognizes their necessity for a great part of Humanity, as humanity's evolution takes place slowly yet inevitably.
 	     	
 A religious doctrine without so-called dogmas, rituals, symbols, or an organized priesthood, and to the contrary of almost all other religions.
 
-**Spiritism does not adopt any of the following as port of its meetings or practices:**
+
+## Practices that don't belong in Spiritism
+There is a lot of misconception and misunderstanding about what [Spiritism](../) is and around which practices and/or
+activities that happen on a [Spiritist Center](../centers).
+
+For that reason, we want to highlight that Spiritism does not adopt any of the following as port of its 
+meetings or practices below:
 
 * special adornments, vestments or other clothing; 
 * wine or any alcoholic beverages; 
@@ -29,14 +42,25 @@ A religious doctrine without so-called dogmas, rituals, symbols, or an organized
 * exotic or strange terms for the designation of beings and things; 
 * promises or acts of witchcraft, the making of the sign of the cross, in other words, a long series of material acts dating back to old and primitive religious concepts.
 
-Psychic (or spiritual) phenomena can arise in any religious or non-religious environment, and its appearance can lead one to Spiritism, but the consolidation of the belief, the knowledge of the laws that preside over the destiny of man, and the perfect assimilation of the Spiritist Doctrine can only be reached through the study of the works of Allan Kardec and those who have followed him.
+## Spiritual Phenomena
+Psychic (or spiritual) phenomena can arise in any religious or non-religious environment, and its appearance 
+can lead one think that that's Spiritism.
+
+However it's important to note that the consolidation of the belief, the knowledge of the laws that govern the universe
+and help developing virtues and morals of men, and the perfect assimilation of the Spiritist Doctrine can only 
+be reached through the study of the works of [Allan Kardec](/bio/allan-kardec) and those who have followed him.
 
 ## Source
 The following is an excerpt from an article entitled "Esclarecendo Duvidas" [Clearing Doubts], published in the Brazilian Spiritist Journal "Reformador" in June of 1953.
 
-TODO: Add - www.explorespiritism.com/SPIRITIST CENTER ACTIVITIES.htm
+[Article originally published at ExploreSpiritism.com - Spiritist Center Activities](http://www.explorespiritism.com/SPIRITIST%20CENTER%20ACTIVITIES.htm)
 
 
 ## See Also
-TODO
+[Spiritism - What is Spiritism](../about)  
+[Spiritism - Foundations](../foundations)  
+[Spiritism - Teachings](../teachings)  
+[Spiritism - The Codification](../codification)  
+[Spiritism - What it is NOT](../not-spiritism)  
+[Spiritism - FAQ](../faq)
 

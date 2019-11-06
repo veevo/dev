@@ -10,7 +10,13 @@ tags:
 ## Introduction 
 You may wonder where those who follow Spiritism go to meet, study, work, and pray together.
 
-Spiritists do not have what is commonly referred to as a church, temple, shrine, etc.  In fact, Spiritism is not actually a religion per se, i.e. in the traditional sense, since there exists no hierarchical structure of authority or dogmatic practices. The place where Spiritists gather is referred to as a Spiritist Center. There, they collaborate, with one another and with spiritual benefactors, in the study, practice, and dissemination of Spiritism. 
+Spiritists do not have what is commonly referred to as a church, temple, shrine, etc.  In fact, 
+Spiritism is not a religion in the traditional sense, since there exists no hierarchical structure 
+of authority or dogmatic practices. 
+
+The place where Spiritists gather is referred to as a Spiritist Center. There, they collaborate, 
+with one another and with the [spiritual guides](/about/spiritual-guide), in the study, practice, 
+promote and divulge Spiritism. 
 
 ## Organization
 Spiritist Centers operate independently, though some are affiliated with larger associations or federations that bring various Centers together for events and special initiatives related to the dissemination of Spiritism.  The Centers are often (though not always) named after a historical pioneer of Spiritism, a mentoring Spirit, or sometimes a charitable quality, etc. ̶  for example, Allan Kardec Spiritist Center, Andre Luiz Spiritist Center, Love and Fraternity Spiritist Center, etc.
