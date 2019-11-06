@@ -2,8 +2,8 @@
 title: Morte
 description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- death
 ---
 
 Morte [do latim morte] – Aniquilamento das forças vitais do corpo pelo esgotamento dos órgãos. Ficando o corpo privado do princípio da vida orgânica, a alma se desprende dele e entra no mundo dos Espíritos Etimologicamente, morte significa "cessação completa da vida do homem, do animal, do vegetal". Genericamente, porém, a morte é transformação. Morrer, do ponto de vista espiritual, nem sempre é desencarnar, isto é, liberar-se da matéria e das suas implicações.
@@ -12,9 +12,18 @@ A desencarnação é fenômeno de libertação do corpo somático por parte do E
 
 A morte é apenas a destruição do envoltório corporal, que a alma abandona, como faz a borboleta com a crisálida, conservando porém seu corpo fluídico ou perispírito.
 
+
+When the exterior covering is threadbare and can no more work, the spirit get rid of it, like the fruit liberates itself from the shell or as one forsake a clothing which is no longer useful. That is what we call death.
+
+Therefore, death is simply the destruction of the crude shell of the spirit; only the body dies, not the spirit. During life, the spirit is somewhat limited by the material links of matter to which it is bounded. These limits can many times neutralize its faculties, and the body’s death liberates it from such bounds setting it free (like the butterfly from its cocoon).
+
+But the spirit gives up only the material body, keeping the perispirit which is a kind of ethereal body, vaporous and very subtle to us. It has the human form which seems to be the standard one. In its normal state, the perispirit is invisible, but the spirit can make certain changes upon it so as to render it temporarily visible or able to be touched, similar to what happens to condensed vapor.
+
+
+
 ## See Also
 Desencarnação  
-TODO
 
 ## Source
-[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
+[The history of spiritism](/spiritism/history)  
+[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)  

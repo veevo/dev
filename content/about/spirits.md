@@ -68,7 +68,8 @@ Spirits belong to different orders according to the degree of perfection they ha
 The Spirits’ relations with Human Beings are constant and have always existed. The Good Spirits attract us towards goodness, sustain us in life’s trials, and help us bear them with courage and resignation. The Imperfect Spirits induce us towards error. 
 
 
+
 ## See Also
-[About: Spirits](../spirits)  
+[About: Spirit](../spirit)  
 [The story of Spiritism](/spiritism/history)  
 
