@@ -3,6 +3,7 @@ title: Spiritism - Advanced Topics
 description: In search for more advanced topics? We built a section specific for more in-depth knowledge.
 date: "2019-01-01"
 topics:
+- spiritism
 - spiritist-centers
 ---
 

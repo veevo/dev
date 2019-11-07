@@ -8,7 +8,8 @@ image: "images/contact.jpg"
 Veevo.org is an independent, zero-profit, privacy-focused, completely volunteered developed and run organization.
 We don't host ads neither get any financial benefit from this site. 
 
-On this page, you will understand more about our five pillars: Spiritism, Education, Openness, Collaboration and Zero Profit.
+On this page, you will understand more about our five pillars:  
+**Spiritism, Education, Openness, Collaboration and Zero Profit.**
 
 ## Spiritism
 Our first, and most important pillar is [Spiritism](/spiritism). [Spiritism](/spiritism) is not someone's work.
@@ -17,7 +18,7 @@ It's the doctrine of the [Superior Spirits](/about/superior-spirits) promised by
 > But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall 
 teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.
 
-Spiritism's mission is to revive His Doctrine on its purest essence: 
+Spiritism's mission is to revive [His Doctrine](/gospel) on its purest essence: 
 that lived and exemplified by the first Christans on the first three centuries of our 
 era but then so much distorted, misinterpreted, ignored and misunderstood by the humanity for over 2000 years.
 
@@ -82,9 +83,9 @@ love yourself and love your neighbour. Check the [Charity](/virtues/charity) pag
 information on how we understand charity and how it is different from the materialist aspect of simply donating money.
 
 ## Related Topics
-[About Us](/help/about-us)  
-[Contact](/help/contact-us)  
-[Disclaimer](/help/disclaimer)  
-[Contribute](/contribute)  
-[Privacy Policy](../privacy)
+[Help - About Us](/help/about-us)  
+[Help - Contact us](/help/contact-us)  
+[Help - Disclaimer](/help/disclaimer)  
+[Help - Contribute](/contribute)  
+[Help - Privacy Policy](../privacy)
 

@@ -4,6 +4,7 @@ description: The Spiritist Codification consists of 5 essential books. Read to k
 date: "2019-01-01"
 topics:
 - spiritism
+- spiritism
 ---
 
 ### Introduction 

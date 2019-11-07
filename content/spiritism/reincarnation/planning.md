@@ -1,15 +1,34 @@
 ---
-title: Planning
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Planning Reincarnations
+description: It's common to hear people saying that they didn't ask to be born. The reality in fact is way different...
 date: "2019-01-01"
-tags:
-- reincarnation
-categories:
+topics:
 - spiritism
+- reincarnation
+- children
 ---
 
 ## Introduction
-The birth of a child is so often referred to as the miracle of life.   As we watch a new life come into this world, we are awed by the design and wonder of the whole process.  This is true, regardless of our specific religious beliefs.  The teachings of Spiritism, however, through it's lessons in the immortality and multiple [material] existences of the soul, adds to our amazement and appreciation for the meaning of birth.  For the parents of the child, the event is especially meaningful.  It represents, for them, an enormous responsibility with which they have been entrusted, for this spirit, their child, will depend on the parents for the loving care, education, and moral guidance that will prepare the growing child for the experiences he or she will face throughout the spirit's incarnation.  Likewise, the event often represents a chance for the spirit of the child and the spirit of one or more of its parents or other family members to develop a love through which they can repair some kind of discord between them, caused by events of a previous existence.  Here we'll look at some of what is involved in the spirit's return to Earth, both in preparation for the next material journey, as well as the period of union with the material body. 
+The birth of a child is so often referred to as the miracle of life. As we watch a new 
+life come into this world, we are awed by the design and wonder of the whole process.
+This is true, regardless of our specific religious beliefs.  
+
+The teachings of [Spiritism](/spiritism), however, through it's lessons in the immortality and multiple 
+[material existences](/about/material-world) of the [soul](/about/soul), adds to our amazement and 
+appreciation for the meaning of birth.  
+
+## A new chance
+For the parents of the child, the event is especially meaningful.  It represents, for them, an enormous 
+responsibility with which they have been entrusted, for this spirit, their child, will depend on the parents 
+for the loving care, education, and moral guidance that will prepare the growing child for the experiences he 
+or she will face throughout the spirit's incarnation.  
+
+Likewise, the event often represents a chance for the spirit of the child and the spirit of 
+one or more of its parents or other family members to develop a love through which they can repair 
+some kind of discord between them, caused by events of a previous existence.  
+
+Here we'll look at some of what is involved in the spirit's return to Earth, both in preparation for the 
+next material journey, as well as the period of union with the material body. 
 
 
 ## Planning for the Incarnation
@@ -26,14 +45,15 @@ Spirits who are aware of their coming incarnation often experience a significant
 ¹ The population of discarnate spirits is much greater than that of incarnate spirits, whereby those who are resentful of their mistakes and eager to make amends must wait "in a long line" behind others also awaiting their turn. 
 
 
+## See Also
+[Spiritism](/spiritism)  
+[Spiritism - What is Spiritism](/spiritism/about)  
+[Spiritism - Foundations](/spiritism/foundations)  
+[Spiritism - Teachings](/spiritism/teachings)  
+[Spiritism - FAQ](/spiritism/faq)
+
+
+
 ## Source
 [ExploreSpiritism.com: An Incarnation Begins](http://www.explorespiritism.com/Philosophy_Reincarnation_Planningandbirth_Intro.htm)
-
-
-## See Also
-TODO
-
-## Suggested Reading
-TODO
-
 

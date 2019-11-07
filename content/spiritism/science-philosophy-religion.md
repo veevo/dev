@@ -3,6 +3,7 @@ title: Spiritsm - Science, Philosophy or Religion?
 description: Confused as to what Spiritism really is? Read to understand.
 date: "2019-01-01"
 topics:
+- spiritism
 - science
 - philosophy
 - religion

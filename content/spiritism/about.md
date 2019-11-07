@@ -1,9 +1,10 @@
 ---
 title: What is Spiritism?
-description: You heard about Spiritism and would like to know in what it is? We will try our best..
+description: You heard about Spiritism and would like to know in what it is? We will try to answer your questions.
 date: "2019-01-01"
 image: "images/contact.jpg"
 topics:
+- spiritism
 - spiritist-centers
 ---
 

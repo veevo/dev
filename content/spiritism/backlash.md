@@ -3,6 +3,7 @@ title: Spiritism - Backlash to the Codification
 description: In the late 1800s, Spiritism had a lot of critics and backlash from the Catholic Church. Read to understand.
 date: "2019-01-01"
 topics:
+- spiritism
 - spiritist-centers
 ---
 

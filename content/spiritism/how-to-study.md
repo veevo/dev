@@ -3,8 +3,8 @@ title: How to Study Spiritism
 description: Understanding how to study Spiritism is essential to collect its life-changing benefits.
 date: "2019-01-01"
 topics:
-- spiritist-centers
 - spiritism
+- spiritist-centers
 - study
 ---
 

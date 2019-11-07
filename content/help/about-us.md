@@ -7,14 +7,16 @@ image: "images/contact.jpg"
 ---
 
 ## About Veevo.org
-Veevo.org is an independent, privacy-focused, completely volunteered, developed and run organization.
-We run completely revenue-free, we don't host ads, we don't get any financial benefit from this website and we will never will.
+[Veevo.org](//veevo.org) is an independent, privacy-focused, completely volunteered, developed and run organization.
+We run completely [revenue-free](/help/pillars/#no-profit), we don't host ads, we don't track you, we don't generate
+any financial benefit from this website and we will never will.
 
 We believe that being a [zero-profit organization](/help/pillars/#no-profit) provides a solid 
 foundation to reach our goals: enlighten humanity and help people to _[know thyself](/about/know-thyself)_.  
 
 ## Our Mission
-Our mission is to engage our readers on constructive and profound [reflexive studies](/about/reflexive-study) that engage and promote self-awereness through the profound and life-changing teachings of [Spiritism](/spiritism) and [The Gospel of Jesus](/gospel).
+Our mission is to engage our readers on constructive and profound [reflexive studies](/about/reflexive-study) that engage and promote 
+[self-awareness](/about/self-awareness) through the profound and life-changing teachings of [Spiritism](/spiritism) and [The Gospel of Jesus](/gospel).
 
 ### What is Spiritism?
 But what is Spiritism? [Spiritism](/spiritism) is not someone's work.
@@ -23,7 +25,7 @@ It's the doctrine of the [Superior Spirits](/about/superior-spirits) promised by
 > But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things,
 and bring all things to your remembrance, whatsoever I have said unto you.
 
-Spiritism's mission is to revive His Doctrine on its purest essence: that lived and exemplified by the 
+Spiritism's mission is to revive [His Doctrine](/gospel) on its purest essence: that lived and exemplified by the 
 first Christans on the first three centuries of our era but then so much distorted, misinterpreted,
 ignored and misunderstood by the humanity for over 2000 years.
 
@@ -31,15 +33,14 @@ It's the [Comforter](/about/comforter) codified by [Allan Kardec](/bio/allan-kar
 [Spirit of Truth](/about/spirit-of-truth), Jesus Himself.
 
 ## Where does the name `Veevo` come from?
-Veevo, as pronounced in English has the same phonetic as *"vivo"* in the beautiful [Portuguese Language](https://en.wikipedia.org/wiki/Portuguese_language).
+`Veevo`, as pronounced in English has the same phonetic as *"vivo"* in the beautiful [Portuguese Language](https://en.wikipedia.org/wiki/Portuguese_language).
 *Vivo* in Portuguese means **"alive"** or **"I live"**.  Both perfectly represent our essential and immortal nature.
 
 Spiritists know they're primarily and essentially an [Immortal Spirit](/about/immortal-spirit) for which there's no [death](/about/death),
-just life, a glorious, [happy](/about/happiness), virtuous and Eternal Life.
+just life, a glorious, [happy](/about/happiness), [virtuous](/virtues) and [Eternal Life](/about/eternal-life).
 
 ## What are our Pillars?
-Our Pillars are: Spiritism, Education, Openness, Collaboration and No Profit.
-
+Our Pillars are: Spiritism, Education, Openness, Collaboration and No Profit.  
 For more information, please check our [pillars page](/help/pillars).
 
 ## Content
@@ -51,14 +52,29 @@ All that rigidness is important because small distortions can cause big misunder
 We also translate and revise every published content on each of our supported languages.
 Our intention is to be as faithful as possible to the original source, always adhering to our [pillars](/help/pillars) 
 and respecting our rigid guidelines. Please note that given the amount of content we host (more than 10,000 pages),
-errors may happen but you're invite to [collaborate](/contribute).
+errors may happen but you're invited to [collaborate](/contribute).
 
-We also provide a lot of content for reading and studying such as [books](/books), [movies](/movies), [videos](/videos), [articles](/articles) and more. Please check our [Resources](/resources) page where we show all the categories available on the site. We also provide a [search tool](/search) tool so you can quickly find what you're looking for.
+We also provide a lot of content for reading and studying such as [books](/books), [movies](/movies), 
+[videos](/videos), [articles](/articles) and more. 
 
-Please check the [Error](#errors) and [Contribute](/contribute) sections for more information.
+Please check our [Resources](/resources) page where we show all the categories available on the site. 
 
-## Getting Started
-Want to start from the begginning? Please check the [Get Started](/get-started) section for a guided step-by-step on how to build a plan of study suitable to you.
+## Searching
+Not finding what you're looking for? Our website provides a [search tool](/search) tool so you 
+can quickly find what you're looking for.
+
+We also index and categorize all content so make sure that you're also searching a content by topic.
+
+## Contributing
+We invite everyone to contribute. For that reason, on the sidebar we expose a _Contribute_ section
+in which we invite our users to collaborate. We also host a [Contribute](/contribute) section 
+so users can reach out to us by there.
+
+Please note that we strive for the purity of the content and we curate every single information
+available on this website.
+
+For more information, please use the [Contact us page](../contact-us).
+
 
 ## Copyleft
 We invite eveyone to [share our content](/contribute/share) freely. We expose this website under [Copyleft terms](https://en.wikipedia.org/wiki/Copyleft), which means that we offer people the right to freely distribute copies of our work with the stipulation that the same rights be preserved in derivative works created late.
@@ -74,16 +90,27 @@ However, we have one request: that when shared, the content from this site be no
 ## Errors
 While every published content is reviewed and validated against the foundations of the [Spiritist Doctrine](/spiritism), sometimes we make mistakes. If you spot one, feel free to [report it to us](/contribute/report-error) or use one of the other channels available to do so.
 
+We provide on the sidebar for most content a hyperlink for error reporting.
+Please note that we strive for the purity of the content and we curate every single information
+available on this website.
+
+For more information, please use the [Contact us page](../contact-us).
+
 ## Response Time
 [Openness](/help/pillars/#openness), one of our pillars, is also a commitment that we should reply inquiries as fast as possible. While we do our best efforts to respond as quick as possible, please note that we are a completely volunteer-based organization and delays may occur.
 
 To know how to reach out to us, please check the [Contact Us](/help/contact-us) page.
 
+## How to get started?
+Want to start from the begginning? Please check the [Get Started](/get-started) section 
+for a guided step-by-step on how to build a plan of study suitable to you.
+
+
 ## Related Topics
-[Pillars](/help/pillars)  
-[Contact](/help/contact-us)  
-[Disclaimer](/help/disclaimer)  
-[Contribute](/contribute)  
-[Our Blog](//blog.veevo.org)
+[Help - Pillars](/help/pillars)  
+[Help - Contact us](/help/contact-us)  
+[Help - Disclaimer](/help/disclaimer)  
+[Help - Contribute](/contribute)  
+[Help - Our Blog](//blog.veevo.org)
 
 

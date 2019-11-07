@@ -1,6 +1,6 @@
 ---
 title: Disclaimer
-description: The official Veevo.org Disclaimer
+description: The official Veevo.org disclaimer
 date: 2019-01-01
 image: "images/contact.jpg"
 ---
@@ -43,6 +43,6 @@ In case any of the published content violates any copyright, feel free to [conta
 [Openness](/pillars/openness), one of our pillars also implies that we should reply inquiries as fast as possible. While we do our best efforts to respond as fast as possible, please note that we are an organization completely run by volunteers and delays may occur. For any contact, feel free to [contact us](/help/contact-us) and we will be happy to get back to you.
 
 ## Related Topics
-[Pillars](/help/pillars)  
-[Contact](/help/contact-us)  
-[Contribute](/contribute)  
+[Help - Pillars](/help/pillars)  
+[Help - Contact](/help/contact-us)  
+[Help - Contribute](/contribute)  

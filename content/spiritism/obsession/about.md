@@ -2,7 +2,8 @@
 title: Obsession - Definition
 description: Know more about Obsession. Also known as spiritual influcence.
 date: "2019-01-01"
-tags:
+topics:
+- spiritism
 - obsession
 ---
 
@@ -15,9 +16,11 @@ exercises a negative mental constriction over someone else, for whatever reason,
 inducement, or coercion, and with the objective of dominion, a process which is continuously repeated on 
 Earth, as well as in the [inferior spiritual planes](/about/inferior-plan).
 
+## Moral Deficiency
 The presence of a spiritual obsession always indicates a [moral](/about/moral) deficiency, 
 in both the [obsessed](/about/obsessed) and the [obsessor](/about/obsessor).
 
+## Inferior Spirits
 Likewise, spirits who obsess others are always of an [inferior nature](/about/inferior-spirits),
 just as [elevated or superior spirits](/about/superior-spirits) are always noble in their sentiments and behaviors.
 The latter try to advise us in our thoughts and actions, but such an influence is always positive,
@@ -31,13 +34,16 @@ The obsession can be of four types:
 * **incarnate to discarnate**
 * **incarnate to incarnate**
 
+## Conclusion
 When we use, see, or hear the term, obsession, in a Spiritist context, however, it most often refers to the case of a discarnate 
 spirit's harmful influence over an incarnate person. After all, this is probably the easiest and most likely to occur,
 due to the advantage that the discarnate spirit has when he is able to remain invisible to his victim.
 
-
-## Source
-[ExploreSpiritism.com: Mediumship - Obsession](//www.explorespiritism.com/Science_Obsession_Intro%20Def_Intro.htm)
+## Read Next
+[Obsession - Introduction](../intro)  
+[Obsession - Mode of Action](../mode-of-action)  
+[Obsession - Progression](../progression)  
+[Obsession - Recommended Bibliography](../bibliography)  
 
 ## See Also
 [Vocabulary: Discarnate](/about/discarnate)  
@@ -45,6 +51,6 @@ due to the advantage that the discarnate spirit has when he is able to remain in
 [Vocabulary: Obsessed](/about/obsessed)  
 [Vocabulary: Obsessor](/about/obsessor)  
 
-## Suggested Reading
-TODO
+## Source
+[ExploreSpiritism.com: Mediumship - Obsession](//www.explorespiritism.com/Science_Obsession_Intro%20Def_Intro.htm)
 

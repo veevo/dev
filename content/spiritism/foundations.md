@@ -3,6 +3,7 @@ title: The Foundations of Spiritism
 description: Get to know the Foundations of Spiritism
 date: "2019-01-01"
 topics:
+- spiritism
 - spiritist-centers
 ---
 

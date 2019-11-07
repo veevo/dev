@@ -2,7 +2,8 @@
 title: Obsession - Recommended Bibliography
 description: Would you like to study more about obsession? We provide extensive documentation about the topic.
 date: "2019-01-01"
-tags:
+topics:
+- spiritism
 - obsession
 ---
 
@@ -35,12 +36,18 @@ Peralva, Martins. "Obsessoes" (Obsessions). Estudando A Mediunidade [Studying Me
 Systematized Study published by the Brazilian Spiritist Federation. Program V, Unit 8, Subunit 1 Concept, Causes and Degrees of Obsession. Published 1996, Brasilia (DF).
 
 
-## Source
-[ExploreSpiritism.com: Mediumship - Obsession](/www.explorespiritism.com/Science_Obsession_Intro%20Def_Intro.htm)
+## Read Next
+[Obsession - Introduction](../intro)  
+[Obsession - Definition](../about)  
+[Obsession - Mode of Action](../mode-of-action)  
+[Obsession - Progression](../progression)  
 
 ## See Also
-TODO
+[Vocabulary: Discarnate](/about/discarnate)  
+[Vocabulary: Incarnate](/about/incarnate)  
+[Vocabulary: Obsessed](/about/obsessed)  
+[Vocabulary: Obsessor](/about/obsessor)  
 
-## Suggested Reading
-TODO
+## Source
+[ExploreSpiritism.com: Mediumship - Obsession](//www.explorespiritism.com/Science_Obsession_Intro%20Def_Intro.htm)
 
