@@ -1,12 +1,12 @@
 ---
-title: Formas-pensamento
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Shape-Thougth
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- thought
 ---
 
-Formas-pensamento – São as idéias projetadas pela mente humana e materializadas no mundo espiritual, construções substanciais na esfera da alma que se mantêm pela força de sustentação de nossos pensamentos. Ver: Ideoplastia e Imagens-molde.
+São as idéias projetadas pela mente humana e materializadas no mundo espiritual, construções substanciais na 
+esfera da alma que se mantêm pela força de sustentação de nossos pensamentos. Ver: Ideoplastia e Imagens-molde.
 
 Considerando que toda e qualquer ação e todo e qualquer pensamento fica registrado na memória vital do espírito e no éter-cósmico, pode-se caracterizar as formas-pensamento como concretizações de pensamentos.Por exemplo: um homem, num ambiente de trabalho, sente inveja de um colega por este se mostrar mais competente, mais esforçado e portanto mais solicitado e admirado, a inveja do primeiro cria no éter cósmico uma forma-pensamento própria do sentimento.Essa forma-pensamento pode possuir forma específica, como a de uma faca, de um homem morto, ou pode possuir forma indefinida caracterizando apenas o sentimento pelo qual ela foi gerada.A forma-pensamento pode se depositar no éter cósmico, ou pode colar-se ao indivíduo invejado, no caso do exemplo supracitado, causando-lhe prejuízos psíquicos e até físicos.
 
@@ -15,9 +15,6 @@ Também fatos e acontecimentos podem gerar formas-pensamento, como por exemplo u
 
 Ele, por invejar sua casa, manda, inconscientemente, formas-pensamento negativas para lá e as mesmas ficam ali depositadas gerando diversos males de acordo com a intensidade do pensamento do emissor.Por isso é bom sempre pedir em nossas orações ajuda àqueles que, mesmo sem querer exercem esse maligno prejuízo aos outros e pedir também que nossa casa assim como nós mesmos possamos ser limpos pelos espíritos amigos de quaisquer formas-pensamento negativas que possam ter se depositado em nossa casa ou em nós. É importante acrescentar que somente os espíritos já evoluídos é que conseguem dar a forma e comandar com plenos poderes suas formas-pensamento, os demais espíritos as produzem inconscientemente.
 (Leitura básica: "Evolução em dois mundos" psicografado pelos médiuns Francisco Cândido Xavier e Waldo Vieira e ditado pelo espírito André Luiz)
-
-## See Also
-TODO
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

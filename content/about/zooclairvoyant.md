@@ -1,12 +1,11 @@
 ---
 title: Zoovidente
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- zooclairvoyant
 ---
 
-Zoovidente [do latim zoo + vidente] - Animal (principalmente cães e cavalos) que tem a faculdade anímica de vidência de Espíritos desencarnados.
+Animal (principalmente cães e cavalos) que tem a faculdade anímica de vidência de Espíritos desencarnados.
 
 ## See Also
 TODO

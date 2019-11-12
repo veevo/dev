@@ -1,6 +1,5 @@
 ---
 title: Body and Soul
-description: What is the relationship between body and soul? Read to understand.
 date: "2019-01-01"
 image: "images/contact.jpg"
 topics:

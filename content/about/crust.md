@@ -1,12 +1,12 @@
 ---
-title: Crosta
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Crust (of Earth)
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- earth
 ---
 
-Crosta [do latim crusta] - Designação dada pelo Espírito André Luiz à região espiritual mais próxima da crosta terrestre, onde perambulam os Espíritos desencarnados ainda muito vinculados com as sensações e os interesses materiais.
+Designação dada pelo Espírito André Luiz à região espiritual mais próxima da crosta terrestre, 
+onde perambulam os Espíritos desencarnados ainda muito vinculados com as sensações e os interesses materiais.
  
 
 ## See Also

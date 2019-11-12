@@ -1,9 +1,13 @@
 ---
 title: Corporeal Life
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
 date: 2019-02-01 19:00:00
+topics:
+- life
 ---
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+
+Is the term used in [Spiritism](/spiritism) to denote the material life we live on Earth,
+since life continues after death on the [spiritual world](../spiritual-world). That life is
+commonly called [spiritual life](../spiritual-life) by Spiritists.
 
 ## See Also
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+[Spiritual life](../spiritual-life)

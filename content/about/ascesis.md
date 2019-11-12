@@ -1,9 +1,8 @@
 ---
 title: Ascese
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- ascesis
 ---
 
 Ascese [do grego áskesis] - Exercício prático que leva à efetiva realização da virtude, à plenitude da vida moral

@@ -1,10 +1,7 @@
 ---
 title: Eternal Happiness
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
 date: 2019-02-01 19:00:00
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Eternal Happinness is the concept where, a spirit upon reaching perfection finds itself.
 
-## See Also
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.

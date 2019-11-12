@@ -1,16 +1,20 @@
 ---
-title: Discarnation
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+title: Disencarnation
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- disencarnation
+- life
+- death
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Ato ou efeito de desencarnar, isto é, deixar a carne, passar para o Mundo Espiritual. É quando 
+deixar de atuar o princípio vital, gerando, em conseqüência, a desorganização do corpo, desprendendo-se 
+o perispírito, molécula a molécula, conforme se unira, e restituindo ao Espírito a liberdade. 
 
-## See Also
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Não é a partida do Espírito que causa a morte do corpo; esta é que determina a partida do Espírito, 
+tanto que desencarnação é libertação da alma, morte é outra coisa, a cessação da vida e degenerescência da matéria.
 
 ## Source
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
+
 

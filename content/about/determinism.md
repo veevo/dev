@@ -1,15 +1,12 @@
 ---
-title: Determinismo
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Determinism
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- determinism
 ---
 
-Determinismo [do latim determinare + -ismo] - Teoria que afirma correlações indispensáveis entre fenômenos, um sendo condicionado ao precedente e condicionando os que lhe sucedem.
-
-## See Also
-TODO
+Teoria que afirma correlações indispensáveis entre fenômenos, um sendo condicionado ao 
+precedente e condicionando os que lhe sucedem.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

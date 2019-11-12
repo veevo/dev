@@ -1,9 +1,11 @@
 ---
 title: Errant
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
 date: 2019-02-01 19:00:00
+topics:
+- spirits
 ---
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
 
-## See Also
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Espírito errante é aquele que não está encarnado. Desta forma, um encarnado não pode ser 
+chamado de errante, mas todo errante está condicionado a nova reencarnação.
+
+O Espírito errante é abordado no "O Livro do Espíritos" nas questões 223 a 233.

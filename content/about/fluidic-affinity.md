@@ -1,9 +1,10 @@
 ---
-title: Equality
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Fluidic Affinity
 date: 2019-01-11 13:00:00
-category: 
-- vocabulary
+topics: 
+- fluid
+- mediumship
+- spiritism
 ---
 
 We are all always equal in the eyes of our creator, God. Every spirit that will ever incarnate and/or reincarnate on earth is governed by the same divine laws and on the same path of evolution as the rest of us. The belief in the superiority of one group over another is a violation of God’s law. And the negation of the basic truth that we are all brothers and sisters. The reality of reincarnation also completely obliterates the idea of inequality.

@@ -1,16 +1,13 @@
 ---
 title: God
-description: Learn about God.
 date: 2019-02-01 19:00:00
-image: "images/contact.jpg" 
 topics:
 - god
 - life
 - death
 ---
 
-## What is God?
-
+## What is God?  
 God is the supreme intelligence and primary cause of all things [1].  
 
 God is eternal, immutable, unique, omnipotent, supremely just and good.  
@@ -31,7 +28,3 @@ Allan Kardec - [Posthumous Works](/books/allan-kardec/posthmous-works), “Profe
 ## References
 [1] [The Spirits’ Book, Question #1](/books/allan-kardec/spirits-book/1)  
 [2] [The Spirits’ Book, Question #2](/books/allan-kardec/spirits-book/2)  
-
-
-## See Also
-TODO

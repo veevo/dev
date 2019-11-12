@@ -1,9 +1,8 @@
 ---
 title: Ateísmo
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- atheism
 ---
 
 Ateísmo [do grego: atheos + -ismo] - O Ateísmo é a negação absoluta da divindade. Todo aquele que crê na existência de um ser supremo, quaisquer que sejam os atributos que lhe suponha e o culto que lhe renda, não é ateu. O Ateísmo absoluto tem poucos prosélitos, porque o sentimento da divindade existe no coração do homem independentemente de qualquer ensino. O Ateísmo e o Espiritismo são incompatíveis.

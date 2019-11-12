@@ -1,15 +1,14 @@
 ---
-title: Epistemologia
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Epistemology
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- Epistemology
 ---
 
-Epistemologia [do grego epistéme + -o + -log(o) + -ia] - Estudo do conhecimento humano quanto ao seu alcance e condições.
+Epistemology is the branch of philosophy concerned with the theory of knowledge. 
 
-## See Also
-TODO
+Epistemology is the study of the nature of knowledge, justification, and the rationality of belief.
+
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

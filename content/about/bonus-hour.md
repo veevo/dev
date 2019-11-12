@@ -1,15 +1,16 @@
 ---
 title: Bônus-hora
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
+topics:
 - vocabulary
 ---
 
 Bônus-hora - Remuneração espiritual relativa a cada hora de serviço prestado nas colônias espirituais.
 
 ## See Also
-TODO
+[Andre Luis](/bio/andre-luis)  
+[Spiritism](/spiritism)  
+[Nosso Lar](/books/nosso-lar)  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

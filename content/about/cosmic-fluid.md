@@ -1,8 +1,7 @@
 ---
-title: The Cosmic Fluid
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Cosmic Fluid
 date: 2019-02-01 19:00:00
-category:
+topics:
 - vocabulary
 ---
 
@@ -24,8 +23,7 @@ An absolute purity, one that we cannot imagine, is the starting point, or the or
 
 The situation is the same in relation to other worlds, only with the appropriate modifications to meet each world’s inhabitants’ physical needs of life.  The less material a life is in a given world, the less affinity the spiritual fluids have with the so-called matter.
 
-The use of the descriptive, spiritual fluids, as such, is not totally correct since, by definition, these fluids are still matter, more or less quintessential.  What can be classified as truly spiritual is only the soul, or the intelligent principle.  The fluids are given that denomination only in comparison and as a reflection of their affinity with the spirits.  We could say that they are the matter of the spiritual world, whereby they are called spiritual fluids.
-
+The use of the 
 ¹  Editor’s note: Remember that matter, as we know it, is only a transformation of the cosmic principle (imagine as a condensation or a lower degree of vibration) to the point that it becomes the tangible matter of the material world that we know. 
 
 ## Source

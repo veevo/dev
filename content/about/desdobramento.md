@@ -1,17 +1,14 @@
 ---
 title: Desdobramento
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
+topics:
 - vocabulary
 ---
 
-Desdobramento [do latim des- + duplare > dobra + -mento] – 1. ato de desdobrar. 2. Faculdade anímica que permite a pessoa, estando o corpo físico num determinado local, deslocar-se ou ser levada a outro local, espiritualmente podendo ser ou não vista pelos encarnados presentes nesse mesmo local. 3.  Estado de emancipação da alma, quando a mesma se projeta ao Mundo Espiritual.
+Faculdade anímica que permite a pessoa, estando o corpo físico num determinado local, 
+deslocar-se ou ser levada a outro local, espiritualmente podendo ser ou não vista pelos encarnados presentes nesse mesmo local.
 
-
-## See Also
-Ver: emancipação da alma.
-TODO
+Estado de emancipação da alma, quando a mesma se projeta ao Mundo Espiritual.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

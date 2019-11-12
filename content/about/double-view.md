@@ -1,15 +1,18 @@
 ---
-title: Segunda-vista ou Dupla-vista
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Double view
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- double-view
 ---
 
-Segunda-vista ou Dupla-vista - Efeito da emancipação da alma que se manifesta no estado de vígilia. Faculdade de ver as coisas ausentes como se estivessem presentes. Aqueles que dela são dotados não vêem pelos olhos, mas pela alma, que percebe a imagem dos objetos por toda a parte onde ela se transporta, e como por uma espécie de miargem. Esta faculdade não é permanente. Certas pessoas a possuem sem saber: ela parece-lhes um efeito natural, e produz o que denominamos visões. 
+Efeito da emancipação da alma que se manifesta no estado de vígilia. Faculdade de ver as coisas 
+ausentes como se estivessem presentes. 
 
-## See Also
-TODO
+Aqueles que dela são dotados não vêem pelos olhos, mas pela alma, que percebe a imagem dos objetos 
+por toda a parte onde ela se transporta, e como por uma espécie de miargem. 
+
+Esta faculdade não é permanente. Certas pessoas a possuem sem saber: ela parece-lhes um efeito natural, 
+e produz o que denominamos visões. 
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

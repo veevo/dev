@@ -1,15 +1,11 @@
 ---
-title: Elevação
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Elevation
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- spirits
 ---
 
-Elevação - [do latim elevatione]. ato ou efeito de elevar ou de levantar. ação de elevar-se ou erguer-se. Grandeza.
-
-## See Also
-TODO
+Ato ou efeito de elevar ou de levantar. ação de elevar-se ou erguer-se. Grandeza.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

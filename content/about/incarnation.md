@@ -1,6 +1,5 @@
 ---
 title: Incarnation
-description: Understand what incarnation is and how it is our path to the pure and eternal happiness.
 date: "2019-01-01"
 image: "images/contact.jpg"
 topics:

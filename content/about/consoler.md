@@ -1,15 +1,33 @@
 ---
 title: The Consoler
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- consoler
+- comforter
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Variance of [Consoler](../consoler).
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+Just as Christ said: “I did not come to destroy the Law but to fulfill it”.
 
-## See Also
+Spiritism says: We have not come to destroy the Christian Law but to carry it out. It teaches nothing contrary 
+to what was taught by Christ. Rather it develops it, explains it in a manner that can be understood by all and 
+completes that which had previously been known only in its allegoric form.
 
+Spiritism realizes what Jesus said of the promised Consoler, by bringing knowledge of those things which allow 
+humankind to know where we came from, where we are going and why we are on Earth; so attracting humankind towards 
+the true principles of God’s law and offering consolation through faith and hope.”
+
+It reveals new and more profound concepts with respect to God, the Universe, Human Beings, the Spirits, and the Laws that govern life itself.
+
+## See Also 
+The Consoler
+John:14-15 (TODO: Add Reference)  
+The Spirits Book
+The Bible
 TODO
+
+## Related
+Jesus
+Allan Kardec
+

@@ -1,8 +1,6 @@
 ---
 title: Body
-description: Understant what is our body and why it is our biggest gift from God.
 date: "2019-01-01"
-image: "images/contact.jpg"
 topics:
 - body
 - soul

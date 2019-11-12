@@ -1,15 +1,18 @@
 ---
-title: Desobsessão
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Disobsession
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- disobsession
 ---
 
-Desobsessão [do latim des- + obsessione] – 1. Em sentido restrito: é o tratamento das obsessões orientado pela Doutrina Espírita, em reuniões especializadas. 2. Em sentido amplo: processo de regeneração da Humanidade, através da renovação moral dos envolvidos que, assim, desvinculam-se do passado sombrio e vencem a si mesmos. Ver: Obsessão.
+Em sentido restrito: é o tratamento das obsessões orientado pela Doutrina Espírita, 
+em reuniões especializadas.
+
+Em sentido amplo: processo de regeneração da Humanidade, através da renovação moral dos 
+envolvidos que, assim, desvinculam-se do passado sombrio e vencem a si mesmos. 
 
 ## See Also
-TODO
+Obsession
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

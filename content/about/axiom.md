@@ -1,9 +1,8 @@
 ---
 title: Axioma
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- axiom
 ---
 
 Axioma [do latim axioma]. Premissa evidente por si mesma, que não necessita de demonstração. 

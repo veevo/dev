@@ -1,8 +1,7 @@
 ---
-title: Loucura
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Crazyness
 date: 2019-02-01 19:00:00
-category:
+topics:
 - vocabulary
 ---
 
@@ -12,13 +11,12 @@ Ninguém nasce louco por obra do destino ou por negligência ou danação de Deu
 
 O carma de um indivíduo que comete atrocidades é muito negativo e não raro não lhe basta uma encarnação expiatória para que o mesmo possa se redimir de seus erros. Para maiores informações favor checar a literatura recomendada.
 
-## Recommended Bibliography
-"A loucura sob novo prisma", Dr.Bezerra de Menezes
-
 ## See Also
 TODO
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
 
+## Recommended Bibliography
+"A loucura sob novo prisma", Dr.Bezerra de Menezes
 

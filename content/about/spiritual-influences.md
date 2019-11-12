@@ -1,6 +1,5 @@
 ---
 title: Spiritual Influences
-description: What are "Spiritual Influences"? Do they really exist?
 date: "2019-01-01"
 tags:
 - mediumship

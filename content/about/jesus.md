@@ -1,6 +1,5 @@
 ---
 title: Jesus
-description: Learn about Jesus, the Spiritual Governor of Earh, Model and Guide of Humankind.
 date: 2019-02-01 19:00:00
 topics:
 - jesus

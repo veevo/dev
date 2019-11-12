@@ -1,15 +1,13 @@
 ---
-title: Delírio
-description: Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+title: Delirium
 date: 2019-02-01 19:00:00
-category:
-- vocabulary
+topics:
+- delirium
 ---
 
-Delírio [do latim deliriu] - Estado mental confuso, associado a graves disfunções cerebrais e que se caracteriza por distúrbios na consciência e no sistema sensorial: desorientação, alucinação, ilusão, inquietação, delusão e, por vezes, acentuada agitação.
-
-## See Also
-TODO
+Estado mental confuso, associado a graves disfunções cerebrais e que se caracteriza por 
+distúrbios na consciência e no sistema sensorial: desorientação, alucinação, ilusão, inquietação, 
+delusão e, por vezes, acentuada agitação.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
