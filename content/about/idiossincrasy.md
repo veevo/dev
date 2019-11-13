@@ -1,16 +1,14 @@
 ---
-title: Idiossincrasia
+title:  Idiosyncrasy
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- idiosyncrasy
 ---
 
-Idiossincrasia [do grego idiosygkrasía] – Característica que individualiza o ser, a sua maneira peculiar de ver, de sentir e de reagir.
 
-## See Also
-TODO
+A peculiarity of constitution or temperament of a person, an individualizing characteristic or quality of a person.
 
-## Source
-[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
+Individual hypersensitiveness (as to a drug or food)
 
+Characteristic peculiarity (as of temperament), how to think, feel and react.
 

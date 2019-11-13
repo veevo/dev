@@ -10,7 +10,6 @@ topics:
 - spirit
 ---
 
-## Introduction
 All of us, [Immortal Spirits](/about/immortal-spirit) will live many, many incarnations.
 Which means we all already had many existences and will still have many others on this world (and others)
 until we reach perfection.

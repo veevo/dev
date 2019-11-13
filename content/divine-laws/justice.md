@@ -1,19 +1,26 @@
 ---
 title: Justice
 date: 2019-01-11 13:00:00
-image: "images/contact.jpg"
-categories:
-- "divine-laws"
 topics: 
 - justice
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Just - [from Latin justu ]. Which conforms to law, morals and reason. Impartial; righteous; lawful. That which is right and proper to justice and morals.
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+> Bem-aventurados os que têm sede de justiça, porque serão saciados. 
+
+Essa afirmativa de Jesus nos faz pensar se podemos nos incluir no número dos que têm sede de justiça.
+
+Segundo os dicionários, justiça quer dizer conformidade com o direito. Virtude de dar a cada um o que é seu.
+
+Jesus, no entanto, se referiu à justiça recomendando que fizéssemos ao próximo o que gostaríamos que o próximo nos fizesse.
+
+Os Espíritos superiores recomendam que, caso tenhamos dúvidas quanto ao procedimento que devamos adotar com alguém, que nos coloquemos no lugar desse alguém e façamos exatamente o que desejaríamos que nos fosse feito.
+
+Dessa forma, jamais nos equivocaremos, uma vez que todos queremos o melhor para nós mesmos.
+
+
 
 ## See Also
-TODO
-
-
-
+[Article: Pesos e Medidas](/articles/pesos-e-medidas)  
+[Article: A nossa Justica](/articles/nossa-justica)   

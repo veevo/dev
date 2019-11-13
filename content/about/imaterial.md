@@ -1,16 +1,18 @@
 ---
-title: Imaterial
+title: Immaterial
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- immaterial
 ---
 
-Imaterial - [do latim immateriale]. Que não é material; incorpóreo; impalpável; sobrenatural; espiritual. 
 
-## See Also
-TODO
+Not consisting of matter (incorporeal)
 
-## Source
-[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
+That cannot be touched.
+
+Supernatural
+
+Spiritual
+
 
 

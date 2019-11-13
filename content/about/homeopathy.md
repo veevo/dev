@@ -1,16 +1,27 @@
 ---
-title: Homeopatia
+title: Homeopathy
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- homeopathy
 ---
 
-Homeopatia [do grego hómoios, a , on + -pat + -ia] – Sistema terapêutico criado por Cristian Fiedrich Samuel Hahnemann, em 1796, na Alemanha, sendo amplamente divulgado após meados do século passado. No Brasil, a Homeopatia é considerada especialidade médica desde 1980, encontrando um número cada vez maior de adeptos tanto na população, quanto entre profissionais da área da saúde que buscam, através de seu estudo, um aprimoramento profissional. Consiste em tratar os doentes por meio de substâncias ministradas em doses diluídas a ponto de se tornarem, por vezes, infinitesimais, capazes de produzir, em indivíduos sãos, quadros clínicos semelhantes àqueles apresentados por doentes a serem tratados. Essa escola terapêutica adota como lema "Similia similibus curantur" – os semelhantes curam-se pelos semelhantes.
+Homeopathy or homœopathy is a pseudoscientific system of alternative medicine. 
 
-## See Also
-TODO
+It was created in 1796 by Samuel Hahnemann. Its practitioners, called homeopaths, 
+believe that a substance that causes symptoms of a disease in healthy people would 
+cure similar symptoms in sick people; this doctrine is called similia similibus 
+curentur, or "like cures like".
 
-## Source
-[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
+It is believed that Homeopathy is a medical system based on the belief that the 
+body can cure itself. 
+
+Those who practice it use tiny amounts of natural substances, like plants and minerals. 
+They believe these stimulate the healing process.
+
+It was developed in the late 1700s in Germany. It’s common in many European countries, 
+but it’s not quite as popular in the United States.
 
 
+## Related
+[Wikipedia: Homeopathy](https://en.wikipedia.org/wiki/Homeopathy)  
+[WebMD: What is Homeopathy?](https://www.webmd.com/balance/what-is-homeopathy#1)

@@ -1,16 +1,33 @@
 ---
 title: Law
 date: "2019-01-01"
+topics:
+- divine-laws
+- laws
+- worship
+- labor
+- destruction
+- creation
+- justice
+- love
+- charity
+- equality
+- progress
 ---
 
-## Introduction
-All the Laws of Nature are Divine Laws because God is their author. They cover both the physical and moral laws.
+Law [from Latin lege ] - 
 
-## PT-BR
-Lei [do latim lege]- 1. Norma, preceito, princípio, regra. 2. Obrigação imposta pela consciência e pela sociedade. 3. Fórmula geral que enuncia uma relação constante entre fenômenos de uma dada ordem; lei natural. 4. As leis morais, divinas ou naturais, conforme relacionadas pela Doutrina Espírita: lei de adoração, lei do trabalho, lei de reprodução, lei de conservação, lei de destruição, lei de sociedade, lei do progresso, lei de igualdade, lei de liberdade, lei de justiça, de amor e de caridade.
+1. Norm, precept, principle, rule. 
+2. Obligation imposed by conscience and society. 
+3. General formula that states a constant relation between phenomena of a given order; natural law. 
+4. The moral, divine or natural laws, as related by the Spiritist Doctrine: 
+law of worship, law of labor, law of reproduction, law of destruction, law of destruction, 
+law of progress, law of equality, law of freedom, the law of justice, love and charity.
+
+All the Laws of Nature are Divine Laws because God is their author. They cover both the physical and moral laws.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
 
 ## See Also
-TODO
+[Veevo.org | Laws](/laws)

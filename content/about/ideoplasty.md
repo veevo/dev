@@ -1,19 +1,17 @@
 ---
-title: Ideoplastia
+title: Ideoplasty
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- ideoplasty
 ---
 
-Ideoplastia [do grego idéa= idéia, aparência + plásso ou plátto= modelar + -ia] – 1. Modelagem da matéria pelo pensamento. 2. A materialização do pensamento, criando formas que às vezes se revestem de grande duração, conforme a persistência da onda em que se expressam.
+The faculty or process of forming mental images; imagination: used especially of 
+imagination in its supposed suggestive capacity, as directly modifying 
+certain physiological processes and functions.
 
-## Related
-Imagens-moldes – O mesmo que Formas-pensamento.
+It is also though as the theory that sitters in a seance can effect the 
+occurring phenomena by unknowingly sending their thoughts and expectations 
+of what will happen to the medium. 
 
-## See Also
-TODO
-
-## Source
-[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
-
+The medium will then create what was expected by the group.
 

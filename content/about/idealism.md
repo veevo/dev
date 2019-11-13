@@ -1,16 +1,23 @@
 ---
-title: Idealismo
+title: Idealism
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- idealism
 ---
 
-Idealismo [do latim ideale + -ismo] - Nome genérico de diversos sistemas filosóficos modernos que reduzem as coisas a alguma entidade de ordem subjetiva, ao espírito, p.ex., o ser ao pensamento. 
+In philosophy, idealism is the group of metaphysical philosophies which assert 
+that reality, or reality as humans can know it, is fundamentally mental, mentally 
+constructed, or otherwise immaterial. 
+
+Epistemologically, idealism manifests as a skepticism about the possibility 
+of knowing any mind-independent thing.
+
+Other definitions are:
+- The act or practice of envisioning things in an ideal and often impractical form.
+- Pursuit of one's ideals, often without regard to practical ends.
+- Idealized treatment of a subject in literature or art.
 
 ## See Also
-TODO
-
-## Source
-[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
+[Wikipedia: Idealism](https://en.wikipedia.org/wiki/Idealism)  
 
 

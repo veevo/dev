@@ -1,17 +1,31 @@
 ---
-title: Licantropia
+title: Lycanthropy
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- lycanthropy
+- zoantrophy
+- werefolf
+- inferior-spirits
+- hell
 ---
 
-Licantropia [do grego lykanthropía] – 1. Doença mental em que o enfermo se julga transformado em lobo. 2. Metamorfose perispirítica, processada através de indução hipnótica, do desencarnado inferiorizado em suas culpas, que ganha a forma e passa a agir como um lobo.
+Lycanthropy [from the Greek lykanthropía ] - 
 
-## Related
-Licantropo [do grego lykaánthropos] – 1. Alienado que sofre de licantropia.. 2. Por extensão, Lobisomen.
+1. Mental illness in which the sick person considers himself transformed into a wolf. 
+
+2. Perispiritic metamorphosis, processed through hypnotic induction, of the inferiorized 
+disincarnate in his guilt, which takes shape and acts as a wolf. 
+
+Species of Zoanthropy .
+
+## Lycanthrope
+Lycanthrope [from Greek lykaánthropos ] - 
+
+1. Alienated suffering from lycanthropy.   
+2. By extension, Werewolf.
 
 ## See Also
-Zoantropia
+Zoantrophy
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

@@ -2,15 +2,18 @@
 title: Immortal Spirit
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- spirit
+- immortality
+- immortal-spirit
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.  TODO
+According to Spiritism, all of us are sons of the same Father, [God](/about/god)
+and are [Immortal Spirits](/about/immortal-spirits) which will live forever and
+each of us will reach the [pure and eternal happiness](/about/eternal-happiness).
 
 ## See Also
-TODO
-
-## Source
-TODO
-
-
+[The Spirits' Book](/books/spirits-book)  
+[God](/about/god)  
+[Immortal Spirits](/about/immortal-spirits)  
+[The pure and eternal happiness](/about/eternal-happiness)
+[What is Spiritism?](/spiritism/about)  
