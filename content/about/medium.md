@@ -1,14 +1,14 @@
 ---
-title: Médium
+title: Medium
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- medium
+- mediumship
+- spiritism
 ---
 
-Médium. [do latim medium= meio, intermediário] – 1. Pessoas acessíveis à influência dos Espíritos, e mais ou menos dotadas da faculdade de receber e transmitir suas comunicações. Para os Espíritos, o médium é um intermediário, um instrumento segundo a natureza ou o grau da faculdade mediúnica. Esta faculdade depende de uma disposição orgânica especial, suscetível de desenvolvimento. 2. Há uma diversidade de médiuns: falantes (psicofonia), escreventes (psicografia), videntes, audientes, curadores, etc..  
+Medium . [from Latin medium = medium, intermediate] 1. People accessible to the influence of spirits, and more or less endowed with the ability to receive and transmit their communications. For spirits, the medium is an intermediary, an instrument according to the nature or degree of the mediumistic faculty. This faculty depends on a special organic disposition, susceptible of development. 2. There are a variety of mediums: speakers (psychophony), writers (psychography), psychics, audiences, curators, etc.
 
-## See Also
-TODO
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

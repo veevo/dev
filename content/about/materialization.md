@@ -1,14 +1,14 @@
 ---
-title: Materialização
+title: Materialization
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- mediumship
+- spirits
 ---
 
-Materialização - Propriedade do perisipirito de se tornar visível e tangível. 
+Materialization - Property of the perisipyrite to become visible and tangible.
 
-## See Also
-TODO
+A know way [Spirits](/about/spirit) can be seen under very special conditions.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

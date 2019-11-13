@@ -1,14 +1,12 @@
 ---
-title: Fixação mental
+title: Mental Fixation
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- mediumship
+- mind
 ---
 
-Fixação mental – Obsessão de si mesmo, auto-obsessão.
-
-## See Also
-TODO
+Mental Fixation - Self-obsession, self-obsession.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

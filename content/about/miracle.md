@@ -2,14 +2,15 @@
 title: Milagre
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- miracle
 ---
 
-Milagre - [do latim miraculu]. fato que não tem explicação à luz das leis da natureza e que, portanto, deve ser atribuído a causas sobrenaturais. O que é sobrenatural.
+Miracle - [from the Latin miraculu ]. 
 
+This fact has no explanation in the light of the laws of nature 
+and must therefore be attributed to supernatural causes. 
 
-## See Also
-TODO
+What is supernatural.
 
-
-
+## Source
+[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

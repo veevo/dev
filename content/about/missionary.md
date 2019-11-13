@@ -1,14 +1,12 @@
 ---
-title: Missionário
+title: Missionary
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- mission
+- missionary
 ---
 
-Missionário - [do francês missionaire]. Propagandista de uma idéia. Aquele que missiona, que prega a fé, evangeliza. 
-
-## See Also
-TODO
+Missionary - [from french missionaire ]. Propagandist of an idea. He who missions, preaches the faith, evangelizes.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

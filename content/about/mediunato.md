@@ -2,13 +2,10 @@
 title: Mediunato
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- mediumship
 ---
 
-Mediunato [do latim medium + actu]- Nome criado pelos Espíritos, para significar a missão providencial dos médiuns, a ação mediúnica que eles desenvolvem durante a reencarnação.
-
-## See Also
-TODO
+Mediumiunato [from Latin medium + act ] - Name created by the Spirits, to signify the providential mission of the mediums, the mediumistic action that they develop during the reincarnation.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

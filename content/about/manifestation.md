@@ -1,15 +1,23 @@
 ---
-title: Manifestação
+title: Manifestation
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- spirits
+- mediumship
+- manifestation
 ---
 
-Manifestação [do latim manifestatione] – Ato pelo qual o Espírito revela a sua presença. As manifestações podem ser: ocultas – não ostensivas, quando o Espírito age sobre o pensamento; patentes – quando apreciáveis pelos sentidos; físicas – quando se traduzem por fenômenos materiais, tais como ruídos, movimento e deslocamento de objetos; inteligentes – quando revelam um pensamento; espontâneas – independentes da vontade e ocorrem sem que nenhum Espírito seja chamado; provocadas – efeitos da vontade, do desejo ou de uma evocação determinada; aparentes – quando o Espírito se faz visível.
+Manifestation [from the Latin manifestatione ] - 
 
-## See Also
-Aparição  
-TODO
+Act by which the Spirit reveals his presence. Manifestations can be: occult - unobtrusive, 
+when the Spirit acts upon thought; patents - when sensible to the senses; physical - when 
+translated by material phenomena such as noise, movement and displacement of objects; 
+
+intelligent - when they reveal a thought; spontaneous - independent of will and occur 
+without any Spirit being called; provoked - effects of will, desire or a certain evocation; 
+apparent - when the Spirit becomes visible.
+
+
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

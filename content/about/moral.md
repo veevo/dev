@@ -2,13 +2,17 @@
 title: Moral
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- moral
+- moral-laws
 ---
 
-Moral [do latim morale] - 1. Conjunto de regras de conduta consideradas como válidas, quer de modo absoluto para qualquer tempo ou lugar, quer para grupo ou pessoa determinada. 2. Sistema de idéias que tem por finalidade orientar o uso da liberdade pessoal mediante a distinção entre o bem e mal, de modo que a conduta não acarrete sofrimentos.
+Moral [from Latin morale ] - 
 
-## See Also
-TODO
+1. A set of rules of conduct considered to be valid, either absolutely for any 
+time or place, or for a particular group or person. 
+
+2. A system of ideas that aims to guide the use of personal freedom by 
+distinguishing between good and evil, so that conduct does not cause suffering.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

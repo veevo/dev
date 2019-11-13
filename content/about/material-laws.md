@@ -1,11 +1,16 @@
 ---
-title: Material Laws
+title: Matter
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- matter
+- mediumship
+- spiritism
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Material - [from Latin materiale ]. Respectful or pertaining to matter. Consisting of matter. That oppose the spiritual, which refers only to the body. Heavy, massive, coarse.
+
+Material Laws are the laws of Nature: Gravity, Magnetism, Atraction, Electricity, etc...
+
 
 ## See Also
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Universal FLuid

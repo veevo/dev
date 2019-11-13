@@ -1,16 +1,16 @@
 ---
-title: Mission
+title: Monotheism
 date: 2019-02-01 19:00:00
 topics:
-- mission
-- spirits
-- life
-- missionary
+- monotheism
+- god
+- jesus
 ---
 
-Mission - [from Latin missione ]. action of sending. 
+Monotheism [from Greek monos + -theism ] - 
 
-Errand. Commitment; obligation; charge.
+System or doctrine of those who admit the existence of one God.
+
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

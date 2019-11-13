@@ -1,15 +1,11 @@
 ---
-title: Monoteísmo
+title: Mediunism
 date: 2019-02-01 19:00:00
 topics:
 - vocabulary
 ---
 
-Monoteísmo [do grego mónos + -teísmo] - Sistema ou doutrina daqueles que admitem a existência de um único Deus.
-
-
-## See Also
-TODO
+Mediunism [of medium]. Misuse of mediumship, outside the safety rules advised by spiritualism.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

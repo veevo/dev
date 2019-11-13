@@ -1,14 +1,12 @@
 ---
-title: Mediunidade
+title: Mediumship
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- mediumship
+- spiritism
 ---
 
-Mediunidade [do latim medium + -idade] – 1. Faculdade que a quase totalidade das pessoas possuem, umas mais outras menos, de sentirem a influência ou ensejarem a comunicação dos Espíritos, tanto que Allan Kardec afirma serem raros os que não possuem rudimentos de mediunidade. 2. Em alguns, essa faculdade é ostensiva e necessita ser disciplinada, educada; em outros, permanece latente, podendo manifestar-se episódica e eventualmente. Ver: medianimidade.
-
-## See Also
-TODO
+Mediumship [from Latin medium + -ity ] - 1. Faculty that almost all people have, some more and less, of feeling the influence or the communication of the Spirits, so much so that Allan Kardec claims that those who have no rudiments of mediumship. 2. In some, this faculty is overt and needs to be disciplined, educated; in others it remains latent and may manifest episodically and eventually. See: mediumness .
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
