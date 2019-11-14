@@ -1,15 +1,19 @@
 ---
-title: Parasitose
+title: Parasitosis
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- parasitosis 
+- vampirism
 ---
 
-Parasitose [do grego parásitos e do latim parasitu] – O processo de obsessão em que o obsessor faz o papel de parasito e o obsidiado de hospedeiro, com o primeiro sugando os princípios vitais do segundo. Igual a Vampirismo.
+Parasitosis [from Greek parasites and Latin parasitu ] - 
+The process of obsession in which the obsessor plays the role of parasite 
+and the obsessed host, with the former sucking the vital principles of the latter. 
 
+Just like [ Vampirism ](../vampirism).
 
 ## See Also
-TODO
+[ Vampirism ](../vampirism)
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

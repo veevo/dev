@@ -1,14 +1,14 @@
 ---
-title: Princípio
+title: Principle
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- principle
 ---
 
-Princípio - [do latim principiu]. Momento em que uma coisa tem início, começo ou origem. Causa primária; base; razão. Regra; lei; preceito moral. Teoria. 
+Principle - [from Latin principiu ]. The moment when a thing has a beginning, 
+beginning or origin. Primary cause; base; reason. 
 
-## See Also
-TODO
+Rule; law; moral precept. Theory.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

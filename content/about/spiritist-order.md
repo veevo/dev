@@ -2,7 +2,6 @@
 title: Escala Espírita
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Escala Espírita - Quadro das diferentes ordens de Espíritos, indicando os graus que eles têm de percorrer para chegar à perfeição, à medida que progridem os sentimentos morais e as idéias intelectuais. Ela compreende três ordens principais: os Espíritos imperfeitos, os bons Espíritos e os puros Espíritos.

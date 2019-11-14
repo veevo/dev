@@ -1,14 +1,17 @@
 ---
-title: Paixão
+title: Passion
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- passion
 ---
 
-Paixão [do latim passione] - Sentimento ou emoção levados a um alto grau de intensidade, sobrepondo-se à lucidez e à razão. Sentimento forte, exacerbado, como o amor, o ódio, etc. , que pelo seu caráter dominante inibe o raciocínio claro, lógica imparcial e, mesmo, a formulação de juízos de valor. Desejo intenso; atração.
+Passion [from Latin passione ] - 
+Feeling or emotion carried to a high degree of intensity, overriding 
+lucidity and reason. 
 
-## See Also
-TODO
+Strong, exacerbated feeling, such as love, hate, etc. , which by its dominant 
+character inhibits clear reasoning, impartial logic and even the formulation of 
+value judgments. Intense desire; attraction.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

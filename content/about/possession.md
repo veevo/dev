@@ -1,17 +1,15 @@
 ---
-title: Possessão
+title: Possession
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- possession
 ---
 
-Possessão [do latim possessione] - Atuação de um Espírito desencarnado sobre o encarnado, com domínio completo.
+Possession [from Latin possessione ] - 
+Acting of a disembodied Spirit upon the incarnate, with complete mastery.
 
-# Leitura Recomendada
-[André Luis - Nos Domínios da Mediunidade](/books/andre-luis/in-the-realms-of-mediumship)
+## Recommended Bibliography
+[André Luis - Nos Domínios da Mediunidade](/books/in-the-realms-of-mediumship)
 
-# See Also
-TODO
-
-# Source
+## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

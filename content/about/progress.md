@@ -1,14 +1,14 @@
 ---
-title: Progresso
+title: Progress
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- progress 
 ---
 
-Progresso - [do latim progressu]. Movimento para diante. Desenvolvimento gradual de um ser ou de uma atividade. Adiantamento; melhoramento; aperfeiçoamento. 
+Progress - [from Latin progressu ]. 
 
-## See Also
-TODO
+Forward movement. Gradual development of a being or an activity. 
+Advance; improvement; improvement.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

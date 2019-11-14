@@ -1,14 +1,22 @@
 ---
-title: Pentateuco
+title: Pentateuch
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- pentateuch 
+- spiritism
+- allan-kardec
 ---
 
-Pentateuco - [do grego pentáteukhos]. Designação dada pelos gregos ao conjunto dos cinco primeiros livros da Bíblia. Espiritismo: conjunto formado pelos cinco livros que formam a Codificação Espírita (Livro dos Espíritos, Evangelho Segundo o Espiritismo, A Gênese, O Céu e o Inferno, Livro dos Médiuns). 
+Pentateuch - [from the Greek pentáteukhos ]. Designation given by the Greeks 
+to the set of the first five books of the Bible. 
+
+Spiritism: set formed by the five books that form the Spiritist Codification 
+(Book of Spirits, Gospel According to Spiritism, Genesis, Heaven and Hell, Book of Mediums).
 
 ## See Also
-Expiação
+[Spiritism](/spiritism)  
+[What is Spiritism](/spiritism/about)   
+[Mediumship](/spiritism/mediumship)
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

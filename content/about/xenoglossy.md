@@ -2,7 +2,6 @@
 title: Xenoglossia
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Xenoglossia [do grego xénon= estranho, estrangeiro + glôssa= língua + -ia] - Faculdade de falar ou escrever línguas estranhas ao próprio médium. Muito rara. 

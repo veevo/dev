@@ -1,14 +1,12 @@
 ---
-title: Prazer
+title: Pleasure
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- pleasure
 ---
 
-Prazer [do latim placere] - Gratificação dos sentidos.
+Pleasure [from Latin placere ] - Gratification of the senses.
 
-## See Also
-TODO
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

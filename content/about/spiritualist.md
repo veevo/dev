@@ -2,7 +2,6 @@
 title: Espiritualista
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Espiritualista [do latim spirituale + -ista] - O que tem relação com o espiritualismo; partidário do espiritualismo. Quem creia que tudo em nós não é só matéria, é espiritualista, o que não implica, de nenhum modo na crença nas manifestações dos Espíritos. Todo espírita é necessariamente espiritualista; mas pode-se ser espiritualista sem ser espírita; o materialista não é nem um, nem outro.

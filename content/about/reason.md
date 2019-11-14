@@ -2,7 +2,6 @@
 title: Razão
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Razão [do latim ratione] - 1. Faculdade que tem o ser humano de avaliar, julgar, ponderar idéias universais; raciocínio, juízo. 2. Faculdade que tem o homem de estabelecer relações lógicas, de conhecer, de compreender, de raciocinar; inteligência. 3. A lei moral; o direito natural; a justiça. 4. Sistema de princípios "a priore", cuja verdade não depende da experiência.

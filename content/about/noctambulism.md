@@ -1,11 +1,16 @@
 ---
-title: Noctambulismo
+title:  Noctambulism
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- noctambulism
 ---
 
-Noctambulismo [do latim nox, noctis= a noite + ambulare= marchar, passear + -ismo] – Ato de marchar ou passear durante a noite, dormindo; sinônimo de sonambulismo. Esta última palavra é preferível, visto que noctambulismo não implica, de modo algum, a idéia de sono.
+Noctambulism [from Latin nox, noctis = night + ambulare = march, stroll + -ism ] - 
+
+Act of marching or strolling at night, sleeping; synonymous with sleepwalking. 
+
+This last word is preferable since nocturism does not imply the idea of sleep at all.
+
 
 ## See Also
 TODO

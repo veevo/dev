@@ -2,7 +2,6 @@
 title: Volitação
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Volitação (ou volição) [do latim escolástico volitione] - 1. Literalmente: querer, desejar, ter a intenção. 2. Designa um impulso consciente que leva a personalidade a pensar e realizar uma ação, para obter determinado fim.

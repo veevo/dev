@@ -2,7 +2,6 @@
 title: Espírita
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Espírita [do francês spirite] – Neologismo criado por Allan Kardec, em "O Livro dos Espíritos", para significar: a) o que tem relação com o Espiritismo; b) adepto do Espiritismo; c) aquele que pode ser reconhecido "pela sua transformação moral e pelos esforços que emprega para domar suas más inclinações".

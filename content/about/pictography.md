@@ -1,14 +1,16 @@
 ---
-title: Pictografia
+title: Pictography
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- pictography
+- medium
+- mediumship
+- spirits
 ---
 
-Pictografia [do latim pictu, particípio de pingere= pintar + o + graf(o) + ia] - Pintura ou desenho feito por Espírito através de médium.
+Pictography [from Latin pictu, participle of pingere = to paint + o + graf (o) + ia] - 
+Painting or drawing made by Spirit through medium.
 
-## See Also
-TODO
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

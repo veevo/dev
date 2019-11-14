@@ -3,9 +3,16 @@ title: Obsessor
 date: 2019-02-01 19:00:00
 topics:
 - obsession
+- mediumship
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Obsessor [Latin obsessore ] - inferior spirit, any agent or karmic obsession, 
+embodied or disembodied, in thoughtless or premeditated action, dominates, chases, 
+harasses or intrusive, because of the established moral line. 
+
+Synonymous with Obsidious.
+
 
 ## See Also
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+[Obsession](../obsession)  
+[Obsessed](../obsessed)  

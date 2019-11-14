@@ -1,14 +1,15 @@
 ---
-title: Sono natural
+title: Natural sleep
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- dream
+- sleep
 ---
 
-Sono natural – Estado especial do organismo, caracterizado por inatividade relativa, consciência reduzida e escassa reação aos estímulos externos. Nesse estado ocorre o fenômeno da emancipação ou desdobramento da alma.
+Special state of the organism, characterized by relative inactivity,
+reduced consciousness and little reaction to external stimuli. 
 
-## See Also
-TODO
+In this state occurs the phenomenon of emancipation or unfolding of the soul.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

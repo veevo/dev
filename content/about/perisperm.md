@@ -1,14 +1,13 @@
 ---
-title: Perisperma
+title: Perisperm
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- perisperm
 ---
 
-Perisperma - [do grego perí + spérma]. Bot. Fina membrana envolvente produzida pelo resto não absorvido da nucela (pequena noz), que fica em redor do embrião e do endosperma de uma semente. 
-
-## See Also
-Expiação
+Perisperm - [from the Greek peri + spérma ]. Bot Thin enveloping membrane 
+produced by the unabsorbed remnant of the nucella (small walnut) surrounding 
+the embryo and endosperm of a seed.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

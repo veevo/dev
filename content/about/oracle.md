@@ -1,14 +1,24 @@
 ---
-title: Oráculo
+title: Oracle
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- paganism
+- god
+- future
+- spirits
 ---
 
-Oráculo [do latim oraculu] – Segundo as crenças pagãs, respostas dos deuses, através da boca das pitonisas, às questões que lhes eram dirigidas. Por extensão, também pode designar a pessoa que pronunciava a resposta, assim como os diversos meios empregados para conhecer o futuro. A crença nos oráculos teve sua origem nas comunicações dos espíritos que o charlatanismo, a cupidez e o amor do domínio cercaram de prestígio, e que hoje vemos em toda a sua simplicidade.
+Oracle [Latin the raculu ] - 
 
-## See Also
-TODO
+According to pagan beliefs, responses of the gods, through the mouth of Pythias, 
+the questions addressed to them. 
+
+By extension, it can also designate the person who pronounced the answer, as well 
+as the various means employed to know the future. 
+
+Belief in oracles had its origin in the communications of the spirits that quackery, 
+cupidity, and the love of dominion surrounded with prestige, and which we now see 
+in all their simplicity.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

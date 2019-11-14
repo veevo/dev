@@ -1,14 +1,24 @@
 ---
-title: Protetor
+title: Protector
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- protector 
+- superior-spirit
+- guardian-spirt
+- spiritual-guide
 ---
 
-Protetor [do latim protectore] – É o Espírito bom que aceitou a missão de acompanhar e ajudar o progresso de seu protegido, influindo com seus conselhos, consolando suas aflições, sustentando sua coragem nas provas da vida. Liga-se ao indivíduo desde o nascimento até a morte biológica e, freqüentemente, o segue depois na vida espiritual, e mesmo em várias existências corporais. Ver: Anjo guardião, Guia espiritual.
+Protector [from Latin protectore ] - 
+
+It is the [good Spirit](../superior-spirit) who has accepted the mission of 
+accompanying and helping the progress of his protégé, influencing with his advice, 
+comforting his afflictions, sustaining his courage in the trials of life. 
+
+It attaches to the individual from birth to biological death and often follows 
+it later in the spiritual life, and even in various bodily existences. 
 
 ## See Also
-TODO
+Guardian Angel, Spiritual Guide
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

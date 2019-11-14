@@ -1,14 +1,15 @@
 ---
-title: Providência
+title: Providence
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- Providence 
 ---
 
-Providência - [do latim providentia]. Sabedoria suprema, com que Deus tudo dirige. O próprio Deus.
+Providence - [from the Latin providentia ]. 
 
-## See Also
-TODO
+Supreme wisdom, with which God directs everything. 
+
+God himself.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

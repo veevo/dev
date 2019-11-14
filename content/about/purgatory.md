@@ -1,16 +1,22 @@
 ---
-title: Purgatório
+title: Purgatory
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- purgatory 
 ---
 
-Purgatório [do latim purgatorium= efeito de purgare= purgar; raiz purus= puro, que se derivado do grego pyr, pyrus= fogo, antigo emblema da purificação] – Lugar de expiação temporária, segundo a Igreja Católica, para as almas que têm ainda que se purificar. A Igreja não define de um modo preciso o lugar onde se acha o Purgatório e não se explica mais claramente sobre a natureza das penas ali sofridas. O ensino dos Espíritos é muito mais explícito a este respeito.
+Purgatory [from Latin purgatorium = purgare effect = purge; root purus = pure, 
+which is derived from the Greek pyr, pyrus = fire, ancient emblem of purification] - 
 
-Eles rejeitam, é verdade, o dogma da eternidade das penas (ver Inferno), mas admitem uma expiação temporária, mais ou menos longa, que não é outra coisa, salvo o nome, senão o purgatório. Esta expiação se realiza pelos sofrimentos morais da alma no estado errante.
+Place of temporary atonement, according to the Catholic Church, for souls that 
+have yet to be purified. The Church does not define precisely where Purgatory is 
+and does not explain more clearly about the nature of the punishments suffered there. 
 
-## See Also
-TODO
+The teaching of spirits is much more explicit in this regard. They reject, it is true, 
+the dogma of the eternity of penalties (see Hell).but admit a more or less temporary 
+temporary atonement, which is nothing but name but purgatory. 
+
+This atonement is realized by the moral sufferings of the soul in the wandering state.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

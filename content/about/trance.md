@@ -2,7 +2,6 @@
 title: Transe
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Transe [do francês transe] - Estado de inconsciência ou semiconsciência em que se verificam diversos fenômenos psíquicos ou mediúnicos.

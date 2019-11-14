@@ -1,14 +1,14 @@
 ---
-title: Preconceito
+title: Prejudice
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- prejudice 
 ---
 
-Preconceito - [do latim prae + conceptu]. Conceito formado antecipadamente e sem fundamento sério. Preocupação. Prejuízo. Crendice; superstição. 
+Prejudice - [from the Latin prae + conceptu ]. 
 
-## See Also
-TODO
+Concept formed in advance and without serious foundation. 
+Concern. Loss. Belief; superstition.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

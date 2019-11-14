@@ -2,15 +2,35 @@
 title: Prayer
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- prayer
+- spiritism
+- god
+- jesus
+- divine-laws
 ---
 
-Prayer is an act of adoration for [God](/about/god). It is found in the natural law and is the result of an innate sentiment in every Human Being, just as the idea of the existence of the Creator is innate.
+Prayer [from Latin Prayer ] -
 
+It is an invocation and in some cases an evocation by which we call such or such a 
+Spirit. When addressed to God, He sends us His messengers, the Good Spirits. 
+
+Prayer cannot revoke the decrees of Providence; but through it the Good Spirits 
+can come to our aid, either to give us the moral strength we lack or to suggest the 
+necessary thoughts: hence comes the relief we experience when we pray fervently. 
+
+Hence also comes the relief that suffering spirits experience when we pray for them; 
+they themselves ask these prayers in the form that is familiar to them and more in 
+keeping with their retained ideas of their bodily existence. 
+Reason, according to what the spirits themselves say, tells us that the prayer of lips 
+is a vain formula when the heart does not take part in it.
+
+## Talking to God
+Prayer is an act of adoration for [God](/about/god). It is found in the natural law 
+and is the result of an innate sentiment in every Human Being, just as the idea of the existence of the Creator is innate.
+
+## Making us better
 Prayer makes [Human Beings](/about/human-being) better. Whoever prays with fervor and confidence grows stronger against evil temptations, and God sends the Good [Spirits](/about/spiritss) to assist them. This type of assistance will never be denied when requested with sincerity. 
 
-## pt 
-Prece [do latim prece] – É uma invocação e, em certos casos, uma evocação, pela qual chamamos a nós tal ou tal Espírito. Quando é dirigida a Deus, Ele nos envia seus mensageiros, os Bom Espíritos. A prece não pode revogar os decretos da Providência; mas por ela os Bons Espíritos podem vir em nosso auxílio, quer para dar-nos a força moral que nos falta, quer para sugerir-nos os pensamentos necessários: daí vem o alívio que experimentamos quando oramos com fervor. Daí vem também o alívio que experimentam os Espíritos sofredores quando oramos por eles; eles mesmo pedem essas preces sob a forma que lhes é familiar e que está mais em relação com as idéias que conservaram de sua existência corporal. A razão, em conformidade com o que dizem os próprios Espíritos, diz-nos que a prece de lábios é uma fórmula vã quando dela o coração não toma parte.
-
 ## See Also 
-TODO
+[Spiritism](/spiritism)  
+[What is Spiritism](/spiritism/about)  

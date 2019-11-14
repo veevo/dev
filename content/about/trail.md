@@ -2,7 +2,6 @@
 title: Prova
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Prova - [do latim proba]. Aquilo que serve para estabelecer uma verdade por verificação ou demonstração. Exame. Uma das formas do espírito experimentar-se. 

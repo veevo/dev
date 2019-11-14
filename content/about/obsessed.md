@@ -3,9 +3,11 @@ title: Obsessed
 date: 2019-02-01 19:00:00
 topics:
 - obsession
+- mediumship
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Obsessed - One who is suffering obsession. 
 
 ## See Also
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+[Obsession](../obsession)  
+[Obsessed](../obsessed)  

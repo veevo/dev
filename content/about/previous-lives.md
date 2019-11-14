@@ -1,10 +1,22 @@
 ---
 title: Previous Lives
 date: "2019-01-01"
+topics:
+- life
+- incarnations
+- reincarnation
+- worlds
+- perispirt
 ---
 
-Future life reserves for Human Beings penalties and pleasures according to the respect they do or do not show for God’s laws.
+Previous lives are past material existences from previous [incarnations](../incarnation).
+
+While the [spirit is immortal](../immortal-spirit), each existent lived on a 
+[material world](../material-world) can be considered one different material life,
+thus it's common to use the expression _previous life_ to denote these previous
+material existences.
 
 ## See Also
-In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-
+[Material World](../material-world)  
+[Spiritual World](../spiritual-world)  
+[Perispirit - The spiritual body](../perispirit)  

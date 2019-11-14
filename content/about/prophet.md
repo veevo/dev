@@ -1,14 +1,17 @@
 ---
-title: Profeta
+title: Prophet
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- prophet 
+- future
 ---
 
-Profeta - [do grego prophétes; latim propheta]. Aquele que prediz por inspiração divina; vidente; adivinho; título dado pelos Maometanos a Mafoma; aquele que faz conjecturas sobre o futuro. 
+Prophet - [from Greek prophétes ; Latin propheta ]. 
 
-## See Also
-TODO
+One who foretells by divine inspiration; fortune teller; 
+Soothsayer; title given by the Mohammedans to Mafoma; one who conjectures about 
+the future.
+
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

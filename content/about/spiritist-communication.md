@@ -2,7 +2,6 @@
 title: Comunicação Espírita
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Comunicação Espírita - Manifestação inteligente dos Espíritos, tendo por objeto uma troca contínua de pensamento entre eles e os homens.

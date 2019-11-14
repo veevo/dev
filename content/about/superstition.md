@@ -2,7 +2,6 @@
 title: Superstição
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Superstição - [do latim superstitione]. Sentimento religioso excessivo ou errôneo, que consiste em atribuir a certas práticas uma eficácia sem razão, arrastando as pessoas à prática de atos indevidos e absurdos. Falsa idéia a respeito do sobrenatural; crendice. Temor absurdo de coisas imaginárias; excessiva credulidade. 

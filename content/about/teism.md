@@ -2,7 +2,6 @@
 title: Teísmo
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Teísmo [do grego teós + -ismo] - Doutrina que admite a existência de um deus, força causal do mundo.

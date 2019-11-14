@@ -2,7 +2,6 @@
 title: Tiptologia
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Tiptologia [do grego tuptó + logos + -ia] - Linguagem por pancadas; modo de comunicação dos Espíritos. Tiptologia alfabética.

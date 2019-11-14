@@ -1,14 +1,15 @@
 ---
-title: Natureza
+title: Nature
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- nature
 ---
 
-Natureza - [do latim natura]. Conjunto das leis que presidem à existência das coisas e à sucessão dos seres. Força ativa que estabeleceu e conserva a ordem natural de quanto existe. Essência; qualidade; espécie.
+Nature - [from the Latin natura ]. 
+Set of laws that govern the existence of things and the succession of beings. 
+Active force that has established and maintains the natural order of how much there is. 
 
-## See Also
-TODO
+Essence; quality; species.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

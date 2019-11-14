@@ -2,13 +2,13 @@
 title: Protoplasma
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- protoplasma 
 ---
 
-Protoplasma - [do grego prôtos + plasma, atos]. Biol. Substância viva das células constituída pela associação de citoplasma e cromatina, podendo estar contida no núcleo.
+Protoplasma - [from the Greek protos + plasma, acts]. 
 
-## See Also
-TODO
+Biol. Living substance of cells constituted by the combination of cytoplasm and 
+chromatin, which may be contained in the nucleus.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

@@ -1,14 +1,18 @@
 ---
-title: Pneumatofonia
+title: Pneumatophony
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- pneumatophony
+- spirits
+- medium
 ---
 
-Pneumatofonia [do grego pneuma= ar, e de phoné= som ou voz] - Comunicação verbal e direta dos Espíritos sem o concurso dos órgãos fonadores humanos. Voz direta.
+Pneumatophony [Greek pneuma = air, and phoné = sound or voice] - 
+Verbal and direct communication of spirits without the concurrence of human 
+phonatory organs. 
 
-## See Also
-TODO
+Direct voice.
+
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

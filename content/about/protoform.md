@@ -1,14 +1,17 @@
 ---
-title: Protoforma
+title: Protoform
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- protoform 
+- life
+- perispirit
 ---
 
-Protoforma - instrumento perispirítico do selvagem, extremamente condensado pela sua integração com a matéria mais densa. No homem primitivo a vida moral está começando a aparecer e o perispírito nelas ainda se encontra enormemente pastoso.
+Protoform - perispiritic instrument of the savage, extremely condensed by its 
+integration with the denser matter. 
 
-## See Also
-TODO
+In primitive man the moral life is beginning to appear and the perispirit in them 
+is still enormously pasty.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

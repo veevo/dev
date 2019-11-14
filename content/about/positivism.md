@@ -1,14 +1,13 @@
 ---
-title: Positivismo
+title: Positivism
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- positivism 
 ---
 
-Positivismo - [de positivo]. Sistema criado por Augusto Comte, de caráter empirista e antimetafísico, que recusa qualquer juízo de valor não consubstanciado numa certeza científica e idêntica essência e fenômeno. 
-
-## See Also
-TODO
+Positivism - [of positive]. System created by Augusto Comte, of empiricist and 
+anti-metaphysical character, that refuses any value judgment not embodied in a 
+scientific certainty and identical essence and phenomenon.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

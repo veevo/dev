@@ -2,7 +2,6 @@
 title: Sensualidade
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Sensualidade - [do latim sensualitate]. Qualidade de sensual. Luxúria; volúpia. 

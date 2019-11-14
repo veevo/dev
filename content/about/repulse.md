@@ -2,7 +2,6 @@
 title: Repulsão
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
 ---
 
 Repulsão - [do latim repulsione] Força em virtude da qual alguns corpos se repelem mutuamente. ação ou efeito de repelir. 

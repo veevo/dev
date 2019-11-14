@@ -2,21 +2,35 @@
 title: Ovóides
 date: 2019-02-01 19:00:00
 topics:
-- vocabulary
+- ovoid
+- obsession
+- vampirism
 ---
 
-Estágio de degradação a que chegam certos espíritos sofredores-obsessores. O espírito, ligado ao obsediado, de maneira intrínseca no seu afã de prejudicar, adquire uma forma ovóide, assemelhando-se á um ovo de consistência indefinida que se "cola" no corpo de seu alvo distorcendo-lhe pensamentos, opiniões e agindo incessantemente para lhe proporcionar toda sorte de infortúnios.
+Ovoid - the stage of degradation that certain suffering-obsessing spirits reach. 
 
-A ligação de um obsessor-obsediado no nível de ovóide, apesar de não muito freqüente, acontece mais do que se imagina. Ela ocorre quando há uma ligação cármica de dois espíritos em um nível avançadíssimo. Sob vidência, um indivíduo sofrendo a ação de um ovóide aparece com uma "massa" humana colada ao corpo, geralmente nas costas ou na região do abdôme.
+The spirit, linked to the obsessed, intrinsically in its eagerness to harm, takes 
+on an ovoid shape, resembling an egg of indefinite consistency that "sticks" to the body 
+of your target by distorting your thoughts, opinions and acting incessantly to provide 
+you with all sorts of misfortunes. 
 
-Um ovóide, além da obsessão psicológica propiamente dita, age, drenando as forças do obsidiado a nível de levá-lo á morte. No trabalho de desobsessão se faz possível subtrair um ovóide de uma pessoa, apesar da grande dificuldade e das inúmeras sessões a serem realizadas, mas há casos de fracasso ao término de anos de sessões, o que mostra o nível de ligação entre perseguidor e perseguido.
+The binding of an obsessed observer on the ovoid level, though not very frequent, 
+happens more than you might think. karmic bonding of two spirits at a very advanced level. 
 
+Under this, an individual suffering from the action of an ovoid appears with a human "mass" 
+glued to the body, usually on the back or abdomen. An ovoid, in addition to the psychological 
+obsession itself agedraining the forces of the obsessed into death. 
 
-## Bibliografia Recomendada
-Evolução em dois mundos, André Luiz
+In the work of disobsession it is possible to subtract an ovoid from a person, despite 
+the great difficulty and numerous sessions to be performed, but there are cases of failure 
+at the end of years of sessions. This shows the level of connection between persecutor 
+and persecuted.
+
+## Related Bibliography
+Evolution in two worlds
 
 ## See Also
-Vampirismo
+[ Vampirismo ](../vampirism)
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
