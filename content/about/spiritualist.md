@@ -1,17 +1,17 @@
 ---
-title: Espiritualista
+title: Spiritualist
 date: 2019-02-01 19:00:00
 topics:
+- spiritualism
+- spiritism
+- medium
 ---
 
-Espiritualista [do latim spirituale + -ista] - O que tem relação com o espiritualismo; partidário do espiritualismo. Quem creia que tudo em nós não é só matéria, é espiritualista, o que não implica, de nenhum modo na crença nas manifestações dos Espíritos. Todo espírita é necessariamente espiritualista; mas pode-se ser espiritualista sem ser espírita; o materialista não é nem um, nem outro.
-
-Diz-se: a filosofia espiritualista. – Uma obra escrita com as idéias espiritualistas – As manifestações espíritas são produzidas pela ação dos Espíritos sobre a matéria. – A moral espírita decorre do ensinamento dado pelos Espíritos. – Há espiritualistas que ridicularizam as crenças espíritas. Nesses exemplos, a substituição da palavra espiritualista pela palavra espírita,produziria uma confusão evidente. 
+Spiritualist [from Latin spirituale + -ista] - What has to do with spiritualism; partisan of spiritualism. Whoever believes that everything in us is not only matter, is spiritualist, which in no way implies the belief in the manifestations of spirits. Every spiritist is necessarily spiritualist; but one can be spiritualist without being spiritist; the materialist is neither one nor the other. It is said: spiritualist philosophy. - A work written with spiritualist ideas - Spiritist manifestations are produced by the action of spirits on matter. - Spiritist morality derives from the teaching given by the spirits. - There are spiritualists who ridicule the spiritist beliefs. In these examples, the replacement of the word spiritualist by the word spiritist, would produce obvious confusion.
 
 ## See Also
-TODO
+[Spiritism](/spiritism) 
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
-
 

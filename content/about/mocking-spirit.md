@@ -1,13 +1,17 @@
 ---
-title: Repulsão
+title: Mocking Spirit
 date: 2019-02-01 19:00:00
 topics:
+- bad-spirits
+- hell
+- spirits
+- mediumship
+- spiritism
 ---
 
-Repulsão - [do latim repulsione] Força em virtude da qual alguns corpos se repelem mutuamente. ação ou efeito de repelir. 
+Mocking - [to mock]. 
 
-## See Also
-TODO
+He who mocketh, mocketh, jokes, enjoys.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

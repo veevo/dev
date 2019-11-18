@@ -1,13 +1,16 @@
 ---
-title: Sensação
+title: Sensation
 date: 2019-02-01 19:00:00
-topics:
 ---
 
-Sensação - [do latim sensatione]. ação ou função sensorial. Tomada de consciência da alteração interna ou externa de um ou vários sentidos em simultâneo, conduzida pelos nervos ao cérebro. Sensibilidade. Comoção moral; emoção. 
+Sensation - [from Latin sensatione ]. 
 
-## See Also
-TODO
+1. sensory action or function. Awareness of the internal or external alteration of one 
+or more senses simultaneously, carried by the nerves to the brain. 
+
+Sensitivity. 
+
+Moral commotion; emotion.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

@@ -7,7 +7,8 @@ topics:
 - spiritism
 ---
 
-Matéria - Laço que prende o Espírito. Agente, intermediário com o auxílio do qual e sobre o qual atua o Espírito.
+Matter - Link that holds the Spirit and the body. 
+Agent, intermediary with the help of which the Spirit acts.
 
 Generally speaking, matter is:
 * That which occupies space and has mass; physical substance.
@@ -25,7 +26,8 @@ and other subtle parcticles.
 
 
 ## See Also
-Universal FLuid
+Universal Fluid  
+Vital Fluid  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

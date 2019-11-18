@@ -1,13 +1,15 @@
 ---
-title: Bem
+title: Well
 date: 2019-02-01 19:00:00
 topics:
+- well
+- good
 ---
 
-Bem [do latim bene]- 1. Qualidade atribuída a ações e obras humanas que lhes confere um caráter moral. 2. Tudo que beneficia e auxilia o progresso do homem do ponto de vista moral. 3. Favor, benefício.
+the fact of being healthy; feeling good.
 
 ## See Also
-TODO
+[Good](../good)
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

@@ -1,10 +1,21 @@
 ---
-title: Sabedoria
+title: Wisdom
 date: 2019-02-01 19:00:00
 topics:
+- wisdom
+- good
 ---
 
-Sabedoria -  [de saber]. Conhecimento extenso e profundo das coisas. Ciência. Qualidade de quem é sabedor, de quem tem muita instrução. Grande circunspeção e prudência; juízo; bom senso; razão; retidão. Teol. Conhecimento inspirado das coisas divinas.
+Wisdom - [to know]. 
+
+Extensive and deep knowledge of things. 
+Science. 
+
+Quality of those who are knowledgeable, who are well educated. 
+
+Great circumspection and prudence; judgment; common sense; reason; righteousness. 
+
+Teol Inspirational knowledge of divine things.
 
 ## See Also
 TODO

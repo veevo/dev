@@ -1,13 +1,18 @@
 ---
-title: Supremo
+title: Supreme
 date: 2019-02-01 19:00:00
 topics:
+- god
+- jesus
 ---
 
-Supremo - [do latim supremu]. Que está acima de tudo. O primeiro, o principal, o mais alto, ou o mais elevado. 
+Supreme - [from Latin supremu ]. 
+
+That is above all. The first, the main, the highest, or the highest.
 
 ## See Also
-TODO
+[God](../god)  
+[Jesus](../jesus)  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

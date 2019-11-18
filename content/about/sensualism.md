@@ -1,13 +1,12 @@
 ---
-title: Sensualismo
+title: Sensualism
 date: 2019-02-01 19:00:00
 topics:
 ---
 
-Sensualismo - [de sensual]. Filos. Doutrina que considera ser a satisfação carnal o prazer último de homem. 
+Sensualism - [of sensual]. Filos. 
 
-## See Also
-TODO
+Doctrine that considers carnal satisfaction to be man's ultimate pleasure.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

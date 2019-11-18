@@ -1,13 +1,13 @@
 ---
-title: Rancor
+title: Universal Trinity
 date: 2019-02-01 19:00:00
 topics:
+- universe
 ---
 
-Rancor - [do latim rancore]. Ressentimento profundo decorrente de mágoa que se sofreu sem protesto. Ódio oculto, não manifestado. 
+Principle of all that exists, consisting of God, Spirit and Matter. 
 
-## See Also
-TODO
+Nothing beyond this exists in the universe.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

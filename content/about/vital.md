@@ -2,12 +2,21 @@
 title: Vital
 date: 2019-02-01 19:00:00
 topics:
+- vital
 ---
 
-Vital - [do latim vitale]. Relativo à vida; que pertence à vida. Próprio para conservar a vida. Que dá força; fortificante. Princípio ~ Realidade energética, que deriva do Fluido Cósmico Universal, que é o responsável pelo fenômeno de vida nos seres orgânicos. 
+Vital - [from Latin vitale]. 
+
+Relative to life; that belongs to life. 
+Suitable for saving life. 
+That gives strength; fortifying. 
+
+Principle ~ Energy reality, which derives from the Universal Cosmic Fluid, 
+which is responsible for the life phenomenon in organic beings.
 
 ## See Also
-TODO
+Universal Fluid  
+Vital Fluid  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

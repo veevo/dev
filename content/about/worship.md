@@ -5,14 +5,22 @@ topics:
 - divine-law
 ---
 
-TODO
+#### Worship [from Latin to dorare ]
 
-# Definitions
-Adoração: [do latim adoratione]. Ato de adorar a Deus; respeito; submissão. Uma das dez leis morais.
+1. Render worship of (deity). 
 
-Adorar [do latim adorare] - 1. Render culto a (divindade). 2. Reverenciar, venerar, idolatrar, amar extremosamente. 3. É a elevação do pensamento a Deus, pois que, pela adoração, a alma se aproxima Dele.
+2. Reverence, worship, idolize, love extremely. 
+
+3. It is the elevation of thought to God, for by worship the soul draws near to Him.
+
+
+#### Worship: [from Latin adoratione]
+The act of worshiping God; respect; submission. 
+
+One of the ten moral laws.
+
 
 ## See Also
-TODO: Add ref to - Divine Laws / Worship
+[Moral Laws: Worship](/laws/worship)
 
 

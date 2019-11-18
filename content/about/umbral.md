@@ -2,13 +2,18 @@
 title: Umbral
 date: 2019-02-01 19:00:00
 topics:
+- umbral
+- hell
+- spiritism
 ---
 
-Umbral [do espanhol umbral= soleira da porta] – 1. Limiar, entrada. 2. Conforme informação do Espírito André Luiz, uma das regiões inferiores do Mundo Espiritual em que se agregam por sintonia mentes ainda em descompasso com o bem.
+Umbral [from Spanish umbral = doorway] - 1. Threshold, entry. 2. According to information from the Spirit André Luiz, one of the lower regions of the spirit world in which minds are still in harmony with the good. See: Crust and Darkness
 
 ## See Also
-Crosta  
+[Spiritism](/spiritism)  
+[Mediumship](/spiritism/mediumship)   
 Trevas  
+Crosta  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

@@ -2,10 +2,22 @@
 title: Talking Tables
 date: 2019-02-01 19:00:00
 topics:
-- turning tables
+- turning-tables
+- allan-kardec
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Talking tables (or rotating tables, talking tables or dancing tables) 
+are a kind of spiritist session in which participants sit around a table, 
+put their hands on it and wait for it to move.
+
+Very popular phenomenon in the nineteenth century, it was believed that tables served 
+as a means of communication with supposed spirits.
+
+It was the phenomenon that attracted [Allan Kardec](/bio/allan-kardec) attention that, 
+by witnessing them, resolved to deepen the study of the issues involved with 
+spirituality.
+
 
 ## See Also
-[The History of Spiritism](/spiritism/history/)
+[The History of Spiritism](/spiritism/history/)  
+[Allan Kardec](/bio/allan-kardec)  

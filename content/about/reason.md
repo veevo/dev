@@ -1,13 +1,17 @@
 ---
-title: Razão
+title: Reason
 date: 2019-02-01 19:00:00
-topics:
 ---
 
-Razão [do latim ratione] - 1. Faculdade que tem o ser humano de avaliar, julgar, ponderar idéias universais; raciocínio, juízo. 2. Faculdade que tem o homem de estabelecer relações lógicas, de conhecer, de compreender, de raciocinar; inteligência. 3. A lei moral; o direito natural; a justiça. 4. Sistema de princípios "a priore", cuja verdade não depende da experiência.
+Reason [from Latin ratione ] - 
 
-## See Also
-TODO
+1. Faculty that has the human being to evaluate, to judge, to ponder universal ideas; reasoning, judgment. 
+
+2. The faculty that man has to establish logical relations, to know, to understand, to reason; intelligence. 
+
+3. the moral law; the natural right; the Justice. 
+
+4. A priore system of principles , the truth of which does not depend on experience.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

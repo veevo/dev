@@ -2,20 +2,23 @@
 title: Centro Espírita
 date: 2019-02-01 19:00:00
 topics:
+- spiritism
+- spiritist-center
 ---
 
-Centro Espírita - 1. Casa ou sociedade espírita. 2. Local de reunião dos espíritas, para orar e praticar a Doutrina dos Espíritos. 3. Sociedade civil legalmente constituída, com a finalidade de praticar o Espiritismo.
+Spiritist Center - 
 
-Denominação dada às instituições que se prestam ao estudo e à prática do espiritismo em sua forma clássica, ou seja, a linha de estudo baseada nos postulados Kardequianos.É necessário dizer que essa denominação é usada , infelizmente, de uma forma errônea por outras instituições que não praticam o espiritismo cristão, assim como ele foi concebido, refiro-me às casas de práticas de umbanda e demais ritos afro-brasileiros.Por erro conceitual ou propositalmente intitulados assim para angariar fiéis incautos oriundos de, ou que procuram, casas espíritas propriamente ditas. Em um centro espírita, em geral, há um cronograma de atividades que se realizam no decorrer de cada semana, possuindo também atividades mensais e ações periódicas de vários fins.São ministradas palestras doutrinárias a respeito do Espiritismo, há sessões de passe magnético assim como sessões de cura espiritual por vários métodos. 
+1. House or spiritist society. 
 
-Existem diversas atividades de caridade, como campanhas e ajudas á necessitados.Em alguns centros também se realizam sessões de ectoplasmia, de dessobsessão, de psicografia e vários outros fenômenos mediúnicos.Existe, também, uma outra variedade de centro, que especializa-se principalmente em tratamentos espirituais, em cujo "paciente" por assim dizer freqüenta sessões periódicas de passes, cirurgias espirituais, palestras, dessobsessão, e outras atividades que ao término do tratamento se completam com uma sessão de vidência espiritual para averiguar o sucesso do tratamento assim como indicar possíveis dotes mediúnicos que poderão e deverão ser aperfeiçoados. Centros também possuem instituições de estudo em que se realizam cursos de formação de médiuns, estudos aprofundados sobre um tema específico e outros motivos de estudo e aperfeiçoamento.
+2. Meeting place of the Spiritists, to pray and practice the Doctrine of the Spirits. 
 
-Existem, ainda, centros que se especializam seja em sessões de psicografia, cirurgias espirituais, desobsessão, ajuda comunitária, atendimento á necessitados, doutrinação á presidiários ou ajuda material e espiritual á internos de instituições psiquiátricas ou á outras atividades.Necessário se faz ressaltar que existem ainda outras atividades que as instituições espíritas realizam, mas a noção da razão existencial dos centros espíritas é basicamente essa relatada acima, isto é, centros de estudo e prática do Espiritismo cristão codificado por Kardec, assim como instituições de ajuda social. 
+3. Civil society legally constituted for the purpose of practicing Spiritism.
 
-## See Also
-TODO
+4. Name given to the institutions that lend themselves to the study and practice of spiritualism in its classical form, that is, the line of study based on the Kardequian postulates. It is necessary to say that this denomination is used, unfortunately, in a wrong way by other institutions. do not practice Christian spiritualism, as it was conceived, I refer to the houses of Umbanda practices and other Afro-Brazilian rites. By conceptual error or purposely titled thus to garner faithful unwary from, or seeking, spiritist houses proper . In a spiritist center, in general, there is a schedule of activities that take place during each week, as well as monthly activities and periodic actions of various purposes. Doctrinal lectures on Spiritism are given, there are magnetic pass sessions as well as sessions. of spiritual healing by various methods. There are a number of charitable activities, such as campaigns and aids in need. In some centers there are also sessions of ectoplasmic, desobsession, psychography and various other mediumistic phenomena. There is also another variety of center which specializes mainly in spiritual treatments, in which the "patient" as it were attend periodic pass sessions, spiritual surgeries, lectures, desobsession, and other activities that at the end of the treatment complete with a spiritual clairvoyance session to ascertain the success of the treatment as well as indicate possible mediumistic gifts that can and should be improved. Centers also have study institutions where medium courses are offered, in-depth studies on a specific subject and other reasons for study and improvement. There are also centers that specialize in psychography sessions, spiritual surgery, disobsession, help. community, attendance to the needy, indoctrination to prisoners or material and spiritual help to interns of psychiatric institutions or other activities. It is necessary to emphasize that there are still other activities that the spiritist institutions perform, but the notion of the existential reason of the spiritist centers is basically This is described above, that is, centers of study and practice of Christian Spiritism codified by Kardec, as well as social aid institutions.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
 
-
+## See Also
+[Spiritism](/spiritism)  
+[Allan Kardec](/bio/allan-kardec)  

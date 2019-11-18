@@ -2,15 +2,19 @@
 title: Vital Principle
 date: 2019-02-01 19:00:00
 topics:
+- spiritism
+- life
+- fluids
+- sprits
+- matter
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Vital Principle [or magnetic fluid, or animalized electric fluid]. 
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+An agent that gives activity and movement to living beings and makes them distinguish 
+themselves from inert matter. 
 
-## pt
-Princípio Vital [ou fluido magnético, ou fluido elétrico animalizado]. Agente que dá atividade e movimento aos seres vivos e faz cm que se distingam da matéria inerte. Intermediário entre Espírito e matéria. 
+Intermediate between [Spirit](../spirit) and [matter](../matter).
 
 ## See Also
-[Spiritism / Vital Principle](/spiritism/spirits/vital-principe)
-TODO
+[Spiritism: Vital Principle](/spiritism/spirits/vital-principe)

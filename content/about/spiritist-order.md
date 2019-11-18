@@ -1,17 +1,25 @@
 ---
-title: Escala Espírita
+title: Spiritist Scale
 date: 2019-02-01 19:00:00
 topics:
+- spiritism
+- spirits
+- evolution
 ---
 
-Escala Espírita - Quadro das diferentes ordens de Espíritos, indicando os graus que eles têm de percorrer para chegar à perfeição, à medida que progridem os sentimentos morais e as idéias intelectuais. Ela compreende três ordens principais: os Espíritos imperfeitos, os bons Espíritos e os puros Espíritos.
+Spiritist Scale - A chart of the different orders of spirits, indicating the degrees 
+they have to go through to reach perfection as moral feelings and intellectual ideas 
+progress. It comprises three main orders: the imperfect spirits, the good spirits and the 
+pure spirits. 
 
-Estas classes não são espécies distintas, e todos os Espíritos são chamados a percorrê-las sucessivamente, isto é, da ignorância ao estado da perfeição. Dentro da escala espírita, os Espíritos podem estacionar, mas jamais retroceder. 
+These classes are not distinct species, and all spirits are called to follow them successively, 
+that is, from ignorance to the state of perfection. 
 
-## See Also
-TODO
+Within the spiritist scale, the spirits can park, but never back down.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
 
-
+## See Also
+[Spiritism](/spiritism)  
+[About: Spirits](../spirits)  

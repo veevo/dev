@@ -2,9 +2,13 @@
 title: Self-Awareness
 date: 2019-02-01 19:00:00
 topics:
+- self-awareness
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.
+Self-awareness is the capacity for introspection and the ability to recognize oneself 
+as an individual separate from the environment and other individuals. 
 
-## See Also
-TODO
+It is not to be confused with consciousness in the sense of qualia.
+
+## Source
+[Wikipedia: Self-awareness](https://en.wikipedia.org/wiki/Self-awareness)

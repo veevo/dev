@@ -1,17 +1,26 @@
 ---
-title: Satanás
+title: Satan
 date: 2019-02-01 19:00:00
 topics:
+- devil
+- hell
+- bad-spirits
 ---
 
-Satanás [do hebreu chaitán= adversário, inimigo de Deus] – Forma derivada de Satã. Ver: Diabo, Demônio.
+Satan [ from the Hebrew Chaitán = adversary, enemy of God] - 
 
-## pt
-Satã [do hebreu chaitán= adversário, inimigo de Deus] – A palavra satã é sinônimo de diabo, com a diferença de que este último é mais genérico, aplicando-se a todos os demônios, enquanto o primeiro aplica-se a um ser único, o rival de Deus. No entendimento espírito, todavia, Satanás ou satã não é um ser distinto, sendo a personificação alegórica do mal e de todos os maus Espíritos.
+The word Satan is synonymous with the devil, except that the latter is more generic, 
+applying to all demons, while the former applies to a unique being.
+
+God's rival. In spirit understanding, however, Satan or Satan is not a distinct being, 
+being the allegorical embodiment of evil and all evil spirits.
+
+Satan [ of the Hebrew Chaitán = adversary, enemy of God] - 
+Form derived from Satan.
 
 ## See Also
-Diabo  
-Demônio  
+[Devil](../devil)  
+[Demon](../demon)  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

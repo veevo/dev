@@ -3,10 +3,12 @@ title: Expiation
 date: 2019-02-01 19:00:00
 topics:
 - expiation
+- trial
 - spirits
 - life
 - heaven
 - hell
+- spiritism
 ---
 
 Segundo a Doutrina Espírita, é a purgação purificadora do mal que infeccionou o Espírito. 
@@ -18,5 +20,7 @@ Ela serve sempre de prova, mas nem sempre a prova é uma expiação. Provas e ex
 sempre sinais de relativa inferioridade do Espírito. 
 
 ## See Also
-[Trials](../trial)
+[Trials](../trial)  
+[Spiritism](/spiritism) 
+[Trials and Expiations](../trial-and-expiation)  
 

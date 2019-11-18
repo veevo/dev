@@ -1,14 +1,17 @@
 ---
-title: Sematologia
+title: Semantology
 date: 2019-02-01 19:00:00
 topics:
 ---
 
-Sematologia [do grego sema, semato= sinal + logos= discurso] – Transmissão do pensamento dos Espíritos por meio de sinais, tais como pancadas, batidas, movimentos de objetos, etc..
+Sematology [from Greek sema, semato = sign + logos = discourse] - 
+
+Transmission of the thought of spirits by means of signs, such as strokes, beats, 
+movements of objects, etc. 
+
 
 ## See Also
-Tiptologia  
-TODO
+Tiptology
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

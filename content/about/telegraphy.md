@@ -1,18 +1,29 @@
 ---
-title: Telegrafia
+title: Telegraphy
 date: 2019-02-01 19:00:00
 topics:
+- telegraphy
+- telepathy
 ---
 
-Telegrafia - [do grego têle+graphé]. Sistema que transmite sinais gráficos à distância. 
+Telegraphy - [from the Greek têle + graphé ]. System that transmits graphic signals at a distance.
 
-## Telegrafia humana
-Comunicação a distância entre duas pessoas vivas, que se evocam reciprocamente. Ver: Telepatia.
+## Human telegraphy
+Communication at a distance between two living persons, which evoke each other. 
 
-Esta evocação provoca a emancipação da alma, ou do Espírito encarnado, que vem se manifestar e pode comunicar seu pensamento pela escrita ou por outro qualquer meio. Os Espíritos dizem-nos que a telegrafia humana será um dia um meio usual de comunicação, quando os homens forem mais moralizados, menos egoístas e menos presos às coisas materiais. Até que esse estado seja alcançado, a telegrafia humana será um privilégio das almas de escol.
+This evocation causes the emancipation of the soul, or the incarnate Spirit, which 
+comes to manifest and can communicate its thought by writing or by any other means. 
+
+The spirits tell us that human telegraphy will one day be a usual means of communication, 
+when men are more moralized, less selfish and less attached to material things. 
+
+Until this state is reached, human telegraphy will be a privilege of the souls of the 
+school.
 
 ## See Also
-TODO
+[Telepathy](../telepathy)
+[Spiritism](/spiritism)  
+[Allan Kardec](/bio/allan-kardec)  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

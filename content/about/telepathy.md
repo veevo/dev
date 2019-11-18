@@ -1,13 +1,26 @@
 ---
-title: Telepatia
+title: Telepathy
 date: 2019-02-01 19:00:00
 topics:
+- telegraphy
+- telepathy
+- allan-kardec
 ---
 
-Telepatia [do grego têle + pat- + -ia] - Transferência de pensamentos e emoções de pessoa para pessoa, sem o emprego dos sentidos conhecidos. Kardec usou a expressão telegrafia humana, significando a comunicação à distância entre duas pessoas vivas, que se evocam reciprocamente. Esta evocação provoca a emancipação da alma, ou do Espírito encarnado, que vem se manifestar e pode comunicar seu pensamento pela escrita ou por qualquer outro meio.
+Telepathy [Greek terle + pat- + -ia ] - 
+
+Transfer of thoughts and emotions from person to person without the use of known senses. 
+
+[Allan Kardec](/bio/allan-kardec) used the term human telegraphy, meaning the communication 
+at a distance between two living people, which evoke each other. 
+
+This evocation causes the emancipation of the soul, or the incarnate Spirit, which comes 
+to manifest and can communicate its thought by writing or by any other means.
 
 ## See Also
-TODO
+[Telegraphy](../telegraphy)  
+[Allan Kardec](/bio/allan-kardec)  
+[Spiritism](/spiritism)  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

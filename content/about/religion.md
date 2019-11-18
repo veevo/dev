@@ -1,13 +1,33 @@
 ---
-title: Religião
+title: Religion
 date: 2019-02-01 19:00:00
 topics:
+- religion
 ---
 
-Religião . [Do lat. religione.] S. f. 1. Crença na existência de uma força ou forças sobrenaturais, considerada(s) como criadora(s) do Universo, e que como tal deve(m) ser adorada(s) e obedecida(s). 2. A manifestação de tal crença por meio de doutrina e ritual próprios, que envolvem, em geral, preceitos éticos. 3. Restr. Virtude do homem que presta a Deus o culto que lhe é devido. 4. Reverência às coisas sagradas. 5. Crença fervorosa; devoção, piedade. 6. Crença numa religião [v. religião (1 e 2)] determinada; fé, culto: Esta moça adotou a religião do marido. 7. Vida religiosa: Abandonou o mundo e abraçou a religião. 8. Qualquer filiação a um sistema específico de pensamento ou crença que envolve uma posição filosófica, ética, metafísica, etc. 9. Modo de pensar ou de agir; princípios: Falar mal dos outros é contra minha religião. Religião comparada. 1. Ramo de estudos, desenvolvido principalmente no séc. XIX, em que se empregam conceitos das ciências sociais e métodos e conhecimentos científicos para, mediante a comparação objetiva entre as diversas religiões particulares, determinar a história e explicar a natureza da religião como fenômeno humano universal. Religião de possessão. Antrop. Etnol. 1. Conjunto de práticas e crenças religiosas que formam um sistema em que a experiência da possessão por espíritos, divindades, etc. tem importância central; culto de possessão. Religião do caboclo. Bras. 1. V. linha do caboclo. 
+Religion . [From lat. religione .] S. f. 
+
+1. Belief in the existence of a supernatural force or forces, considered as creator (s) of the universe, and as such should be worshiped and obeyed. 
+
+2. The manifestation of such belief through its own doctrine and ritual, which generally involves ethical precepts. 
+
+3. Restricted Virtue of the man who renders God his worship. 
+
+4. Reverence for sacred things. 
+
+5. fervent belief; devotion, mercy. 
+
+6. Belief in a religion [v. religion (1 and 2)] determined; faith, worship:
+This girl adopted her husband's religion . 
+
+7. Religious Life: Abandoned the World and Embraced Religion. 
+
+8. Any affiliation with a specific system of thought or belief that involves a philosophical, ethical, metaphysical position, etc. 
+
+9. way of thinking or acting; Principles: To speak ill of others is against my religion . Comparative Religion. 1. Branch of studies, developed mainly in the century XIX, in which concepts of the social sciences and scientific methods and knowledge are employed to, through the objective comparison between the various particular religions, determine history and explain the nature of religion as a universal human phenomenon. Possession religion. Anthrop. Ethnol. 1. Set of practices and religious beliefs that form a system in which the experience of possession by spirits, deities, etc. is of central importance; possession cult. Caboclo religion. Bras. 1. V.caboclo line .
 
 ## See Also
-TODO
+[Spiritism](/spiritism)
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

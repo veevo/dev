@@ -3,13 +3,13 @@ title: Good
 date: 2019-02-01 19:00:00
 ---
 
-Que tem todas as qualidades adequadas à sua natureza ou função.
+Good [from bene latin] - 
 
-Benévolo, bondoso, benigno. 3. Misericordioso, caritativo. 
+1. Quality attributed to human actions and works that gives them a moral character. 
 
-Que alcançou proficiência, eficiente, competente, hábil; cumpridor de suas obrigações.
+2. All that benefits and assists the progress of man from the moral point of view. 
 
-Agradável, aprazível. 6. de boa qualidade, bondoso, agradável, útil, sadio, nobre.
+3. Please, benefit.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

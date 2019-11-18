@@ -1,13 +1,14 @@
 ---
-title: Vício
+title: Vice
 date: 2019-02-01 19:00:00
 topics:
+- vices
 ---
 
-Vício [do latim vitium= ausência de perfeição, defeito de formação] - A cada virtude corresponde, segundo certos moralistas, um defeito, uma falta (ou um excesso) que se lhe opõe e cuja criação definiria um vício.
+Vice [from Latin vitium = lack of perfection, defect of formation] - 
 
-## See Also
-Parasitose
+To each virtue corresponds, according to certain moralists, a defect, a lack 
+(or an excess) that opposes it and whose creation would define a vice.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

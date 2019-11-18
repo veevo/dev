@@ -1,13 +1,22 @@
 ---
-title: Revelação
+title: Revelation
 date: 2019-02-01 19:00:00
 topics:
 ---
 
-Revelação [do latim revelatione] – 1. Dar a conhecer coisas ocultas. 2. Tirar o véu, mostrar, descobrir, clarear. 3. Doutrina religiosa revelada, por oposição a que se chega pela razão apenas. Conjunto de verdades manifestadas por alguém ou algo ao homem mediante inspiração ou pelo ensino oral, comunicação aos profetas, apóstolos e demais homens. 
+Revelation [from the Latin revelatione ] - 
+
+1. To make known hidden things. 
+
+2. Remove the veil, show, discover, clear. 
+
+3. Revealed religious doctrine, as opposed to reason alone.
+
+
+Set of truths manifested by someone or something to man through inspiration or oral teaching, communication to prophets, apostles and other men.
 
 ## See Also
-TODO
+[Spiritism](/spiritism)
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

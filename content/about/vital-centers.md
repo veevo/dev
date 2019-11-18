@@ -5,10 +5,12 @@ topics:
 - chakras
 ---
 
-Centros Vitais - São fulcros energéticos que, sob a direção automática da alma, ativam o funcionamento dos órgãos do respectivo corpo material. Ver: Chacras e Centros de Força
+Vital Centers are energetic fulcrums that, under the automatic direction of the soul, 
+activate the functioning of the organs of the respective material body. 
+
 
 ## See Also
-TODO
+[Chakras](../chakra)
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

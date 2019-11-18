@@ -1,13 +1,18 @@
 ---
-title: Radiação
+title: Radiation
 date: 2019-02-01 19:00:00
 topics:
+- fluids
 ---
 
-Radiação [do latim radiatione] - 1. Ato ou efeito de radiar. 2. Qualquer dos processos físicos de emissão e propagação de energia. 
+Radiation [from Latin radiatione ] - 
+
+1. Act or effect of radiating. 
+
+2. Any of the physical processes of energy emission and propagation.
 
 ## See Also
-TODO
+[Radiate](../radiate)
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

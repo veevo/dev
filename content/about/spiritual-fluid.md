@@ -1,13 +1,22 @@
 ---
-title: Fluido Espiritual
+title: Spiritual Fluid
 date: 2019-02-01 19:00:00
 topics:
+- fluids
+- spiritism
+- mediumship
+- spirits
 ---
 
-Fluido Espiritual - Fluido Universal desenvolvido ou acumulado pelo Espírito sob a ação de seu pensamento. Já a denominação Fluido Expansível refere-se ao fluido espiritual emitido pela parte expansível do perispírito, isto é, aquela que sob seu domínio e pensamento pode se combinar com o fluido animalizado de um médium. 
+Spiritual fluid is the [Universal fluid](../universal-fluid) developed or accumulated 
+by the Spirit under the action of your thinking. 
+
+The name _Expandable Fluid_ refers to the spiritual fluid emitted by the expandable part of the perispirit, 
+that is, the one that under its domain and thought can be combined with the animalized 
+fluid of a medium.
 
 ## See Also
-TODO
+[Spiritism](/spiritism)  
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)
