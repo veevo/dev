@@ -1,9 +1,8 @@
 ---
 title: Anita Borela de Oliveira
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 Ana Borela de Oliveira, ou Anita Borela, como é mais conhecida, é um dos grandes vultos do Espiritismo da Zona da Mata de Minas Gerais, onde se destacou por sua bondade, pelo amor que dedicava aos seres humanos e pela imensa abnegação com que se entregou ao trabalho em prol dos desvalidos.
@@ -32,7 +31,5 @@ Em Londrina, Astolfo Dutra, Cataguases e Leopoldina, existem Casas espíritas qu
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/anita.html)
 
-## See Also
-TODO
 
 

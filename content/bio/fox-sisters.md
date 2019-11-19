@@ -1,9 +1,8 @@
 ---
 title: The Fox Sisters
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -27,7 +26,5 @@ Ao transferir residência para Rochester, a família de John Fox deparou com o p
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/irmasfox.html)
 
-## See Also
-TODO
 
 

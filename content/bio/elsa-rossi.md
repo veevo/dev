@@ -1,9 +1,8 @@
 ---
 title: Elsa Rossi
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 Elsa Rossi has a degree in Art from the Faculty of Fine Arts from the University of São Paulo, São Paulo, Brazil.
@@ -19,7 +18,5 @@ TODO
 ## Source
 TODO
 
-## See Also
-TODO
 
 

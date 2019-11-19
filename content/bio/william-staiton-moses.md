@@ -1,24 +1,23 @@
 ---
 title: William Staiton Moses
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+- psychic
+- spiritualism
+- great-britain
 ---
 
-Nascido a 5 de novembro de 1839 em Domington, Inglaterra, William Stainton Moses iniciou seus estudos sob a direção de seu pai e foi em seguida confiado a um professor particular. Em 1855, ingressou na Escola de Gramática de Bedford, onde estudou durante três anos. Aos 23 anos de idade, Stainton Moses voltou para Oxford, onde recebeu seu diploma. Em 1870, sua atenção foi atraída para o Espiritismo durante o tempo em que residiu na casa do Dr. Speers, em Londres.
+Born on November 5, 1839 in Domington, England, William Stainton Moses began his studies under the direction of his father and was then entrusted to a private teacher. In 1855, he joined bedford grammar school, where he studied for three years. At the age of 23, Stainton Moses returned to Oxford, where he received his diploma. In 1870, his attention was drawn to Spiritism during his time at Dr. Speers's london home.\r
 
-Dois anos depois, começou a estudar o Doutrina assistindo a algumas sessões espíritas. Numa sessão realizada na residência do casal Speers, tendo Stainton Moses como médium, todos se tornaram convictos da realidade da existência de Espíritos comunicantes, consolidando assim a crença na imortalidade da alma. Durante o periodo ativo da sua mediunidade, o pesquisador ocupou-se da formação de sociedades com o fim de estudar o Espiritismo.
+Two years later, he began studying the Doctrine by attending some spiritist sessions. In a session held at the residence of the Couple Speers, having Stainton Moses as a medium, all became convinced of the reality of the existence of communicating spirits, thus consolidating the belief in the immortality of the soul. During the active period of his mediumship, the researcher took care of the formation of societies in order to study Spiritism.\r
 
-Contribuiu para a fundação da Associação Nacional Britânica dos Espiritualistas, da Sociedade Psicológica da Grã-Bretanha, da Sociedade de Pesquisas Psíquicas, e da Aliança Espiritualista de Londres. Desde 1889, sua saúde ficou bastante prejudicada, causando sua desencarnação em 5 de setembro de 1892.
+He contributed to the founding of the British National Association of Spiritualists, the Psychological Society of Great Britain, the Society of Psychic Research, and the Spiritualist Alliance of London. Since 1889, his health has been greatly impaired, causing his disincarnation on September 5, 1892.\r
  
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/williammoses.html)
 
 
-## See Also
-TODO
 
 
 

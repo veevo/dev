@@ -1,102 +1,100 @@
 ---
 title: Yvonne A. Pereira
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+- yvonne-pereira
+- spiritism
+- mediums
+- mediumship
+- suicide
 ---
 
-Nascida em Rio das Flores (RJ), Yvonne completaria 78 anos de idade no dia 24 de dezembro de 1984, ano em que faleceu. Sua desencarnação ocorreu em março.
+Born in Rio das Flores (RJ), Yvonne would turn 78 years old on December 24, 1984, the year she died. His disincarnation occurred in March.\r
 
-Solteira, Yvonne residia com uma irmã e sobrinhos no bairro da Piedade, no Rio, após ter residido nas cidades mineiras de Lavras e Juiz de Fora, o que levou muitos confrades a pensarem que ela tivesse nascido em Minas Gerais, terra de grandes médiuns e vultos notáveis do Espiritismo, como Chico Xavier, Eurípedes Barsanulfo, Abel Gomes e tantos outros.
+Single, Yvonne lived with a sister and nephews in the Piedade neighborhood of Rio, after residing in the mining towns of Lavras and Juiz de Fora, which led many confreres to think that she had been born in Minas Gerais, land of large mediums and notable figures of the Spiritism, such as Chico Xavier, Euripipedes Barsanulfo, Abel Gomes and so many others.\r
 
-Entre os anos 60 e 80, Yvonne do Amaral Pereira teve artigos seus publicados na revista Reformador, sob o pseudônimo de Frederico Francisco, nome escolhido em homenagem ao compositor polonês F. F. Chopin, com quem ela certamente mantinha estreitos laços espirituais com origem no passado.
+Between the 1960s and 1980s, Yvonne do Amaral Pereira had articles of her published in the journal Reformador, under the pseudonym Frederico Francisco, a name chosen in honor of polish composer F. F. Chopin, with whom she certainly maintained close spiritual ties originating in the past.\r
 
-Yvonne apresentou como médium diversas aptidões mediúnicas, assunto a que ela se refere da seguinte forma:
-Tipos de mediunidade − Como médium psicógrafa trabalhei a vida inteira, desde 1926 até 1980, como receitista, assistida por entidades de grande elevação, como Bezerra de Menezes, Bittencourt Sampaio, Augusto Silva, Charles, Roberto de Canalejas e outros cujos nomes nunca soube. Fui e até hoje sou  médium conselheiro (ver O Livro dos Espíritos, classificação dos médiuns)psicoanalista e passista, assistida pelos mesmos Espíritos.
-Como médium de incorporação, não fui da classe de sonambúlicos, mas falante (ver O Livro dos Médiuns) e tive especialidade para os casos de obsessão e suicidas, e um longo trabalho tenho exercido nesse setor.
+Yvonne presented as a medium several psychic skills, a subject to which she refers as follows:\r
+Types of mediumship − As a psychic medium I worked my whole life, from 1926 to 1980, as a prescription, assisted by entities of great elevation, such as Bezerra de Menezes, Bittencourt Sampaio, Augusto Silva, Charles, Roberto de Canalejas and others whose names never knew. I was and to this day I am a medium counselor (see The Book of Spirits, classification of mediums) psychoanalyst and passistir, assisted by the same Spirits.\r
+As a medium of incorporation, I was not in the class of sonambúlicos, but talkative (see The Book of Mediums) and had specialty for cases of obsession and suicidal, and a long work I have done in this sector.\r
 
-Materializações − Fui igualmente médium de efeitos físicos (materializações) e cheguei a realizar algumas materializações à revelia da minha vontade, naturalmente, sem o desejar, durante sessões do gênero a que eu assistia, em plena assistência, isto é, sem cabina ou outra qualquer formalidade. Eram luminosas essas materializações. Mas não cheguei a me interessar por esse gênero de fenômeno, nunca o apreciei e não o cultivei, a conselho de Bezerra de Menezes e Charles, que não viam necessidade de me dedicar a tal setor da mediunidade.
+Materializations − I was also a medium of physical effects (materializations) and i came to perform some materializations by default of my will, of course, without wishing, during sessions of the kind to which I attended, in full assistance, that is, without cabin or other any formality. These materializations were luminous. But I did not get interested in this genre of phenomenon, I never appreciated it and did not cultivate it, to the advice of Bezerra de Menezes and Charles, who saw no need to dedicate myself to such a sector of mediumship.\r
 
-Curas − Durante 54 anos e meio pratiquei curas espíritas através do receituário homeopata e passes e até através de preces. Consegui, muitas vezes, curas em obsidiados com certa facilidade, coadjuvada por companheiros afins. Senti sempre um grande amor pelos Espíritos obsessores e sempre os tive como amigos. Fui correspondida por eles e nunca me prejudicaram.
+Cures − For 54 and a half years I practiced spiritist cures through homeopathic prescription and passes and even through prayers. I have often achieved healing in obsidiados with some ease, assisted by related companions. I have always felt a great love for obsessive spirits and have always had them as friends. I was requited by them and never harmed me.\r
 
-Burocracias como obstáculo à prática do bem − Conservei-me sempre espírita e médium muito independente, jamais consenti que a direção dos núcleos onde trabalhei bitolasse e burocratizasse as minhas faculdades mediúnicas.
+Bureaucracies as an obstacle to the practice of good − I always kept a spiritist and medium very independent, I never consented to the direction of the nuclei where I worked gauge and bureaucratized my psychic faculties.\r
 
-Consagrei-as aos serviços de Jesus e apenas obedecia, irrestritamente, à Igreja do Alto, e com ela exercia a caridade em qualquer dia e hora em que fosse procurada pelos sofredores. Para isso, aprofundei-me no estudo severo da doutrina, a fim de conhecer o terreno em que caminhava e conservar com razão a minha independência. No entanto, observei a rigor o critério e os horários fixados pelos poucos centros onde servi, mas jamais me submeti à burocracia mantida por alguns. Se não me permitiam atender necessitados no Centro, por isso ou por aquilo, em determinados dias, eu os atendia em qualquer outra parte, fosse em minha residência ou na deles, e assim consegui curas significativas, pois aprendi com o Evangelho e a Doutrina Espírita que não há hora nem dia para se exercer o bem.
+I consecrated them to the services of Jesus and only obeyed, unrestrictedly, to the Church of the Above, and with it exercised charity at any day and time when it was sought by the sufferers. To this end, I deepened in the severe study of doctrine, in order to know the land on which I walked and rightly preserved my independence. However, I strictly observed the criteria and schedules set by the few centres where I served, but I have never submitted to the bureaucracy maintained by some. If I was not allowed to attend needy in the Center, so or for that, on certain days, I served them anywhere else, whether in my residence or theirs, and so I obtained significant cures, for I learned from the Gospel and spiritist doctrine that there is no time or day to exercise good.\r
 
-As curas que consegui foram realizadas com simplicidade, sem formalismo nem inovações na prática espírita. Fui sempre avessa à propaganda dos meus próprios trabalhos e jamais aceitei as homenagens que me quiseram prestar.
+The cures I achieved were carried out with simplicity, without formalism or innovations in spiritist practice. I have always been averse to the propaganda of my own works and never accepted the tributes they wanted to pay me.\r
 
-Federação Espírita Brasileira − Amei e respeitei a Casa-Máter do Espiritismo no Brasil desde a minha infância, guiada por meu pai, que igualmente a amava e respeitava. A ela submeti-me mais tarde, aconselhada por meus amados Guias Espirituais Bezerra de Menezes e Charles.
-Diziam-se as duas entidades: ‘Somente à Federação Espírita Brasileira confia as tuas produções literárias mediúnicas. Se, um dia, alguma delas for rejeitada, submete-te: Guarda-a, a fim de refazê-la mais tarde, ou destrua-a. Mas, não a confies a outrem.
+Brazilian Spiritist Federation – I loved and respected the Casa-Máter of Spiritism in Brazil since my childhood, guided by my father, who also loved and respected her. I later submitted to her, counseled by my beloved Bezerra spiritual guides of Menezes and Charles.\r
+The two entities said: 'Only the Brazilian Spiritist Federation trusts your psychic literary productions. If one day, any of them are rejected, submit: Keep it, in order to remake it later, or destroy it. But don't trust her.\r
 
-Essa foi a razão pela qual nunca doei nenhum livro por mim recebido às editoras que me solicitaram publicações.
+That was why I never donated any books by me received to the publishers who asked me for publications.\r
 
-No texto que segue, Yvonne A. Pereira fala de sua infância, de seus pais e do surgimento do fenômeno mediúnico em sua vida e informa que, ao contrário do que muitos pensam, não chegou a formar-se professora:
+In the text that follows, Yvonne A. Pereira speaks of her childhood, her parents and the emergence of the psychic phenomenon in her life and informs that, contrary to what many think, did not graduate as a teacher:\r
 
-Descendência − Nasci a 24 de dezembro de 1906, após um baile na residência de minha avó materna, num sítio nos arredores do Rio de Janeiro, hoje cidade de Rio das Flores.
+Descent − I was born on December 24, 1906, after a ball at my maternal grandmother's residence, in a place on the outskirts of Rio de Janeiro, now the city of Rio das Flores.\r
 
-Por linha paterna, certamente que descendo de judeus portugueses... e também descendo de índios brasileiros da tribo Goitacás, pois que minha bisavó paterna era Índia Goitacás.
+By paternal line, certainly coming down from Portuguese Jews... and also descending from Brazilian Indians of the Goitacás tribe, because my paternal great-grandmother was Goitacás India.\r
 
-Influência dos pais − Meu pai era generoso de coração, muito desinteressado dos bens de fortuna, e por essa razão não pôde ser bom negociante. Por três vezes foi negociante e arruinou-se, visto que favorecia os fregueses em prejuízo próprio.
+Influence of parents − My father was generous from heart, very disinterested from the goods of fortune, and for that reason he could not be a good dealer. Three times he was a dealer and ruined himself, as he favored the customers in his own loss.\r
 
-Fui criada com muita modéstia, mesmo pobreza, conheci dificuldades de todo gênero, coisa que me beneficiou muito, pois bem cedo alheei-me das vaidades do mundo.
+I was raised with great modesty, even poverty, I met difficulties of all gender, which benefited me greatly, because very soon I got away from the vanity of the world.\r
 
-Aprendi assim, com meus pais, a servir o próximo mais necessitado do que nós, pois, em nossa casa, eram acolhidas com carinho e respeito, e até hospedadas, pobres criaturas destituídas de recursos e até mesmo mendigos, alguns dos quais foram por eles sustentados durante muito tempo.
-Influência religiosa − Nasci em ambiente espírita, por assim dizer, e por isso nunca tive outra crença senão a espírita. Meu pai tornou-se espírita, embora não militante, desde antes do meu nascimento.
+I learned thus, from my parents, to serve the next most needy than we, for, in our home, they were welcomed with affection and respect, and even hosted, poor creatures devoid of resources and even beggars, some of whom were sustained by them for a long time.\r
+Religious influence − I was born in a spiritist environment, so to speak, and so I never had another belief but the spiritist. My father became a spiritist, though not a militant, since before my birth.\r
 
-Recebi, portanto, de meu próprio pai as primeiras lições de doutrina espírita e prática do Espiritismo e Evangelho.
+I received, therefore, from my own father the first lessons of spiritist doctrine and practice of Spiritism and Gospel.\r
 
-Ele fazia, já naquele tempo, reuniões de estudos doutrinários com os filhos, semanalmente, o que a todos nós solidificou na Doutrina Espírita.
-Escolaridade − Ao contrário do que muitos amigos supuseram a meu respeito, não sou professora diplomada nem fiz outro qualquer curso escolar, a não ser o primário, fato que, para mim, constituiu grande provação.
+He did, already at that time, meetings of doctrinal studies with his children, weekly, which we all solidified in the Spiritist Doctrine.\r
+Schooling – Contrary to what many friends assumed about me, I am not a graduated teacher or did any other school course, except the primary, a fact that, for me, was a great ordeal.\r
 
-Surgimento da mediunidade − A mediunidade apresentou-se em minha vida ainda na infância.
+Emergence of mediumship − Mediumship presented itself in my life as a child.\r
 
-Com um mês de idade, ia sendo enterrada viva devido a um fenômeno de catalepsia, 'morte aparente', que sofri, fenômeno que no decorrer de minha existência repetiu-se muitas vezes.
+At one month of age, she was going to be buried alive due to a catalepsia phenomenon, 'apparent death', which I suffered, a phenomenon that in the course of my existence was repeated many times.\r
 
-Aos 5 anos eu já via Espíritos e com eles falava.
+At the age of 5 I already saw Spirits and with them spoke.\r
 
-Desenvolvimento mediúnico − Nunca desenvolvi a mediunidade, ela apresentou-se por si mesma, naturalmente, sem que eu me preocupasse em atraí-la, pois, em verdade, não há necessidade de se desenvolver a faculdade mediúnica, ela se apresentará sozinha, se realmente existir, e se formos dedicados às operosidades espíritas.
+Psychic development − I have never developed mediumship, it presented itself, of course, without me worrying about attracting it, because, in fact, there is no need to develop the mediumistic faculty, it will present itself, if really exist, and if we are dedicated to spiritist operosities.\r
 
-A primeira vez em que me sentei a uma mesa de sessão prática recebi uma comunicação do Espírito Roberto de Canalejas, tratando de suicídios.  
+The first time I sat at a practice session table I received a communication from the Roberto de Canalejas Spirit, dealing with suicides.  \r
 
-Decepção no primeiro encontro com a FEB
+Disappointment in the first meeting with FEB\r
 
-O primeiro encontro de Yvonne A. Pereira com a cúpula da Federação Espírita Brasileira não poderia ter sido mais decepcionante.
+Yvonne A. Pereira's first meeting with the summit of the Brazilian Spiritist Federation could not have been more disappointing.\r
 
-Eis como Yvonne se refere ao assunto:
+Here's how Yvonne refers to the subject:\r
 
-A primeira vez que visitei a FEB, levando uma obra mediúnica, esta não foi recebida, nem mesmo lida. Foi pelo ano de 1944, e quem me recebeu, no topo da escadaria principal, foi o Sr. Manuel Quintão, na época um dos seus diretores e examinadores das obras literárias a ela confiadas.
-Quando expliquei que levava dois livros ao exame da Federação (eram eles Memórias de um Suicida e Amor e Ódio), aquele senhor cortou-me a palavra, dizendo: −Não, não e não! Aqui só entram livros mediúnicos de Chico Xavier. Estou muito ocupado, tenho duzentos livros para examinar e traduzir e não disponho de tempo para mais...
+The first time I visited FEB, carrying a mediumistic work, this was not received, nor even read. It was by the year 1944, and who welcomed me, at the top of the main staircase, was Mr. Manuel Quintão, at the time one of his directors and examiners of the literary works entrusted to her.\r
+When I explained that I took two books to the Federation exam (they were Memories of a Suicidal and Love and Hate), that gentleman cut my word, saying, −No, no and no! Only psychic books by Chico Xavier come in here. I'm very busy, I have two hundred books to examine and translate and I don't have time for more...\r
 
-E voltou a conversar com o Dr. Carlos Imbassahy, com quem falava à minha chegada.
+And he talked to Dr. Carlos Imbassahy, whom he was talking to on my arrival.\r
 
-Retirei-me sem me agastar. Eu reconhecia a minha incapacidade e não insisti. Aliás, eu mesma não soubera compreender o enredo de 'Memórias de um Suicida', acreditava tratar-se de uma grande mistificação e, silenciei.
+I retired without getting worn out. I recognized my disability and I didn't insist. In fact, I had not understood the plot of 'Memories of a Suicidal', I believed it was a great mystification and, I silenced.\r
 
-Em chegando à minha residência, tomei de uma caixa de fósforos e dos originais dos dois livros e dirigi-me ao quintal, a fim de queimá-los, pois nem mesmo tinha local conveniente para guardá-los. Mas, ao riscar o fósforo e aproximar as páginas da chama, vi, de súbito, o braço e a mão de um homem, transparentes e levemente azulados, estendidos como protegendo as páginas, e uma voz assustada, dizendo-me ao ouvido: ‘ − Espera! Guarda-os!’ Meu coração reconheceu-a como sendo vibrações de Bezerra de Menezes.
+Arriving at my residence, I took a matchbox and the originals from the two books and went to the backyard in order to burn them, because I didn't even have a convenient place to keep them. But as I scratched the match and approach the pages of the flame, I saw suddenly the arm and hand of a man, transparent and slightly bluish, extended as protecting the pages, and a frightened voice, telling me in the ear: ' − Wait! Keep them!' My heart recognized her as bezerra de Menezes' vibrations.\r
 
-Certa manhã, porém, após as preces e o receituário que eu fazia em meu humilde domicílio, para os necessitados que me procuravam, apresentou-se Léon Denis dizendo: − Vamos refazer o livro sobre o suicídio. Ele está incompleto, não poderá ser publicado como está.
-Então, compreendi que o Sr. Quintão fora inspirado pelos amigos espirituais para não me receber quando o procurei na Federação.
-De fato, foi somente no ano de 1955 que Yvonne pôde concluir a obra de Camilo Castelo Branco, então corrigida doutrinariamente por Léon Denis e legar à humanidade essa preciosidade literária mediúnica intitulada Memórias de um Suicida, que acabou sendo publicada pela FEB. 
+One morning, however, after the prayers and the prescription I made in my humble home, for the needy who were looking for me, Léon Denis presented himself saying: − Let's remake the book on suicide. He's incomplete, he can't be published as he is.\r
+So I understood that Mr. Quintão had been inspired by spiritual friends not to receive me when I sought him out in the Federation.\r
+In fact, it was only in 1955 that Yvonne was able to complete the work of Camilo Castelo Branco, then corrected doctrinally by Léon Denis and bequeatheto humanity this mediumistic literary preciousness entitled Memories of a Suicidal, which was eventually published by FEB. \r
 
-A desencarnação de Yvonne 
+Yvonne's disincarnation \r
 
-Yvonne A. Pereira desencarnou em 9 de março de 1984, no Rio de Janeiro, aos 77 anos de idade. O sepultamento do seu corpo foi realizado no dia 10, às 16h30, no Cemitério de Inhaúma, com acompanhamento de familiares e confrades, dentre os quais havia muitos jornalistas e escritores espíritas e dirigentes de Centros Espíritas, doInstituto de Cultura Espírita do Brasil e da Federação Espírita Brasileira.
+Yvonne A. Pereira defaced on March 9, 1984, in Rio de Janeiro, at the age of 77. The burial of his body was carried out on the 10th, at 4:30 pm, in the Inhaúma Cemetery, with accompaniment of family members and confreres, among which there were many journalists and spiritist writers and leaders of Spiritist Centers, the Spiritist Culture Institute brazil and the Brazilian Spiritist Federation.\r
 
-Yvonne dedicou-se à mediunidade desde os 20 anos de idade, psicografando inúmeros livros e mensagens de Espíritos como Dr. Bezerra de Menezes, Bittencourt Sampaio, Augusto Elias da Silva, Charles, Roberto de Canalejas, Léon Tolstoi, Camilo Castelo Branco e outros.
-Dentre as obras que psicografou destacam-se o clássico Memórias de um Suicida, obra escrita por Camilo Castelo Branco, e o romance Amor e Ódio, de Charles, que é, juntamente com Ave, Cristo, de Emmanuel, considerado por muitos estudiosos o melhor romance espírita já produzido em nosso País.
+Yvonne has devoted herself to mediumship since the age of 20, psychographing numerous books and messages from Spirits such as Dr. Bezerra de Menezes, Bittencourt Sampaio, Augusto Elias da Silva, Charles, Roberto de Canalejas, Léon Tolstoi, Camilo Castelo Branco and others .\r
+Among the works he psychographed stand out the classic Memórias de um Suicida, a work written by Camilo Castelo Branco, and the novel Amor e Ódio, by Charles, which is, together with Emmanuel's Ave, Christ, considered by many scholars the best spiritist novel ever produced in our country.\r
 
-Foi em Lavras (MG) que ela exerceu sua primeira atividade de grande responsabilidade no meio espírita, quando, ainda muito jovem, pertenceu à diretoria do Centro Espírita de Lavras, como secretária. Ali ela dirigiu o Posto Mediúnico e foi durante vários anos a médium responsável pelo intercâmbio espiritual no setor de receituário e de curas.
+It was in Lavras (MG) that she exercised her first activity of great responsibility in the spiritist environment, when, still very young, she belonged to the board of the Spiritist Center of Lavras, as secretary. There she directed the Psychic Post and was for several years the medium responsible for spiritual exchange in the recepte and healing sector.\r
 
-Em Juiz de Fora (MG), foi secretária, bibliotecária e vice-presidente da Casa Espírita, além de colaboradora na Fundação João de Freitas. Na Casa Espírita fundou aBiblioteca James Jansen e ensinou trabalhos manuais no Instituto Profissional Eugênia Braga, gratuitamente.
-Em Barra do Piraí (RJ), participou ativamente do Grêmio Espírita de Beneficência, como médium receitista e expositora de O Livro dos Espíritos e de O Evangelho segundo o Espiritismo. Na mesma época, ensinou moral cristã às crianças no Colégio Ismael e integrou o grupo de senhoras que cuidavam da área de assistência social doGrêmio Espírita de Beneficência. 
+In Juiz de Fora (MG), she was secretary, librarian and vice president of the Spiritist House, as well as collaborator at the João de Freitas Foundation. At the Spiritist House he founded the James Jansen Library and taught manual works at the Professional Institute Eugênia Braga, free of charge.\r
+In Barra do Piraí (RJ), he actively participated in the Spiritist Guild of Beneficence, as a prescription medium and exhibitor of The Book of Spirits and The Gospel according to Spiritism. At the same time, he taught Christian morals to children at Ismael College and joined the group of ladies who took care of the social assistance area of the Spiritist Guild of Beneficência. \r
 
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/yvonne.html)
-
-
-## See Also
-TODO
-
 
 

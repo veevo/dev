@@ -1,9 +1,8 @@
 ---
 title: Carlos Torres Pastorino
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -24,7 +23,5 @@ Autor de 28 obras publicadas, incluindo-se a Sabedoria do Evangelho, da qual som
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/carlospastorini.html)
 
-## See Also
-TODO
 
 

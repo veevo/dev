@@ -1,9 +1,8 @@
 ---
 title: Eusapia Palladino
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -39,7 +38,5 @@ Great Exponents of Spiritism
 (From “Eusapia, The “Witch”, L Palhano Jr, 1995, Brazilian Edition)  
 TODO:: Add link to SGNY
 
-## See Also
-TODO
 
 

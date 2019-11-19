@@ -1,9 +1,8 @@
 ---
 title: Batuíra (Antonio G. da Silva)
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 Nasceu Batuíra aos 19 de março de 1839, em Portugal, na freguesia de Águas Santas, hoje integrada no conselho de Maia. Filho de humildes camponeses, tendo apenas completado a instrução primária, veio, com cerca de 11 anos de idade, para o Brasil, aportando na Guanabara em 3 de Janeiro de 1850.
@@ -48,7 +47,5 @@ Carregando sobre os ombros muitas responsabilidades, não sentiu, tão preso se 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/batuira.html)
 
-## See Also
-TODO
 
 

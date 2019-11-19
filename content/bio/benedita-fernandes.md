@@ -1,9 +1,8 @@
 ---
 title: Benedita Fernandes
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -24,7 +23,5 @@ Nos anos 70 e 80, Divaldo Pereira Franco psicografou várias mensagens de autori
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/beneditafernandes.html)
 
-## See Also
-TODO
 
 

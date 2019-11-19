@@ -1,9 +1,8 @@
 ---
 title: Cairbar Schutel
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -34,7 +33,5 @@ Dizem algumas comunicações mediúnicas que o Espírito Cairbar Schutel está, 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/cairbarschutel.html)
 
-## See Also
-TODO
 
 

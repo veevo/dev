@@ -1,9 +1,8 @@
 ---
 title: Emmanuel
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 Emmanuel é o nome do Espírito que tutelou a atividade mediúnica de Francisco Cândido Xavier, o maior médium psicógrafo de sempre, com mais de 400 obras psicografadas.
@@ -92,7 +91,5 @@ Allan Kardec (Excerpted From Posthumous Works) | TODO:: Add link to SGNY
 TODO: Add link
 
 
-## See Also
-TODO
 
 

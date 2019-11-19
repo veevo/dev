@@ -1,9 +1,8 @@
 ---
 title: Delphine Girardin
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -37,7 +36,5 @@ Em O Evangelho segundo o Espiritismo, o Espírito de Delphine de Girardin assina
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/delphine.html)
 
-## See Also
-TODO
 
 

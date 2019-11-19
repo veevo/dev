@@ -1,9 +1,10 @@
 ---
 title: William Crookes
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+- william-crookes
+- spiritualism
+- supernatural
 ---
 
 “I am attacked by two very opposite sects – the scientists and the know-nothings. Both laugh at me, calling me ‘the frogs’ dancing master’. Yet I know a have discovered one of the greatest forces in nature”. Galvani, discoverer of electricity
@@ -21,12 +22,7 @@ When Crookes started to report about his experiments to the scientific community
 Sir William Crookes died in London on 4 April 1919 .
 
 ## Source
-Natural and Supernatural, by Brian Inglis, Prism – Unity Press  
+[SGNY.org](//sgny.org)
+Natural and Supernatural, by Brian Inglis, Prism – Unity Press   
 Encyclopedia Britannica, the Oxford Talking Dictionary.  
-TODO:: Add link to SGNY  
-
-## See Also
-[William Crookes - O Consolador (pt-BR)](www.oconsolador.com.br/linkfixo/biografias/williancrookes.html)
-TODO
-
 

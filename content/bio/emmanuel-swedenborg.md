@@ -1,9 +1,8 @@
 ---
 title: Emmanuel Swedenborg
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -139,7 +138,5 @@ Spiritist Group of New York, Aug 2002
 Great Exponents of Spiritism  
 TODO:: Add link to SGNY
 
-## See Also
-TODO
 
 

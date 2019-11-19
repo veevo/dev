@@ -106,8 +106,6 @@ We will help you in another way: Bringing you, whenever you need, new pupils of 
 English: Spiritist Group of New York - Aug 2002 Great Mediums and Spiritual Guides - Translated by Jussara Korngold - TODO:: Add link to SGNY  
 Portuguese: [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/bezerrademenezes.html)
 
-## See Also
-TODO
 
 ## Related Profiles
 [Bittencourt Sampaio](../bittencourt-sampaio)

@@ -1,9 +1,8 @@
 ---
 title: Leopoldo Cirne
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 Leopoldo Cirne exerceu o cargo de Presidente da Federação Espírita Brasileira durante o período de 1900 a 1914. Nasceu em 31 de abril de 1870, na Paraíba do Norte, criando-se, porém, na cidade do Recife. Desencarnou no Rio de Janeiro, na manhã de 31 de julho de 1941. Desde cedo, nele se revelou acentuado pendor pelos estudos e, favorecido por viva inteligência, avançava, com real proveito, em seu curso de humanidades. Dificuldades financeiras obrigaram-no a abandonar os estudos e a ingressar no comércio, quando contava onze anos de idade. Os comerciários, atualmente, desfrutam de direitos que, aos de seu tempo, não eram concedidos. Mal despontava a aurora, até às caladas da noite, estava o empregado no serviço ativo. Só uma pequena parte do domingo, podia o comerciário respirar mais livremente e dispor da sua vontade. Quis, porém, o destino que o nosso biografado, apenas de ter a alma cheia de belos sonhos, se visse na contingência de enfrentar, ainda menino, as lutas e a rude disciplina comercial, sacrificando, assim, seus mais caros ideais de formação intelectual.
@@ -25,7 +24,5 @@ Traduziu vários livros para o nosso idioma, entre eles No Invisível e Cristian
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/leopoldocirne.html)
 
-## See Also
-TODO
 
 

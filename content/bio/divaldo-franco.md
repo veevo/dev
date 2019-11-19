@@ -1,9 +1,8 @@
 ---
 title: Divaldo Pereira Franco
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -150,7 +149,5 @@ Austrália e Havaí (Estado independente dos Estados Unidos), na Polinésia, Nov
 
 
 
-## See Also
-TODO
 
 

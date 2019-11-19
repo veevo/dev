@@ -1,9 +1,8 @@
 ---
 title: José Herculano Pires
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 José Herculano Pires nasceu na cidade de Avaré, no estado de São Paulo em 25 de setembro de 1914 e desencarnou em 09 de março de 1979. Filho do farmacêutico José Pires Correia e da pianista Bonina Amaral Simonetti Pires, fez seus primeiros estudos em Avaré, Itaí e Cerqueira César.
@@ -81,8 +80,6 @@ Professor José Herculano Pires wrote 81 books about philosophical studies and l
 ## Books
 TODO
 
-## See Also
-TODO
 
 
 

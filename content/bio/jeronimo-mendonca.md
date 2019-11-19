@@ -1,9 +1,8 @@
 ---
 title: Jerônimo Mendonça
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -25,7 +24,5 @@ Eis alguns casos da vida desse vulto do espiritismo:
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/jeronimomendonca.html)
 
-## See Also
-TODO
 
 

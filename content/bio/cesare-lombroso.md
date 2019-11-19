@@ -1,9 +1,8 @@
 ---
 title: Cesare Lombroso
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -58,7 +57,5 @@ A principal ideia de Lombroso foi parcialmente inspirada pelos estudos genético
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/cesarelombroso.html)
 
-## See Also
-TODO
 
 

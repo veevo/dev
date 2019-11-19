@@ -1,9 +1,8 @@
 ---
 title: Gabriel Delanne
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
  Virada de século, virada de milênio, ótima oportunidade para refletir e analisar as diversas contribuições feitas no século XX ao Espiritismo e as chamadas ciências do Espírito. Gabriel Delanne (juntamente a Léon Denis) marca a transição do Espiritismo do século XIX, influenciado pela presença de Kardec, para o Espiritismo do início do século XX, buscando sua afirmação científica, tentando empolgar os homens de ciência da época. Nascido em Paris, no dia 23 de março de 1857, no mesmo ano da publicação de O Livro dos Espíritos, Delanne foi (juntamente com Léon Denis) o discípulo mais próximo de Allan Kardec. 
@@ -66,7 +65,5 @@ TODO:: Add link to SGNY
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/gabrieldelanne.html)  
 
 
-## See Also
-TODO
 
 

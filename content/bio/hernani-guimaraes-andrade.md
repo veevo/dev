@@ -1,9 +1,8 @@
 ---
 title: Hernani Guimarães Andrade
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -29,7 +28,5 @@ Research, October 2003, Vol. 67.4, No. 873. Published on this website with the a
 http://www.survivalafterdeath.org/researchers/andrade.htm  
 TODO:: Add link to SGNY
 
-## See Also
-TODO
 
 

@@ -3,14 +3,22 @@ title: Amalia Domingo Soler
 description: TODO
 date: 2019-02-01 19:00:00
 topics:
-- Spiritism
+- spiritism
+- spain
 ---
 
-During the time in which the sun had not as yet set on the vast Spanish empire – that covered the Americas and extended throughout the Pacific – the city where Amalia was born, Seville, was the seaport accessible to all the territories beyond the seas. Wealth from every corner of the planet flowed into its warehouses, and from there was
-distributed to finance the countless wars that were schemed
-up by the kings.
+During the time in which the sun had not as yet set on the vast Spanish empire – 
+that covered the Americas and extended throughout the Pacific – 
+the city where Amalia was born, Seville, was the seaport accessible to all the territories beyond the seas. 
+Wealth from every corner of the planet flowed into its warehouses, and from there was
+distributed to finance the countless wars that were schemed up by the kings.
 
-It was precisely after the crumbling of that empire, mortally wounded by the Napoleonic wars and by the loss of most of its American colonies, that Amalia was born. The day was November 10, 1835. On the throne of Spain sat a young girl, Isabel II, with her mother Maria Cristina, as the regent. This reign was becoming an extremely perturbing period, noticeable by ministries of short duration, the religious crisis, epidemics and civil war – the Carlist wars – whose side effects were still to be felt in the following century.
+It was precisely after the crumbling of that empire, mortally wounded by the Napoleonic wars 
+and by the loss of most of its American colonies, that Amalia was born. 
+The day was November 10, 1835. On the throne of Spain sat a young girl, Isabel II, with her mother 
+Maria Cristina, as the regent. 
+This reign was becoming an extremely perturbing period, noticeable by ministries of short duration, 
+the religious crisis, epidemics and civil war – the Carlist wars – whose side effects were still to be felt in the following century.
 
 The direct results of so many difficulties affected the economy. Poverty characterized the life of the majority of the population.
 It was in such a problematic environment that Amalia Doming Soler spent her childhood; a childhood that could not be considered a happy one. Even before she was born, she would be facing a great loss. Her father departed on a great trip and was never to return. At the age of eight she became blind, but three months later her sight improved because of the treatment she received from a pharmacist.
@@ -43,9 +51,5 @@ It was in March, of 1875 – the celebration of Kardec’s discarnation �
 Fernandez Colavida, sent her, as a present, the collection of books of Allan Kardec. The spiritists of Alicante invited her to remain with them, under their protection so that she could dedicate herself entirely to the dissemination of Spiritism.
 
 ## Source
-TODO:: Add link to SGNY
-
-## See Also
-TODO
-
+SGNY
 

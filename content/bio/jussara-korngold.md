@@ -1,9 +1,8 @@
 ---
 title: Jussara Korngold
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 Jussara Korngold, BS, MBA, was born in the city of São Paulo, Brazil and she is the founder and president of the Spiritist Alliance for Books (SAB), a non-profit organization, whose sole aim is to promote and disseminate the Spiritist philosophy in English as codified by Allan Kardec.
@@ -19,5 +18,4 @@ TODO
 [Interview with Mrs. Korngold](https://www.sgny.org/about-sgny/)
 
 
-## See Also
-TODO
+

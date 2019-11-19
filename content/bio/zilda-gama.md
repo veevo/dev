@@ -1,42 +1,41 @@
 ---
 title: Zilda Gama
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+- mediums
+- spiritism
+- chico-xavier
 ---
 
-Zilda Gama foi uma das mais celebradas médiuns do Brasil. Nasceu em 11 de março de 1878, em Três Ilhas, em Juiz de Fora (MG)e desencarnou em 10 de janeiro de 1969, no Rio de Janeiro. Era a segunda filha dos 11 filhos de Augusto Cristina da Gama, escrivão de paz, e Elisa Emílio Klörs da Gama, professora estadual.
-Fez seus estudos com a própria mãe. Posteriormente, matriculou-se na Escola Normal de São João Del Rei, onde recebeu o diploma de professora primária. Ainda jovem, com apenas 24 anos, ficou órfã dos pais, tendo que assumir a direção da casa, cuidando de cinco irmãos menores e, posteriormente, de outros cinco sobrinhos órfãos.
+Zilda Gama was one of the most celebrated mediums in Brazil. He was born on March 11, 1878, in Três Ilhas, in Juiz de Fora (MG)and defaced on January 10, 1969, in Rio de Janeiro. She was the second daughter of Augusto Cristina da Gama's 11 children, a peace clerk, and Elisa Emílio Klörs da Gama, a state professor.\r
+You did your studies with your own mother. He later enrolled in the Normal School of São João Del Rei, where he received a diploma as a primary teacher. As a young man, at the age of 24, he became orphaned by his parents, having to take over the direction of the house, taking care of five younger brothers and, later, five other orphaned nephews.\r
 
-Foi professora e diretora de escola, sendo agraciada em concursos promovidos pela Secretaria de Educação de Minas Gerais. Ainda jovem, Zilda Gama começou a perceber a presença dos Espíritos. Recebeu mediunicamente mensagens de seu pai e de sua irmã, já desencarnados, que a aconselhavam e a consolavam nos momentos de provações difíceis pelos quais estava passando. Em 1912, recebeu interessante mensagem assinada por Allan Kardec. Após essa manifestação, o Codificador propiciou-lhe outros ensinamentos, os quais foram impressos no livro Diário dos Invisíveis, publicado em 1929.
-Em 1916, os Benfeitores informaram-lhe que passaria a psicografar uma novela, fato que a deixou bastante perplexa. O Espírito de Victor Hugo passou então a escrever por seu intermédio. Dentro de pouco tempo, a primeira obra, Na Sombra e na Luz, estava completa. Posteriormente, sob a tutela do mesmo Espírito, vieram os livros Do Calvário ao Infinito, Redenção, Dor Suprema e Almas Crucificadas, todas publicadas pela FEB. Incontestavelmente, os grandes medianeiros que têm servido de ponte entre os mundos material e espiritual, no trabalho meritório de descortinar novos horizontes para a conturbada humanidade terrena, foram missionários, podendo-se mesmo afiançar que na constelação dos médiuns que brilharam na Terra, prodigalizando aos homens novos conhecimentos e preparando o terreno para a implantação da verdade, Zilda Gama brilhou de modo fulgurante, cabendo-lhe uma posição das mais proeminentes.
+She was a teacher and school principal, being awarded in competitions promoted by the Department of Education of Minas Gerais. As a young man, Zilda Gama began to realize the presence of spirits. She received psychicmessages from her father and sister, already disembodied, who advised and comforted her in the difficult trials she was going through. In 1912, he received an interesting message signed by Allan Kardec. After this manifestation, the Encoder provided him with other teachings, which were printed in the book Diário dos Invisible, published in 1929.\r
+In 1916, the Benefactors informed her that he would become psychographing a novel, a fact that left her quite perplexed. Victor Hugo's Spirit then began to write through him. In a short time, the first work, In the Shadow and in the Light, was complete. Later, under the tutelage of the same Spirit, came the books From Calvary to Infinity, Redemption, Supreme Pain and Crucified Souls, all published by FEB. Undeniably, the great mediators who have served as a bridge between the material and spiritual worlds, in the meritorious work of unveiling new horizons for the troubled earthly humanity, were missionaries, and it can even be held that in the constellation of mediums who shone on Earth, making sure men new knowledge and preparing the ground for the implementation of truth, Zilda Gama flashed in a glowing way, fitting him to a position of the most prominent.\r
 
-O trabalho de Zilda Gama na imprensa leiga − Em 1927, participou do Congresso de Instrução, em Belo Horizonte. Em 1929, obteve o primeiro lugar em concurso promovido pela Secretaria de Educação do Estado de Minas Gerais, com um trabalho sobre Aulas - Modelo, quando foi inscrita na Escola de Aperfeiçoamento de Belo Horizonte, concluindo o curso em 1931, no mesmo ano em que no Brasil houve intenso movimento em prol dos direitos femininos. Zilda Gama foi autora da tese sobre o voto feminino, no Congresso, a qual foi aprovada oficialmente.
-Escreveu contos e poesias para vários jornais, destacando-se o Jornal do Brasil, a Gazeta de Notícias e a Revista da Semana, todos da antiga capital federal.
+Zilda Gama's work in the lay press − In 1927, he participated in the Congress of Instruction in Belo Horizonte. In 1929, he obtained the first place in a competition promoted by the Department of Education of the State of Minas Gerais, with a work on Classes - Model, when he was enrolled in the School of Improvement of Belo Horizonte, completing the course in 1931, in the same year that in the Brazil there was intense movement for women's rights. Zilda Gama was the author of the thesis on the female vote in Congress, which was officially approved.\r
+He wrote short stories and poetry for several newspapers, highlighting the Jornal do Brasil, the News Gazette and Revista da Semana, all from the former federal capital.\r
 
-Exerceu o jornalismo profissional em jornais de Juiz de Fora e Ouro Preto, São Paulo e Rio de Janeiro.
+He practiced professional journalism in newspapers of Juiz de Fora and Ouro Preto, São Paulo and Rio de Janeiro.\r
 
-Os livros mediúnicos psicografados por Zilda Gama fizeram época na literatura espírita, além de terem o mérito de suavizar muitas dores e estancar muitas lágrimas. Foi a primeira, no Brasil, a receber tão vasta literatura do mundo espiritual.
+The psychic books psychographed by Zilda Gama made time in spiritist literature, besides having the merit of softening many pains and snapping many tears. It was the first in Brazil to receive such vast literature from the spirit world.\r
 
-Outras publicações produzidas pela sua mediunidade: Solar de Apoleo, Na Seara Bendita, Na Cruzada do Mestre e Elegias Douradas.
-Didata por excelência, organizou os seguintes livros: O Livro das Crianças, Os Garrotilhos, O Manual das Professoras e O Pensamento.
-A mensagem que Kardec lhe ditou em 1912 − Não obstante as grandes lutas morais que teve que sustentar, Zilda Gama se constituiu na orientadora de muitas criaturas.
+Other publications produced by its mediumship: Solar de Apoleo, Na Seara Bendita, Na Cruzada do Mestre e Elegias Douradas.\r
+Didata par excellence organized the following books: The Children's Book, The Garrotilhos, The Manual of Teachers and Thought.\r
+The message Kardec gave him in 1912 − Despite the great moral struggles he had to sustain, Zilda Gama was the advisor to many creatures.\r
 
-Em 1959, após sofrer derrame cerebral, viveu numa cadeira de rodas, assistida pelo sobrinho Mário Ângelo de Pinho, que lhe fazia companhia. Zilda Gama, alma de escol, dedicou toda a sua longa existência ao propósito de difundir no Brasil a consoladora Doutrina dos Espíritos e, tendo vivido até quase os 91 anos, tornou-se paradigma para todos os que encaram a mediunidade como sacerdócio lídimo e autêntico.
+In 1959, after suffering stroke, he lived in a wheelchair, assisted by his nephew Mário Ângelo de Pinho, who kept him company. Zilda Gama, a soul of escol, dedicated all his long existence to the purpose of spreading in Brazil the comforting Doctrine of Spirits and, having lived until almost 91 years, became a paradigm for all who view mediumship as a lyrical and authentic priesthood.\r
 
-Algo que nos chama a atenção na obra de Zilda Gama é o fato de haver psicografado mensagem de Kardec em 1912, quando Chico contava 2 anos de idade. 
-No livro Pioneiros de uma Nova Era, de Antônio de Souza Lucena, o fato é mencionado pelo autor, que diz que em 1912, na cidade de Além Paraíba (MG), Zilda Gama, que na época não tinha qualquer conhecimento da Doutrina Espírita, recebeu mensagem assinada por Allan Kardec, com o seguinte teor:
-Sobre a tua fronte está suspenso um raio luminoso que te guiará através de todas as dificuldades, de todos os obstáculos, e será a tua glória ou tua condenação, conforme o desempenho que deres aos teus encargos psíquicos. Cinge-te de coragem, sem desfalecimento e sem deslizes, em todos os teus deveres sociais e divinos e conseguirás ser triunfante.
+Something that draws our attention to Zilda Gama's work is the fact that Kardec's psychographed message was psychographed in 1912, when Chico was 2 years old. \r
+In the book Pioneers of a New Age, by Antônio de Souza Lucena, the fact is mentioned by the author, who says that in 1912, in the city of Beyond Paraíba (MG), Zilda Gama, who at the time had no knowledge of the Spiritist Doctrine, received a message signed by Allan Kardec , with the following content:\r
+Upon your forehead is suspended a luminous ray that will guide you through all the difficulties, of all obstacles, and it will be your glory or your condemnation, according to the performance you give to your psychic burden. Girde yourself with courage, without fainting and without slippage, in all your social and divine duties and you will be able to be triumphant.\r
 
-Como se sabe, em 1912, o médium Francisco Cândido Xavier estava encarnado e vivia em Pedro Leopoldo (MG), onde nasceu em 2 de abril de 1910. O episódio é ilustrativo e deveria ser meditado por todos os que vêm propalando a tese de que Chico seria a reencarnação do Codificador do Espiritismo.
+As we know, in 1912, medium Francisco Cândido Xavier was incarnated and lived in Pedro Leopoldo (MG), where he was born on April 2, 1910. The episode is illustrative and should be meditated by all who have been proposing the thesis that Chico would be the reincarnation of the Spiritism Encoder.\r
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/zildagama.html)
 
 
-## See Also
-TODO
 
 
 

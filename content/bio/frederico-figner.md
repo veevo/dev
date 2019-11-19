@@ -1,9 +1,8 @@
 ---
 title: Frederico Figner
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -53,7 +52,5 @@ A Federação Espírita Brasileira, após a morte de Figner, publicou-lhe alguns
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/fredericofigner.html)
 
-## See Also
-TODO
 
 

@@ -1,9 +1,8 @@
 ---
 title: Maria de Nazaré
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 Junto da cruz, o vulto agoniado de Maria produzia dolorosa e indelével impressão.
@@ -147,7 +146,5 @@ Esta não é uma biografia da vida de Maria, mas um relato de Humberto de Campos
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/mariadenazare.html)
 
-## See Also
-TODO
 
 

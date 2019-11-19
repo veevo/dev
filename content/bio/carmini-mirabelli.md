@@ -1,9 +1,8 @@
 ---
 title: Carmini Mirabelli
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -31,7 +30,5 @@ Carmini Mirabelli desencarnou na capital de São Paulo, em 30 de abril de 1951.
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/carmini.html)
 
-## See Also
-TODO
 
 

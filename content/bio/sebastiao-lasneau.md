@@ -1,41 +1,38 @@
 ---
 title: Sebastião Lasneau
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+- espiritismo
+- brasil
+- minas-gerais
+- chico-xaver
 ---
 
-Sebastião Lasneau nasceu em Barra do Piraí,  pequena cidade do Vale do Paraíba, no Estado do Rio de Janeiro, no dia 12 de novembro, de 1900, como filho de Evilásio Antônio Lasneau e Etelvina Santos Lasneau. Desencarnou na mesma cidade em 30 de março de 1969.
+Sebastião Lasneau was born in Barra do Piraí, a small town in the Paraíba Valley, in the State of Rio de Janeiro, on November 12, 1900, as the son of Evilásio Antônio Lasneau and Etelvina Santos Lasneau. He defaced in the same city on March 30, 1969.\r
 
-Menino pobre, o pequeno Sebastião começou a trabalhar muito cedo em atividades humildes em Paracambi e Mendes, cidades do interior  fluminense, até ser admitido como funcionário da  Estrada de Ferro Central do Brasil, onde permaneceu por vinte anos, aposentando-se por invalidez. Nessa ocasião, exercia as funções de cabineiro na Estação de  Sant´Ana da Barra.
+Poor boy, little Sebastian began working very early in humble activities in Paracambi and Mendes, cities in the interior of Rio de Janeiro, until he was admitted as an employee of the Central Railway of Brazil, where he remained for twenty years, retiring disability. On that occasion, he worked as a cabin at Sant ́Ana da Barra Station.\r
 
-Depois da aposentadoria e já espírita convicto, perdeu completamente a visão, consequência de enfermidade ocular (glaucoma). Diabético, sofria também do fígado e experimentava dores lancinantes causadas por uma persistente polinevrite.  Recorreu, sem sucesso, à ajuda da Medicina. Apesar do sofrimento físico, mantinha-se em consciente e resignada aceitação, consolado pela lógica da Doutrina Espírita, que ensina não existir efeito sem causa.
+After retirement and already convinced spiritist, he completely lost his vision, a consequence of eye disease (glaucoma). Diabetic, she also suffered from the liver and experienced lancinant pain caused by persistent polynevitis.  He unsuccessfully resorted to the help of medicine. Despite physical suffering, he remained conscious and resigned acceptance, comforted by the logic of the Spiritist Doctrine, which teaches that there is no effect without cause.\r
 
-Sempre orava, rogando forças para resistir à dura prova a que era submetido, sem esquecer as ações do bem.  Foi quando confrades de Belo Horizonte aconselharam-no a ir à cidade de Caratinga, Minas Gerais. Lá chegando, foi conduzido à Fazenda Eureka, no município de  Itaomi, onde funcionava o Grupo da Fraternidade Joseph Gleber, fundado por Jerry Labbale e companheiros da capital mineira, entre os quais Fábio Machado, Jair Soares, Jarbas Franco de Paula, Lídio Henriques e Ênio Wendling. Em suas  amplas dependências, inauguradas em janeiro de 1952, realizavam-se notáveis reuniões com o médium Antônio Sales, através de cuja  faculdade ectoplasmática,  materializavam-se Espíritos que socorriam portadores de enfermidades várias. Lasneau, submetido à ação desses Espíritos generosos, pôde, finalmente, ser aliviado de suas dores. Não recuperou a visão, mas ficou livre das dores incômodas que sentia no globo ocular.
+He always prayed, pleading for strength to resist the tough test to which he was subjected, without forgetting the actions of good.  That's when confreres of Belo Horizonte advised him to go to the city of Caratinga, Minas Gerais. There arriving, he was led to the Eureka Farm, in the municipality of Itaomi, where the Joseph Gleber Fraternity Group operated, founded by Jerry Labbale and companions of the capital of Minas Gerais, including Fábio Machado, Jair Soares, Jarbas Franco de Paula, Lídio Henriques and Ênio Wendling. In its wide-ranging facilities, inaugurated in January 1952, there were remarkable meetings with medium Antônio Sales, through whose ectoplasmic faculty, Spirits were materialized that carried out carriers of various diseases. Lasneau, subjected to the action of these generous spirits, could finally be relieved of their pain. He did not regain his vision, but he was free from the uncomfortable pains he felt in the eyeball.\r
 
-Sebastião Lasneau era poeta, repentista e trocadilhista; fazia versos de improviso e qualquer motivo lhe sugeria um tema. Além de poeta, foi excelente expositor de temas doutrinários do Espiritismo, tendo realizado apreciável  tarefa no campo da divulgação doutrinária. Proferiu grande número de palestras em instituições espíritas do Estado do Rio de Janeiro e em outras unidades da Federação, notadamente Minas Gerais.  Aproveitava sempre o trajeto de suas viagens para elaborar quadrinhas primorosas, com temas evangélicos e doutrinários, a fim de brindar o público ouvinte.
+Sebastião Lasneau was a poet, repentist and trocadilhista; made impromptu verses and any reason suggested a theme to him. Besides being a poet, he was an excellent exhibitor of doctrinal themes of Spiritism, having performed an appreciable task in the field of doctrinal dissemination. He gave a large number of lectures in spiritist institutions in the State of Rio de Janeiro and other units of the Federation, notably Minas Gerais.  He always took advantage of the journey of his travels to elaborate exquisite comics, with gospel and doctrinal themes, in order to toast the listening audience.\r
 
-Visitava com bastante frequência seu amigo Francisco Cândido Xavier, participando de reuniões em Pedro Leopoldo e Uberaba. Quando em Belo Horizonte, incentivava o Movimento Espírita Juvenil, frequentando  os eventos das poucas mocidades espíritas, então existentes, entre elas, a Maria João de Deus, Nina  Arueira e O Precursor. Compôs versos e melodia para os hinos das duas primeiras agremiações acima citadas, e apenas os versos para o hino da última, versos musicados por  Maria Philomena Aluotto Berutto, que ocuparia mais tarde a presidência da Federativa Mineira.
+He visited his friend Francisco Cândido Xavier very often, attending meetings in Pedro Leopoldo and Uberaba. When in Belo Horizonte, he encouraged the Youth Spiritist Movement, attending the events of the few Spiritist youthcities, then existing, among them, to Maria João de Deus, Nina Arueira and O Precursor. He composed verses and melody for the hymns of the first two associations mentioned above, and only the verses for the anthem of the latter, verses musicalized by Maria Philomena Aluotto Berutto, who would later occupy the presidency of the Federative Mineira.\r
 
-Casado, em primeiras núpcias, com  Augusta Dias Lasneau, com ela conviveu durante sete anos, enviuvando-se, inesperadamente, com dois filhos em tenra idade. Algum tempo depois,  desposou Olívia Lasneau, que se tornou mãe carinhosa para seus filhos e esposa dedicada durante trinta e seis anos.
+Married, in first nuptials, to Augusta Dias Lasneau, with her lived for seven years, unexpectedly enviudwith two children at an early age. Some time later, olivia Lasneau, who became a caring mother to her children and devoted wife for thirty-six years, took off.\r
 
-Nenhum de seus biógrafos registra quando  se tornou  adepto do Espiritismo. É inegável, porém, ter recebido influência de seu concunhado, o também poeta Alfredo Nora, espírita convicto, servidor, como ele, da Central do Brasil, e desencarnado em 1948. A ele, dedicou Nora, através de Chico Xavier, dois sonetos em versos heptassílabos, com o título de Carta Ligeira, precedidos desta quadra explicativa:  Meu Lasneau, não é bilhete, / Não é ofício nem ata, / É o coração que desata / Meus pesares num lembrete. Tal poema foi psicografado em 2 de julho de 1960, em Uberaba, estando presente Lasneau. Posteriormente, foi incluído no livro Parnaso de Além Túmulo. O certo é que, em 1944, ingressa ele no quadro social do Grêmio Espírita de Beneficência, de Barra do Piraí, instituição a que dedicou a maior parte de sua vida.
+None of his biographers register when he became adept at Spiritism. It is undeniable, however, to have received influence from his concunhado, the also poet Alfredo Nora, convinced spiritist, servant, like him, from Central Brazil, and disembodied in 1948. To him, dedicated Nora, through Chico Xavier, two sonnets in heptassyllable verses, with the title of Light Letter, preceded by this explanatory court: My Lasneau, is no ticket, / It is neither craft nor minutes, / It is the heart that unata / My sorrows in a reminder. This poem was psychographed on July 2, 1960, in Uberaba, and Lasneau was present. It was later included in the book Parnaso from Beyond Tomb. What is certain is that, in 1944, he joined the social framework of the Spiritist Guild of Beneficência, barra do Piraí, an institution to which he dedicated most of his life.\r
 
-Publicou, com enorme dificuldade, alguns  livros de sua autoria, entre os quais:  Pôr do Sol, Versos para Eva Musa, Versos para a Mocidade, Poemas de Barra do Piraí, Cancioneiros da  Fraternidade, Almas que Cantam.
+He published, with enormous difficulty, some books of his own, among which: Sunset, Verses for Eva Musa, Verses for Youth, Poems of Barra do Piraí, Cancioneiros da Fraternity, Almas que Sing.\r
 
-Lasneau dedicou-se, também, ao jornalismo, sendo redator de vários jornais, inclusive do Jornal do povo, de Barra do Piraí. Escrevia crônicas e poesias, conforme se pode ver nas edições do jornal, referentes ao ano de 1941.  Cidadão honorário da cidade de Guarani, MG, após sua desencarnação, como homenagem póstuma foi eleito Patrono do Círculo dos Missivistas Amigos,  movimento fraterno que promove correspondência entre pessoas livres e  pessoas encarceradas, em todo o Brasil.
+Lasneau also dedicated himself to journalism, being a writer for several newspapers, including the People's Journal, barra do Piraí. He wrote chronicles and poetry, as can be seen in the editions of the newspaper, referring to the year 1941.  Honorary citizen of the city of Guarani, MG, after his disincarnation, as posthumous tribute was elected Patron of the Circle of Friends Missivistas, fraternal movement that promotes correspondence between free people and incarcerated people, throughout Brazil.\r
 
-Lasneau foi, de fato, um dos grandes vultos  espíritas brasileiros, cuja obra teve por cenário numerosas  cidades brasileiras,  onde se fazia presente, através de participação efetiva e constante, tornando-se, por isso, uma personalidade querida e requisitada por todos.
+Lasneau was, in fact, one of the great figures of Brazilian spiritists, whose work had by setting numerous Brazilian cities, where it was present, through effective and constant participation, thus becoming a beloved personality and requested by All.\r
 
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/vianadecarvalho.html)  
 (Extraído de “O Espírita Mineiro”, trabalho de  Antônio de Souza Lucena e Paulo Alves Godoy, com depoimentos de Arnaldo Rocha e Cléber Varandas)
-
-
-## See Also
-TODO
-
 
 

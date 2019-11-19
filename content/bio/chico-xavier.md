@@ -1,9 +1,8 @@
 ---
 title: Francisco Candido Xavier (Chico Xavier)
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -261,7 +260,5 @@ English: TODO:: Add link to SGNY
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/chicoxavier.html)
 
 
-## See Also
-TODO
 
 

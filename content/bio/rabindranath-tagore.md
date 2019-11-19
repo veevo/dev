@@ -1,18 +1,16 @@
 ---
 title: Rabindranath Tagore
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Rabindranath Tagore, also known by his pen name Bhanu Singha Thakur, and also known by his sobriquets Gurudev, Kabiguru, and 
+Biswakabi, was a polymath, poet, musician, and artist from the Indian subcontinent. 
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+He reshaped Bengali literature and music, as well as Indian art with Contextual Modernism in the late 19th and early 20th centuries.
+
 
 ## Source
-TODO: Add Source
+[Wikipedia](https://en.wikipedia.org/wiki/Rabindranath_Tagore)
 
-## See Also
-
-TODO

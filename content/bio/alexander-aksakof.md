@@ -1,9 +1,10 @@
 ---
 title: Alexander N. Aksakof
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- Russia
+- russia
+- swedenborg
+- spiritualism
 ---
 
 Imperial Councilor to the Czar, the pioneer spiritualist of Russia, a Swedenborg enthusiast whose introduction to modern spiritualism was effected by Andrew Jackson Davis’s “Nature’s Divine Revelations” in 1855. In order to form a correct judgment of both physiological and psychological phenomena he studied medicine at the University of Moscow for two years. He translated Swedenborg’s “Heaven and Hell”, Count Szapary’s “Magnetic Healing” and the principal works of Prof. Hare, Crookes, Edmonds, Owen and the “Report of the Dialectical Society”. As, however, works on spiritualism in
@@ -16,9 +17,17 @@ table movements and raps by this agency. To this report Aksakof returned, under 
 Thereupon, in 1881, an organ with an unmeaning title, “Rebus”, was founded and largely subsidised, after funds went low, by Aksakof to popularise the teachings of Spiritualism.
 
 He experimented with Slade and Williams when they visited St. Petersburg and he madearrangements for Mrs. Kate Fox-Jencken when the Czar desired to consult her for thesafe conduct of the coronation ceremonies. Eglinton, Mme. d’Esperance and Eusapia Paladino were the next mediums who engaged his attention. His wife herself was mediumistic and became thereby a help in his work. In a “Case of Partial Dematerialisation” (1896) he recorded testimonies of an astounding occurrence with Mme. d’Esperance. His most important book, “Animismus und Spiritismus”, Leipzig, 1890 was published in answer to Dr. Edward von Hartmann’s “Spiritualism”. Myers, in his review in Proceedings, Vol. VI. p.665, states: “I may say at once that on the data as
-assumed I think that Mr. Aksakof has the better of his opponent.” In the book Aksakof says that for the comprehension of mediumistic phenomena we have not one hypothesis only, but three hypotheses: 1. Personism (or change of personality) may stand for those unconscious psychical phenomena which are produced within the limits of the medium’s own body, those intra-inediumistic phenomena whose distinguishing characteristic is the
-assumption of a personality changing to that of the medium. 2. Under the name animism we include unconscious psychical phenomena which show themselves outside the limits of the medium’s body. Extra-mediumistic operation of objects without contact and finally materialisation. We have here the highest manifestation of the psychic duplication; the elements of personality overstep the limits of the body . . . up to the point of complete
-externalisation and objectification. 3. Under the name spiritism we include phenomena resembling both personalisation and animism but which we much ascribe to some extra-mediumistic and extra-terrene cause. They differ from the phenomena of personalisation and animism in their intellectual content which affords evidence of an independent personality.
+assumed I think that Mr. Aksakof has the better of his opponent.” 
+
+In the book Aksakof says that for the comprehension of mediumistic phenomena we have not one hypothesis only, but three hypotheses: 
+
+1. Personism (or change of personality) may stand for those unconscious psychical phenomena which are produced within the limits of the medium’s own body, those intra-inediumistic phenomena whose distinguishing characteristic is the
+assumption of a personality changing to that of the medium. 
+
+2. Under the name animism we include unconscious psychical phenomena which show themselves outside the limits of the medium’s body. Extra-mediumistic operation of objects without contact and finally materialisation. We have here the highest manifestation of the psychic duplication; the elements of personality overstep the limits of the body . . . up to the point of complete
+externalisation and objectification. 
+
+3. Under the name spiritism we include phenomena resembling both personalisation and animism but which we much ascribe to some extra-mediumistic and extra-terrene cause. They differ from the phenomena of personalisation and animism in their intellectual content which affords evidence of an independent personality.
 “Spiritualism and Science” was another of Aksakof’s important works. His literary output was considerable. One of his last translations was Col. Rochas’ “Exteriorisation of Motricity”. Under dreadful physical handicaps he kept on working to the last. His right hand became useless, his eye almost sightless. A final attack of influenza on January 17th, 1903, carried him away.
 
 

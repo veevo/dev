@@ -1,55 +1,53 @@
 ---
 title: Victor Hugo
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+- victor-hugo
+- mediumship
 ---
 
-Victor Hugo muito se agigantou pela inteligência; poeta genial, escritor primoroso e fecundo. Sustentou, sem esmorecimentos, tremendas lutas em prol da liberdade, enfrentando a ira dos reacionários de todos os tempos, desses que não vacilam em sacrificar as coisas mais sagradas e nobres para que seus interesses fiquem incólumes.
+Victor Hugo was very aggravated by intelligence; genius poet, exquisite and fruitful writer. He sustained, without fading, tremendous struggles for freedom, facing the wrath of reactionaries of all time, of those who do not hesitate to sacrifice the most sacred and noble things so that their interests are unscathed.\r
 
-Por ter sido grande demais, deixou de ser cidadão francês para se tornar cidadão do mundo, porque, como foi dito, sua obra literária, suas palavras, no campo político, suas idéias e pensamentos influíram e beneficiaram os povos do mundo inteiro! Ele próprio sentia, não obstante seu entranhado amor ao país de seu nascimento, que pertencia a todos os povos que sofriam e se viam cerceados da liberdade de pensa. Desse modo, a ele cabia o dever de trabalhar, lutar infatigavelmente para que a luz da verdade espiritual reinasse nas almas de todos os seus irmãos, fossem eles desta ou daquela pátria. E para que essa luz pudesse brilhar, era condição sine qua non que aos homens fosse adjudicado o sagrado direito de liberdade, liberdade de sentir Deus e  sua Justiça, dentro das possibilidades intelectuais de cada um. Essa liberdade, enfim, que é uma condição essencial do homem.
+Because he was too big, he ceased to be a French citizen to become a citizen of the world, because, as it was said, his literary work, his words, in the political field, his ideas and thoughts influenced and benefited the peoples of the whole world! He himself felt, despite his ingrained love for the country of his birth, which belonged to all the peoples who suffered and found himself bristling from freedom of thought. Thus, it was up to him to work, to fight infatigably so that the light of spiritual truth would reign in the souls of all his brothers and sisters, be they of this or that homeland. And in order for this light to shine, it was a sine qua non condition that men be awarded the sacred right of freedom, freedom to feel God and his Justice, within the intellectual possibilities of each one. This freedom, in short, which is an essential condition of man.\r
 
-Eis porque, em pleno Congresso da Paz, em Lausanne, afirmou: Sou cidadão de todo homem que pensa!
+This is why, in the middle of the Peace Congress in Lausanne, he said: I am a citizen of every man who thinks!\r
 
-Não é o intento, sem dúvida, descrever a vida e a obra de Victor Hugo, vida por demais extensa, pois que em tudo ele foi exímio, seja como poeta, pensador, dramaturgo, romancista, historiador, panfletista, orador, jornalista e espírita.
+It is not the intention, without a doubt, to describe the life and work of Victor Hugo, life for too extensive, because in everything he was special, whether as a poet, thinker, playwright, novelist, historian, panfletista, speaker, journalist and spiritist.\r
 
-Mostrou-se sempre inimigo intransigente da pena de morte: A cabeça do homem do povo está cheia de princípios úteis... cultivai, decifrai, regai, esclarecei, moralizai, utilizai essa cabeça e não tereis necessidade de cortá-la!
+He has always shown himself an uncompromising enemy of the death penalty: The man's head of the people is full of useful principles... cultivate, decipher, regai, enlighten, moralize, use that head and you will not have the need to cut it!\r
 
-É o propósito, porém, descrever sobre a personalidade de Victor Hugo, focalizá-lo como espírita, mesmo que de maneira sucinta.
+It is the purpose, however, to describe about the personality of Victor Hugo, to focus on him as a spiritist, even in a succinct way.\r
 
-Em 1852, em face de suas atitudes políticas, viu-se ele na contingência de refugiar-se em Jersey, na vivenda Marine-Terrace. Logo após chamou para junto de si a mulher e os filhos, aos quais se reuniram alguns amigos, e entre eles Vacquerie e Julieta Drouet.
+In 1852, in the face of his political attitudes, he found himself in the contingency of taking refuge in Jersey, in the Marine-Terrace villa. Soon after he called to himself the wife and children, to whom some friends gathered, and among them Vacquerie and Juliet Drouet.\r
 
-Em setembro de 1853, chegava a Jersey, de visita, a Sra. De Girardin, levando a grande novidade: o Espiritismo.
+In September 1853, Mrs. De Girardin arrived in Jersey, leading the big news: Spiritism.\r
 
-Neste ponto, segue a transcrição, que enlaça o assunto referido, narrado por Raymond Escholier em seu livro intitulado A Vida Gloriosa de Victor Hugo:
+At this point, follows the transcription, which enlates the subject referred to, narrated by Raymond Escholier in his book entitled The Glorious Life of Victor Hugo:\r
 
-As suas crenças religiosas, que a certas almas frívolas parecem tão simples, tão restritas, por vezes tão extravagantes, são a verdadeira herança transmitida pelos seus ancestrais rústicos.
-A bem dizer, essas idéias são mais velhas do que o Cristianismo: fé na sobrevivência e na presença permanente dos mortos, no poder do sortilégio e da magia. Hugo não se limita a introduzir na poesia francesa as expressões do povo, a linguagem popular, tão cheia de imagens, tão colorida, tão expressiva; deu igualmente o direito de cidadania às crenças do homem primitivo, que sempre existiu no velho solo da França.
+His religious beliefs, which to certain frivolous souls seem so simple, so restricted, sometimes so extravagant, are the true heritage transmitted by their rustic ancestors.\r
+To say, these ideas are older than Christianity: faith in the survival and permanent presence of the dead, in the power of sortilegio and magic. Hugo is not limited to introducing into French poetry the expressions of the people, the popular language, so full of images, so colorful, so expressive; he also gave the right of citizenship to the beliefs of primitive man, who always existed in the old soil of France.\r
 
-Para encontrar aquela que ficou em França, aquela a quem Victor Hugo cantou a mãe dolorosa, consultou ele à sua velha amiga, a Sra. Girardin; interrogando, por intermédio das mesas falantes, o túmulo coberto de ervas e de sombras. Com a Sra. Hugo, com Carlos, maravilhoso médium, com Augusto Vacquerie e o General Le Flô, Victor crê penetrar o segredo das forças obscuras.
+To find the one in France, the one victor hugo sang his painful mother to, consulted him with his old friend, Mrs. Girardin; interrogating, through the talking tables, the tomb covered with herbs and shadows. With Mrs. Hugo, with Carlos, a wonderful medium, with Augusto Vacquerie and General Le Flô, Victor believes penetrating the secret of obscure forces.\r
 
-O primeiro Espírito que se apresentou em Marine-Terrace foi o de Leopoldina.
-− Onde estás? − pergunta o poeta.  
-− Luz.  
-− Que é preciso fazer para ir ter contigo?  
-− Amar.  
-Então na pequenina casa, tão triste, todos choraram, todos acreditaram.  
+The first Spirit that presented itself at Marine-Terrace was leopoldina's.\r
+− Where are you? − asks the poet.  \r
+Light.  \r
+− What do i have to do to meet you?  \r
+Love.  \r
+So in the little house, so sad, everyone cried, everyone believed it.  \r
 
-Nas revelações das mesas, Hugo vê a deslumbrante confirmação das suas idéias religiosas. E é nessa convicção que escreve, a 19 de setembro de 1854:
+In the revelations of the tables, Hugo sees the dazzling confirmation of his religious ideas. And it is in this conviction that he writes, on September 19, 1854:\r
 
-> − Tenho uma pergunta grave a fazer. Os seres, que povoam o Invisível e que lêem os nossos pensamentos, sabem que há vinte e cinco anos me ocupo dos assuntos que a mesa suscita e aprofunda. Mais duma vez a mesa me tem falado desse trabalho; a Sombra do Sepulcro incitou-me a terminá-lo. Nesse trabalho, evidentemente conhecido no além, nesse trabalho de vinte e cinco anos, encontrara, apenas pela meditação, muitos resultados que compõem hoje a revelação da mesa; vira distintamente confirmados alguns desses resultados sublimes; entrevira outros que viviam no meu espírito num estado de embrião confuso. Os seres misteriosos e grandes que me escutam, vêem, quando querem, no meu pensamento, como se vê numa gruta com um archote; conhecem a minha consciência e sabem quanto tudo o que eu acabo de dizer é rigorosamente exato, que fiquei por momentos contrariado, no meu miserável amor-próprio humano, pela revelação atual, que veio lançar à volta da minha lampadazinha de mineiro o clarão dum raio ou dum meteoro. Hoje, tudo o que eu vira por inteiro é confirmado pela mesa: e as meias revelações a mesa as completa. Neste estado de alma escrevi: 'O ser que se chama Sombra do Sepulcro aconselhou-me a terminar a obra começada; o ser que se chama Idéia foi mais longe ainda e 'ordenou-me' que fizesse versos atraindo a piedade para os seres cativos e punidos, que compõem o que parece aos não videntes a Natureza morta; obedeci. Fiz versos que Idéia me impôs'.
+> − I have a serious question to ask. Beings, who populate the Invisible and who read our thoughts, know that for twenty-five years I have taken care of the subjects that the table raises and deepens. More than once the table has told me about this work; the Shadow of the Tomb urged me to finish it. In this work, evidently known in the beyond, in this twenty-five-year work, he had found, only by meditation, many results that make up today the revelation of the table; some of these sublime results becomes distinctly confirmed; intervira others who lived in my spirit in a confused state of embryo. The mysterious and great beings who listen to me see, when they want, in my thought, how you see it in a cave with an archote; know my conscience and know how much everything I have just said is rigorously accurate, that I was for moments contradicted, in my wretched human self-esteem, by the current revelation, which came to cast around my little lamp of miner the flash of a ray or a meteor. Today, everything I turn around is confirmed by the table: and the half revelations the table completes them. In this state of soul I wrote: 'The being called Shadow of the Tomb counseled me to finish the work begun; the being called Idea went further and 'ordered me' to make verses attracting piety to captive and punished beings, who make up what seems to the non-seers the dead Nature; Obeyed. I did verses that Ideia imposed on me.'\r
 
-Em 22 de maio, de 1885, desencarnou o Espírito de Victor Hugo. Eis as suas últimas vontades consignadas em testamento confiado a Augusto Vacquerie:
+On May 22, 1885, he defaced the Spirit of Victor Hugo. Here are his last wills entrusted in a will entrusted to Augusto Vacquerie:\r
 
-> Deixo 50.000 francos aos pobres. Desejo que me levem ao cemitério na carreta dos pobres. Recuso as orações de todas as igrejas. Creio em Deus.
+> I leave 50, 000 francs to the poor. I wish you'd take me to the cemetery on the poor man's trailer. I refuse the prayers of all the churches. I believe in God.\r
 
 ## Source
 [Victor Hugo - O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/vitorhugo.html)
 
 
-## See Also
-TODO
 
 
 

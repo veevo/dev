@@ -1,56 +1,54 @@
 ---
 title: Viana de Carvalho
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+- spiritism
+- parana
+- sao-paulo
+- mato-grosso
+- rio-de-janeiro
 ---
 
-Nascido na cidade de Icó, Estado do Ceará, em 10 de dezembro de 1874, era filho do professor Tomás Antônio de Carvalho e de D. Josefa Viana de Carvalho. Desencarnou a bordo do navio Íris, sendo o seu corpo sepultado na Bahia, aparentemente em Salvador. Era o dia 13 de outubro de 1926.
+Born in the city of Icó, State of Ceará, on December 10, 1874, he was the son of Professor Tomás Antônio de Carvalho and D. Josefa Viana de Carvalho. He defaced aboard the iris ship, his body being buried in Bahia, apparently in Salvador. It was October 13, 1926.\r
 
-Numa época quando a divulgação da Doutrina Espírita ensaiava os seus primeiros passos e encontrava pela frente a mais obstinada oposição, o Major Dr. Manuel Viana de Carvalho, com pulso firme e animado do mais vivo idealismo, desbravava o terreno para nele lançar a semente generosa da propaganda.
+At a time when the dissemination of the Spiritist Doctrine rehearsed its first steps and found ahead the most obstinate opposition, Major Dr. Manuel Viana de Carvalho, with a firm and lively pulse of the most vivid idealism, explored the ground to launch the generous seed of propaganda.\r
 
-Como espírita foi dos mais entusiasmados. 0 seu nome representou verdadeira bandeira no campo da disseminação do Espiritismo. 0 que ele fez, em vários anos de luta e de atividades intensas, é algo que ainda não se pode colocar em dados estatísticos, tal o gigantismo da tarefa por ele desenvolvida em todo o país.
+As a spiritist he was one of the most enthusiastic. 0 his name represented a true flag in the field of the spread of Spiritism. What he did, in several years of struggle and intense activities, is something that cannot yet be put into statistical data, such as the gigantism of the task he developed throughout the country.\r
 
-A sua palavra era atraente e arrebatadora, conseguindo, entre os espíritas, uma penetração inusitada e inconfundível. Como conferencista era dos mais requisitados; como polemista, um dos mais salientes. Seu verbo inspirado, sua voz harmoniosa, sua animação, assumiam, às vezes, tonalidades e aspectos impressionantes. Foi, na realidade, um mágico da palavra, esteta do sentimento.
+His word was attractive and sweeping, achieving, among the spiritists, an unusual and unmistakable penetration. As a lecturer he was one of the most requested; as a polemist, one of the most salient. His inspired verb, his harmonious voice, his animation, sometimes assumed shades and impressive aspects. He was, in fact, a magician of the word, a stepof the feeling.\r
 
-Viana de Carvalho fez os primeiros estudos de Humanidades no Liceu de Fortaleza. Posteriormente, em 1891, matriculou-se na extinta Escola Militar do Ceará, onde mereceu classificação de destaque pelo seu comportamento e merecimentos intelectuais.
+Viana de Carvalho did the first humanities studies at the Liceu de Fortaleza. Later, in 1891, he enrolled in the now defunct Military School of Ceará, where he deserved a prominent classification for his behavior and intellectual merits.\r
 
-Embora, desde 1891, ele tivesse dado início à sua gigantesca tarefa de divulgação do Espiritismo, esta somente tomou vulto após ter-se matriculado no curso superior da antiga Escola Militar da Praia Vermelha, em 11 de fevereiro de 1895.
+Although, since 1891, he began his gigantic task of disseminating Spiritism, it only took a large time after enrolling in the upper school of the former Red Beach Military School on February 11, 1895.\r
 
-Nessa época funcionava no Rio de Janeiro o Centro da União Espírita de Propaganda no Brasil. Integrando-se nesse grupo, Viana de Carvalho passou a proferir conferências que conseguiam atrair compactos auditórios de mais de 500 pessoas. No ano de 1896, foi transferido para Porto Alegre, como aluno da Escola Militar que ali funcionava.
+At that time the Center of the Spiritist Union of Propaganda in Brazil operated in Rio de Janeiro. Integrating this group, Viana de Carvalho began to deliver conferences that could attract compact auditoriums of more than 500 people. In 1896, he was transferred to Porto Alegre, as a student of the Military School that worked there.\r
 
-Naquela capital sulina, o Espiritismo já era difundido por alguns pioneiros, dentre eles Joaquim Xavier Carneiro, dirigente do Grupo Espírita Allan Kardec, que, dada a sua austeridade de costumes e práticas humanitárias, exercia enorme influência. De posse de uma lista com nome e endereço de simpatizantes do Espiritismo, Viana de Carvalho conseguiu reunir todos numa casa abandonada, desprovida de mesas e cadeiras. De pé, os frequentadores das reuniões ouviam, com verdadeiro enlevo, o seu verbo inflamado. Posteriormente, conseguiu formar um núcleo de estudos que passou a funcionar no andar térreo de uma casa no centro da cidade.
+In that southern capital, Spiritism was already widespread by some pioneers, including Joaquim Xavier Carneiro, leader of the Spiritist Group Allan Kardec, which, given its austerity of customs and humanitarian practices, exerted enormous influence. In possession of a list with the name and address of Spiritism sympathizers, Viana de Carvalho managed to gather everyone in an abandoned house, devoid of tables and chairs. Standing, the meeting goers listened, with real enlevo, their inflamed verb. Later, he managed to form a nucleus of studies that began to operate on the ground floor of a house in the city center.\r
 
-Em 1898, publicou a sua primeira produção literária Facetas, contos e fantasias. Em seguida, publicou Coloridos e Modulações. Nesse mesmo ano foi transferido para o Rio de Janeiro, onde recomeçou as preleções no Centro da União Espírita e em outros grupos, participando de um congresso e encetando numerosas viagens ao interior do Estado do Rio de Janeiro.
+In 1898, he published his first literary production Facetas, short stories and fantasies. He then published Colorful and Modulations. That same year he was transferred to Rio de Janeiro, where he resumed the selections at the Spiritist Union Center and other groups, participating in a congress and initiating numerous trips to the interior of the State of Rio de Janeiro.\r
 
-Transferido para Cuiabá, Mato Grosso, fundou o Centro Espírita Cuiabano. Em 1907, regressou ao Rio de Janeiro a fim de matricular-se no curso de engenharia da Escola do Realengo, tornando-se o orador oficial da Federação Espírita Brasileira, realizando ainda viagens aos Estados do Rio de Janeiro, São Paulo, Minas Gerais e Espírito Santo. Foi ainda colaborador assíduo da revista Reformador.
+Transferred to Cuiabá, Mato Grosso, founded the Cuiabano Spiritist Center. In 1907, he returned to Rio de Janeiro in order to enroll in the engineering course of the School of Realengo, becoming the official speaker of the Brazilian Spiritist Federation, while also making trips to the states of Rio de Janeiro, São Paulo, Minas Gerais and Espírito Santo. He was also an assiduous collaborator of reformador magazine.\r
 
-Após concluir o curso de engenharia militar, rumou para Fortaleza, Estado do Ceará, em abril de 1910. Ali iniciou uma série de conferências espíritas na Loja Maçônica e, no dia 10 de junho, fundou o Centro Espírita Cearense. Insatisfeito com as atividades desenvolvidas, criou ainda os jornais Combate e Lábaro, o primeiro destinado a contestar os argumentos do clero católico, que nessa época desencadeava uma campanha difamatória contra o Espiritismo, através do órgão Cruzeiro do Sul; a segunda publicação destinada a difundir o Espiritismo. Através dos jornais O Unitário, A República e Jornal do Ceará, manteve vivas polêmicas, refutando argumentos infundados sobre o Espiritismo. Suas atividades em Fortaleza perduraram até novembro de 1911, quando, por imposição do serviço militar foi transferido para Curitiba, no Paraná, onde sustentou o mesmo nível de atividades, publicando artigos diários no Diário da Manhã.
+After completing the military engineering course, he headed for Fortaleza, State of Ceará, in April 1910. There he started a series of spiritist conferences at loja Maçônica and, on June 10, founded the Spiritist Center Cearense. Dissatisfied with the activities developed, he also created the newspapers Combate and Lábaro, the first intended to challenge the arguments of the Catholic clergy, which at that time triggered a defamatory campaign against Spiritism, through the organ Cruzeiro do Sul; the second publication aimed at spreading Spiritism. Through the newspapers O Unitary, The Republic and Jornal do Ceará, kept alive controversies, refuting unfounded arguments about Spiritism. His activities in Fortaleza lasted until November 1911, when, by imposition of military service he was transferred to Curitiba, Paraná, where he maintained the same level of activities, publishing daily articles in the Daily Morning.\r
 
-De volta ao Rio de Janeiro, em 1912, deu início a um persistente trabalho de unificação dos grupos espíritas, do qual resultou a fundação posterior da União Espírita Suburbana, sob a presidência de Manuel Fernandes Figueira. Em princípios de 1913, foi servir em Maceió, onde proferiu numerosas conferências e encetou verdadeira jornada no sentido de reorganizar os grupos espíritas dispersos ou com falta de orientação.
+Back in Rio de Janeiro, in 1912, he began a persistent work of unification of spiritist groups, which resulted in the subsequent foundation of the Suburban Spiritist Union, under the presidency of Manuel Fernandes Figueira. In early 1913, he served in Maceió, where he delivered numerous conferences and embarked on a real journey to reorganize the spiritist groups dispersed or lacking orientation.\r
 
-Pouco depois era transferido para Recife, Pernambuco, onde deu prosseguimento à sua tarefa de divulgação, publicando numerosos trabalhos, fazendo conferências e mantendo polêmicas que abalaram os meios religiosos da cidade. Regressando ao Rio de Janeiro, Viana de Carvalho retomou a pregação da Doutrina Espírita nos subúrbios, o que fez de 1914 a 1916, quando foi transferido para Santa Maria da Boca do Monte, no Estado do Rio Grande do Sul. Ali também teve a oportunidade de reorganizar e fundar vários grupos espíritas e de realizar conferências que foram publicadas no Diário do Interior e, posteriormente, em outros órgãos da imprensa gaúcha.
+Shortly thereafter he was transferred to Recife, Pernambuco, where he continued his dissemination task, publishing numerous works, holding conferences and maintaining controversies that shook the religious means of the city. Returning to Rio de Janeiro, Viana de Carvalho resumed preaching the Spiritist Doctrine in the suburbs, which he did from 1914 to 1916, when she was transferred to Santa Maria da Boca do Monte, in the State of Rio Grande do Sul. There he also had the opportunity to reorganize and found several spiritist groups and hold conferences that were published in the Interior Gazette and later in other organs of the gaucho press.\r
 
-Em 1917, de novo no Rio de Janeiro, desenvolveu intensa campanha contra as fraudes e trapaças dos pseudoespíritas. No ano seguinte, voltou para Santa Maria da Boca do Monte, em comissão do Governo Federal, junto à 9ª Brigada de Infantaria, desenvolvendo durante quinze meses intensa difusão do Espiritismo.
+In 1917, again in Rio de Janeiro, he developed an intense campaign against the fraud swindins and cheating of pseudo-spiritists. The following year, he returned to Santa Maria da Boca do Monte, in committee of the Federal Government, with the 9th Infantry Brigade, developing for fifteen months intense diffusion of Spiritism.\r
 
-Em 1919, novamente em Maceió, foi surpreendido com as atividades dos detratores do Espiritismo, os quais tentaram proibir-lhe as palestras e até mesmo expulsá-lo. Sem esmorecimentos, travou intensos debates pela imprensa e pela tribuna, sustentando acirradas polêmicas, tendo, nessa altura, os seus opositores pleiteado, no Rio de Janeiro, a sua transferência, e sendo removido para o Estado do Paraná em meados desse mesmo ano.
+In 1919, again in Maceió, he was surprised by the activities of the detractors of Spiritism, who tried to ban his lectures and even expel him. Without fading, he fought intense debates by the press and the tribune, sustaining fierce controversies, having, at that time, his opponents pleaded, in Rio de Janeiro, his transfer, and being removed to the State of Paraná in the middle of that same year .\r
 
-Em Curitiba, realizou conferências no Teatro Alemão, na sede da Federação Espírita do Paraná e em outras instituições. Através do Diário da Tarde, publicou uma série de artigos doutrinários que tiveram muita penetração.
+In Curitiba, he held conferences at the Teatro Alemão, at the headquarters of the Spiritist Federation of Paraná and other institutions. Through the Diary of the Afternoon, he published a series of doctrinal articles that had a lot of penetration.\r
 
-Da capital paranaense veio para S. Paulo, onde proferiu várias palestras, muitas delas com o comparecimento de mais de mil pessoas. Em 1920, voltou novamente ao Rio de Janeiro, de onde partia para proferir conferências em cidades vizinhas.
+From the capital of Paraná came to S. Paulo, where he gave several lectures, many of them attended by more than 1,000 people. In 1920, he returned again to Rio de Janeiro, from where he left to give conferences in neighboring cities.\r
 
-Em 1923, seguiu para Recife, reorganizando os Centros Espíritas ali existentes, mantendo novas polêmicas com detratores do Espiritismo. Posteriormente, rumou para o Ceará e daí para Sergipe, onde fora designado para o comando do 28º B.C. em 1924. Nesse Estado as suas atividades também foram amplas.
+In 1923, he went to Recife, reorganizing the Spiritist Centers there, maintaining new controversies with detractors of Spiritism. Subsequently, he headed to Ceará and from there to Sergipe, where he had been assigned to command the 28th B.C. in 1924. In this State, their activities were also extensive.\r
 
-Em 1926, adoeceu gravemente, ficando decidido o seu recolhimento ao Hospital de S. Sebastião em Salvador. Suas forças estavam periclitantes. Conduzido ao navio Íris, por colegas oficiais e soldados, não conseguiu, entretanto, chegar ao destino, pois na altura de Amaralina, desencarnou a bordo, sendo seu corpo dado à sepultura na Bahia.
- 
+In 1926, he fell ill severely, and his collection was decided to be recollection to the Hospital de S. Sebastião in Salvador. His forces were perichloritean. Taken to the ship Iris, by fellow officers and soldiers, he could not, however, reach the destination, because at the time of Amaralina, he defaced on board, his body being given to the grave in Bahia.\r
+
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/vianadecarvalho.html)
-
-
-## See Also
-TODO
-
 
 

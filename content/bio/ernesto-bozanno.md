@@ -1,9 +1,8 @@
 ---
 title: Ernesto Bozzano
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -28,7 +27,5 @@ O estudo dos trabalhos de Bozzano permite ao espírita acostumar-se à análise 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/ernestobozzano.html)
 
-## See Also
-TODO
 
 

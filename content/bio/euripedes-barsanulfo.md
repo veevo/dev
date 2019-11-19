@@ -1,9 +1,8 @@
 ---
 title: Eurípedes Barsanulfo
-description: TODO
 date: 2019-02-01 19:00:00
 topics: 
-- profiles
+
 ---
 
 
@@ -59,7 +58,5 @@ Sacramento em peso, em verdadeira romaria, acompanhou-lhe o corpo até a sepultu
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/euripedesbarsanulfo.html)
 
-## See Also
-TODO
 
 
