@@ -2,16 +2,15 @@
 title: Principle, Fluid or Energy?
 description: Understand what's the difference between Principle, Fluid and Energy according to Spiritism
 date: 2019-02-01 19:00:00
-type: "post"
 image: "images/masonary-post/post-2.jpg"
-categories: 
-  - "articles"
 topics: 
-- question
+- fluids
+- energy
 - science
+- spiritism
 ---
 
-ou may have seen that the Allan Kardec Educational Society (A.K.E.S.), in their 1996 publication of “The Spirits' Book" adds the following as part of their Translator's footnote to question #27:
+You may have seen that the Allan Kardec Educational Society (A.K.E.S.), in their 1996 publication of “The Spirits' Book" adds the following as part of their Translator's footnote to question #27:
 
 > "The original French text used the word fluid, instead of principle.  According to the Oxford English Dictionary, it was not unusual in the physics of the mid-1800s to use fluid to mean 'subtle, imponderable, all pervading substances, whose existence had been assumed to account for the phenomena of heat, magnetism, and electricity'. Nowadays, however, fluid is more commonly defined as a substance that is characterized by low resistance to flow and the tendency to assume the shape of its container, such as a liquid or gas. ... Throughout this book, then, we have chosen to substitute principle for fluid, a choice that was motivated by the spirits themselves, who, in reference to the vital principle, use these two words interchangeably (see chapter four). Thus, by cosmic principle, we mean the subtle, fundamental, unifying substance that gives rise to phenomena such as heat, magnetism, and electricity, and to matter itself."
 

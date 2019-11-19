@@ -2,10 +2,7 @@
 title: How our identity is formed
 description: Learn how does our understanding of life and death affects our identity
 date: 2019-02-01 19:00:00
-type: "post"
 image: "images/masonary-post/post-2.jpg"
-categories: 
-  - "articles"
 topics: 
 - personality
 - death

@@ -6,54 +6,54 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - spiritism
 - paradise
+- heaven
 ---
 
+All religious schools bring in their teachings deep relationships with the understanding of life after life.
 
-Todas as escolas religiosas trazem, em seus ensinos, relações profundas com o entendimento da vida após a vida.
+It is natural that this is so because it is religions, in their various shades, the compass and protection for things that transcend the explanations of science and reason.
 
-É natural que assim seja pois são as religiões, nos seus mais variados matizes, a bússola e o amparo para as coisas que transcendem as explicações da ciência e da razão.
+Thus, of course, we desire the achievement of happiness after the conclusion of this life, according to this or that precept.
 
-Assim, naturalmente, desejamos a conquista da felicidade após a conclusão desta vida, segundo esse ou aquele preceito.
+If Paradise or Nirvana, or whatever denomination we give it, is the destiny of those who conduct themselves well here, we seek references on how to act and proceed so that happiness is the ultimate destination.
 
-Se o Paraíso ou Nirvana, ou qual seja a denominação que lhe damos, é o destino daqueles que bem se conduzirem aqui, buscamos referências de como agir e proceder para que a felicidade seja o destino final.
+In this eagerness and concern for future happiness, we imagine that it will be built by external actions, ritualism or appearance.
 
-Nesse afã e na preocupação com a felicidade futura, imaginamos que a construção dela se fará pelas ações externas, pela ritualística ou pela aparência.
+We forget that nothing that is done outwardly will make sense unless it comes from our intimacy.
 
-Esquecemos que nada que se faça exteriormente terá sentido se não tiver sua origem na nossa intimidade.
+The meaning and value of external actions are directly linked to the feeling with which we impregnate them.
 
-O significado e o valor das ações externas estão diretamente ligados ao sentimento com que as impregnamos.
+Thus, prayers, rites, promises and covenants are worth nothing if they are not born in the intimacy of our soul.
 
-Assim, de nada valem orações, ritos, promessas e pactos, se não nascem na intimidade de nossa alma.
+Thus, it can be understood that the kingdom of heaven, that paradise and future happiness are the intimate construction of each creature and will inevitably be externalized in the afterlife.
 
-Dessa forma, pode-se entender que o reino dos céus, que o paraíso e a felicidade futura são construção íntima de cada criatura e que, inevitavelmente, se exteriorizará na vida após a morte.
+If we are concerned to be happy beyond that, let us begin today to implement this happiness in the matrices of our soul.
 
-Se temos a preocupação de sermos felizes mais além, que comecemos hoje a implementar essa felicidade, nas matrizes de nossa alma.
+To achieve this, the conquest of a clear conscience, the result of the rightly fulfilled duty, the well-conducted commitments, the rightly delineated objectives, is certainly the best reference.
 
-Para tanto, a conquista da consciência tranquila, resultado do dever retamente cumprido, dos compromissos bem conduzidos, dos objetivos delineados com acerto, é, certamente, a melhor referência.
+Seeking internal righteousness, based on noble values ​​that we all bring latent in the soul, we build the paradise we long for.
 
-Buscando a retidão interna, pautada em valores nobres que todos trazemos latentes na alma, vamos construindo o paraíso que anelamos.
+Thus we break the illusion that the kingdom of heaven, poetically illustrated and exemplified by Jesus, is a physical place or a destination to come.
 
-Dessa forma, quebramos a ilusão de que o reino dos céus, poeticamente ilustrado e exemplificado por Jesus, seja um lugar físico ou um destino a se chegar.
+In no way will we come externally to happiness because it is an intimate construction.
 
-De maneira alguma chegaremos externamente à felicidade, por se tratar de construção íntima.
+So we do not plan to reach Heaven, Paradise or Nirvana.
 
-Assim, não planejemos chegar ao Reino dos Céus, ao Paraíso ou ao Nirvana.
+Let us begin today the construction of this much desired happiness.
 
-Iniciemos hoje a construção dessa tão desejada felicidade.
+And when we have it in our intimacy, wherever we meet, there will be our blessed heaven, the conquest of the soul toward the things of God.
 
-E, quando a tivermos em nossa intimidade, onde quer que nos encontremos, ali será o nosso céu bendito, conquista da alma em direção às coisas de Deus.
+* * *
 
-*   *   *
+The Spirit is doomed to happiness.
 
-O Espírito está fadado à felicidade.
+Everyone is on earth to gain happiness, journeying toward the fullness that is the future goal.
 
-Todos estão na Terra para adquirir felicidade, jornadeando no rumo da plenitude que é a meta futura.
+A life rich in inner beauty is a poem of joy.
 
-Uma vida rica de beleza interior é um poema de alegria.
+In silence the flowers bloom, the embryo develops, the landscape changes, the stars sparkle for joy.
 
-Em silêncio desabrocham as flores, desenvolve-se o embrião, a paisagem modifica-se, fulgem as estrelas proporcionando alegria.
-
-No silêncio da alma desenvolvamos qualidades superiores e desabrochemos para a felicidade.
+In the silence of the soul we develop superior qualities and blossom into happiness.
 
 ## Source
 Redação do Momento Espírita, com pensamentos finais
