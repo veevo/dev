@@ -2,145 +2,148 @@
 title: Maria de Nazaré
 date: 2019-02-01 19:00:00
 topics: 
-
+- jesus
+- gospel
+- mary
+- bible
 ---
 
-Junto da cruz, o vulto agoniado de Maria produzia dolorosa e indelével impressão.
+Near the cross, Mary's agonized figure produced painful and indelible impression.\r
 
-Com o pensamento ansioso e torturado, olhos fixos no madeiro das perfídias humanas, a ternura materna regredia ao passado em amarguradas recordações.
+With anxious and tortured thinking, eyes fixed on the lumber of human perfidias, maternal tenderness regressed to the past in bitter memories.\r
 
-Ali estava, na hora extrema, o filho bem-amado. Maria deixava-se ir na corrente infinda das lembranças. Eram as circunstâncias maravilhosas em que o nascimento de Jesus lhe fora anunciado, a amizade de Isabel, as profecias do velho Simeão, reconhecendo que a assistência de Deus se tornara incontestável nos menores detalhes de sua vida. Naquele instante supremo, revia a manjedoura, na sua beleza agreste, sentindo que a Natureza parecia desejar redizer aos seus ouvidos o cântico de glória daquela noite inolvidável. Através do véu espesso das lágrimas, repassou, uma por uma, as cenas da infância do filho estremecido, observando o alarma interior das mais doces reminiscências.
+There was, at extreme time, the well-loved son. Mary let herself go in the endless current of memories. These were the wonderful circumstances in which the birth of Jesus had been announced to him, the friendship of Elizabeth, the prophecies of old Simeon, recognizing that God's assistance had become undisputed in the smallest details of his life. At that supreme moment, he resaw the manger, in her harsh beauty, feeling that Nature seemed to wish to tell her ears the singing of glory of that unforgettable night. Through the thick veil of tears, passed, one by one, the childhood scenes of the shudder shudder, observing the inner alarm of the sweetest reminiscences.\r
 
-Nas menores coisas, reconhecia a intervenção da Providência celestial; entretanto, naquela hora, seu pensamento vagava também pelo vasto mar das mais aflitivas interrogações.
+In the smallest things, he recognized the intervention of heavenly Providence; however, at that time, his thought also wandered through the vast sea of the most distressing questions.\r
 
-Que fizera Jesus por merecer tão amargas penas? Não o vira crescer de sentimentos imaculados, sob o calor de seu coração? Desde os mais tenros anos, quando o conduzia à fonte tradicional de Nazaré, observava o carinho fraterno que dispensava a todas as criaturas. Frequentemente, ia buscá-lo nas ruas empedradas, onde a sua palavra carinhosa consolava os transeuntes desamparados e tristes. Viandantes misérrimos vinham a sua casa modesta louvar o filhinho idolatrado, que sabia distribuir as bênçãos do Céu. Com que enlevo recebia os hóspedes inesperados que suas mãos minúsculas conduziam à carpintaria de José!... Lembrava-se bem de que, um dia, a divina criança guiara a casa dois malfeitores publicamente reconhecidos como ladrões do vale de Mizhep.
+What had Jesus do for deserving so bitter sorrows? Don't you turn him up with immaculate feelings, under the warmth of his heart? From the tenderest years, when he led him to the traditional source of Nazareth, he observed the fraternal affection that compensated all creatures. He often picked him up on the cobbled streets, where his affectionate word comforted helpless and sad passers-by. Misérrimos viandantes came to his modest house to praise the idolized little boy, who knew how to distribute the blessings of Heaven. With what I enlevo received the unexpected guests that his tiny hands led to Joseph's carpentry!... She remembered well that one day the divine child had guided the house two evildoers publicly recognized as thieves of the Mizhep valley.\r
 
-E era de ver-se a amorosa solicitude com que seu vulto pequenino cuidava dos desconhecidos, como se fossem seus irmãos. Muitas vezes, comentara a excelência daquela virtude santificada, receando pelo futuro de seu adorável filhinho.
+And one would see the loving concern with which his little figure took care of the unknown, as if they were his brothers. He had often commented on the excellence of that sanctified virtue, fearing for the future of his lovely little boy.\r
 
-Depois do caricioso ambiente doméstico, era a missão celestial, dilatando-se em colheita de frutos maravilhosos. Eram paralíticos que retomavam os movimentos da vida, cegos que se reintegravam nos sagrados dons da vista, criaturas famintas de luz e de amor que se saciavam na sua lição de infinita bondade.
+After the caricious domestic environment, it was the heavenly mission, dilating in harvesting wonderful fruits. They were paralyzed who resumed the movements of life, blind who reintegrated into the sacred gifts of sight, starving creatures of light and love that sated in their lesson of infinite goodness.\r
 
-Que profundos desígnios haviam conduzido seu filho adorado à cruz do suplício?
+What deep designs had led his beloved son to the cross of the torment?\r
 
-Uma voz amiga lhe falava ao Espírito, dizendo das determinações insondáveis e justas de Deus, que precisam ser aceitas para a redenção divina das criaturas.
+A friendly voice spoke to the Spirit, saying of God's unsonorable and righteous determinations, which need to be accepted for the divine redemption of creatures.\r
 
-Seu coração rebentava em tempestades de lágrimas irreprimíveis; contudo, no santuário da consciência, repetia a sua afirmação de sincera humildade: “Faça-se na escrava a vontade do Senhor!”
+His heart burst into storms of irrepressible tears; however, in the sanctuary of conscience, he repeated his statement of sincere humility: "Make in slave the will of the Lord!"\r
 
-De alma angustiada, notou que Jesus atingira o último limite dos padecimentos inenarráveis. Alguns dos populares mais exaltados multiplicavam as pancadas, enquanto as lanças riscavam o ar, em ameaças audaciosas e sinistras. Ironias mordazes eram proferidas a esmo, dilacerando-lhe a alma sensível e afetuosa.
+With a distressed soul, he noticed that Jesus had reached the last limit of the inenarrable sufferings. Some of the most exalted people multiplied the blows, while the spears scratched the air, in audacious and sinister threats. Scathing ironies were uttered to moosm, tearing him the sensitive and affectionate soul.\r
 
-Em meio de algumas mulheres compadecidas, que lhe acompanhavam o angustioso transe, Maria reparou que alguém lhe pousara as mãos, de leve, sobre os ombros.
+Among some compadecidawomen, who accompanied her the distressed trance, Mary noticed that someone had laid her hands, lightly, on her shoulders.\r
 
-Deparou-se-lhe a figura de João que, vencendo a pusilanimidade criminosa em que haviam mergulhado os demais companheiros, estendia-lhe os braços amorosos e reconhecidos. Silenciosamente, o filho de Zebedeu abraçou-se àquele triturado coração maternal. Maria deixou-se enlaçar pelo discípulo querido e ambos, ao pé do madeiro, em gesto súplice, buscaram ansiosamente a luz daqueles olhos misericordiosos, no cúmulo dos tormentos. Foi aí que a fronte do divino supliciado se moveu vagarosamente, revelando perceber a ansiedade daquelas duas almas em extremo desalento.
+He was faced with the figure of John who, overcoming the criminal pusilanimity in which the other companions had dipped, stretched his loving and recognized arms. Silently, Zebedeou's son embraced that crushed maternal heart. Mary let herself be entangled by the dear disciple and both, at the foot of the wood, in a supplication gesture, eagerly sought the light of those merciful eyes, at the height of torments. It was there that the forehead of the divine supplication moved slowly, revealing the anxiety of those two souls at a dismay.\r
 
-“Meu filho! Meu amado filho!“, exclamou a mártir, em aflição diante da serenidade daquele olhar de melancolia intraduzível.
+"My son! My beloved son!" exclaimed the martyr, in distress at the serenity of that untranslatable melancholy gaze.\r
 
-O Cristo pareceu meditar no auge de suas dores, mas, como se quisesse demonstrar, no instante derradeiro, a grandeza de sua coragem e a sua perfeita comunhão com Deus, replicou com significativo movimento dos olhos vigilantes:
+Christ seemed to meditate at the height of his pains, but as if he wanted to demonstrate, in the final instant, the greatness of his courage and his perfect communion with God, he replied with significant movement of the watchful eyes:\r
 
-“Mãe, eis aí teu filho!“ E dirigindo-se, de modo especial, com um leve aceno, ao apóstolo, disse:
+"Mother, here's your son!" And addressing, in a special way, with a slight nod to the apostle, he said:\r
 
-“Filho, eis aí tua mãe!”
+"Son, here's your mother!"\r
 
-Maria envolveu-se no véu de seu pranto doloroso, mas o grande evangelista compreendeu que o Mestre, na sua derradeira lição, ensinava que o amor universal era o sublime coroamento de sua obra. Entendeu que, no futuro, a claridade do Reino de Deus revelaria aos homens a necessidade da cessação de todo egoísmo e que, no santuário de cada coração, deveria existir a mais abundante cota de amor, não só para o círculo familiar, senão também para todos os necessitados do mundo, e que no templo de cada habitação permaneceria a fraternidade real, para que a assistência recíproca se praticasse na Terra, sem serem precisos os edifícios exteriores, consagrados a uma solidariedade claudicante.
+Mary became involved in the veil of her painful weeping, but the great evangelist understood that the Master, in his final lesson, taught that universal love was the sublime crowning of his work. He understood that in the future the clarity of the Kingdom of God would reveal to men the need for the cessation of all selfishness and that, in the sanctuary of every heart, there should be the most abundant quota of love, not only for the family circle, but also for all needy in the world, and that in the temple of each dwelling would remain the royal brotherhood, so that reciprocal assistance would take place on earth, without the need for the outer buildings, consecrated to a claudicant solidarity.\r
 
-Por muito tempo, conservaram-se ainda ali, em preces silenciosas, até que o Mestre, exânime, fosse arrancado à cruz, antes que a tempestade mergulhasse a paisagem castigada de Jerusalém num dilúvio de sombras.
+For a long time, they remained there, in silent prayers, until the Master, exanime, was torn to the cross, before the storm plunged the punished landscape of Jerusalem into a flood of shadows.\r
 
-Após a separação dos discípulos, que se dispersaram por lugares diferentes, para a difusão da Boa Nova, Maria retirou-se para a Bataneia, onde alguns parentes mais próximos a esperavam com especial carinho.
+After the separation of the disciples, who dispersed through different places, for the diffusion of the Good News, Mary retired to Bataneia, where some close relatives waited for her with special affection.\r
 
-Os anos começaram a rolar, silenciosos e tristes, para a angustiada saudade de seu coração.
+The years began to roll, silent and sad, to the anguished longing of his heart.\r
 
-Tocada por grandes dissabores, observou que, em tempo rápido, as lembranças do filho amado se convertiam em elementos de ásperas discussões, entre os seus seguidores. Na Bataneia, pretendia-se manter uma certa aristocracia espiritual, por efeito dos laços consanguíneos que ali a prendiam, em virtude dos elos que a ligavam a José. Em Jerusalém, digladiavam-se os cristãos e os judeus, com veemência e acrimônia. Na Galileia, os antigos cenáculos simples e amoráveis da Natureza estavam tristes e desertos.
+Touched by great displeasures, he noted that, in quick time, the memories of the beloved son became elements of rough discussions among his followers. In Bataneia, it was intended to maintain a certain spiritual aristocracy, due to the consanguineous bonds that held it there, by virtue of the links that connected it to Joseph. In Jerusalem, Christians and Jews were divided, with vehemence and acrimony. In Galilee, nature's ancient simple and amorble upper room were sad and deserted.\r
 
-Para aquela mãe amorosa, cuja alma digna observava que o vinho generoso de Caná se transformara no vinagre do martírio, o tempo assinalava sempre uma saudade maior no mundo e uma esperança cada vez mais elevada no céu.
+For that loving mother, whose dignified soul observed that Cana's generous wine had become the vinegar of martyrdom, time always marked a greater longing in the world and an ever-increasing hope in heaven.\r
 
-Sua vida era uma devoção incessante ao rosário imenso da saudade, às lembranças mais queridas. Tudo que o passado feliz edificara em seu mundo interior revivia na tela de suas lembranças, com minúcias somente conhecidas do amor, e lhe alimentavam a seiva da vida.
+His life was an unceasing devotion to the immense rosary of longing, to the dearest memories. All that the happy past had built in his inner world relived on the canvas of his memories, with only known minutiae of love, and nourished him with the sap of life.\r
 
-Relembrava o seu Jesus pequenino, como naquela noite de beleza prodigiosa, em que o recebera nos braços maternais, iluminado pelo mais doce mistério.
+He recalled his little Jesus, as on that night of prodigious beauty, in which he had received it in his maternal arms, illuminated by the sweetest mystery.\r
 
-Figurava-se-lhe escutar ainda o balido das ovelhas que vinham, apressadas acercar-se do berço que se formara de improviso.
+He was also shown to listen to the blunder of the sheep that came, hurried to approach the cradle that had formed impromptu.\r
 
-E aquele primeiro beijo, feito de carinho e de luz? As reminiscências envolviam a realidade longínqua de singulares belezas para o seu coração sensível e generoso. Em seguida, era o rio das recordações desaguando, sem cessar, na sua alma rica de sentimentalidade e ternura. Nazaré lhe voltava à imaginação, com as suas paisagens de felicidade e de luz. A casa singela, a fonte amiga, a sinceridade das afeições, o lago majestoso e, no meio de todos os detalhes, o filho adorado, trabalhando e amando, no erguimento da mais elevada concepção de Deus, entre os homens da Terra. De vez em quando, parecia vê-lo em seus sonhos repletos de esperança. Jesus lhe prometia o júbilo encantador de sua presença e participava da carícia de suas recordações.
+What about that first kiss, made of affection and light? The reminiscences involved the distant reality of singular beauties for his sensitive and generous heart. Then it was the river of memories flowing, without ceasing, in its soul rich in sentimentality and tenderness. Nazareth returned to his imagination, with his landscapes of happiness and light. The simple house, the friendly fountain, the sincerity of affections, the majestic lake and, in the midst of all the details, the beloved son, working and loving, in the eruption of God's highest conception among the men of the earth. From time to time, he seemed to see him in his dreams full of hope. Jesus promised him the charming joy of his presence and participated in the caress of his memories.\r
 
-A esse tempo, o filho de Zebedeu, tendo presentes as observações que o Mestre lhe fizera da cruz, surgiu na Bataneia, oferecendo àquele espírito saudoso de mãe o refúgio amoroso de sua proteção. Maria aceitou o oferecimento, com satisfação imensa.
+At this time, the son of Zebedee, bearing in mind the observations that the Master had made to him of the cross, appeared in Batanoea, offering that late spirit of mother the loving refuge of his protection. Mary accepted the offering, with immense satisfaction.\r
 
-E João lhe contou a sua nova vida. Instalara-se definitivamente em Éfeso, onde as ideias cristãs ganhavam terreno entre almas devotadas e sinceras. Nunca olvidara as recomendações do Senhor e, no íntimo, guardava aquele título de filiação como das mais altas expressões de amor universal para com aquela que recebera o Mestre nos braços veneráveis e carinhosos. Maria escutava-lhe as confidências, num misto de reconhecimento e de ventura.
+And John told him his new life. It had definitely settled in Ephesus, where Christian ideas gained ground among devoted and sincere souls. He had never looked at the Lord's recommendations and, in the heart, kept that title of sonship as one of the highest expressions of universal love towards the one who had received the Master in the venerable and caring arms. Mary listened to her confidences, in a mixture of recognition and perhaps.\r
 
-João continuava a expor-lhe os seus planos mais insignificantes. Levá-la-ia consigo, andariam ambos na mesma associação de interesses espirituais. Seria seu filho desvelado, enquanto receberia de sua alma generosa a ternura maternal, nos trabalhos do Evangelho. Demorara-se a vir, explicava o filho de Zebedeu, porque lhe faltava uma choupana, onde se pudessem abrigar; entretanto, um dos membros da família real de Adiabene, convertido ao amor do Cristo, doara-lhe uma casinha pobre, ao sul de Éfeso, distando três léguas aproximadamente da cidade. A habitação simples e pobre demorava num promontório, de onde se avistava o mar. No alto da pequena colina, distante dos homens e no altar imponente da Natureza, reunir-se-iam ambos para cultivar a lembrança permanente de Jesus. Estabeleceriam um pouso e refúgio aos desamparados, ensinariam as verdades do Evangelho a todos os Espíritos de boa-vontade e, como mãe e filho, iniciariam uma nova era de amor, na comunidade universal.
+John continued to expose his most insignificant plans to him. I'd take it with you, you'd both walk in the same association of spiritual interests. It would be his unveiled son, while realing maternal tenderness from his generous soul in the work of the Gospel. It was long before he came, explained zebedeous's son, because he lacked a poplar, where they could take shelter; however, one of the members of adiabene's royal family, converted to christ's love, had donated to him a poor little house south of Ephesus, distancing three leagues about the city. The simple and poor dwelling took a long time in a headland, from where the sea was sighted. At the top of the small hill, far from men and on the imposing altar of Nature, they would gather both to cultivate the permanent remembrance of Jesus. They would establish a landing and refuge to the helpless, teach the truths of the Gospel to all spirits of good will, and, as a mother and son, they would begin a new age of love in the universal community.\r
 
-Maria aceitou alegremente.
+Mary happily accepted.\r
 
-Dentro de breve tempo, instalaram-se no seio amigo da Natureza, em frente do oceano. Éfeso ficava pouco distante; porém, todas as adjacências se povoavam de novos núcleos de habitações alegres e modestas. A casa de João, ao cabo de algumas semanas, transformou-se num ponto de assembleias adoráveis, onde as recordações do Messias eram cultuadas por espíritos humildes e sinceros.
+In a short time, they settled in nature's friend boon, in front of the ocean. Ephesus was a little distant; however, all adjacencies were populated with new nuclei of joyful and modest dwellings. John's house, after a few weeks, became a point of lovely assemblies, where the memories of the Messiah were worshipped by humble and sincere spirits.\r
 
-Maria externava as suas lembranças. Falava dele com maternal enternecimento, enquanto o apóstolo comentava as verdades evangélicas, apreciando os ensinos recebidos. Vezes inúmeras, a reunião somente terminava noite alta, quando as estrelas tinham maior brilho. E não foi só. Decorridos alguns meses, grandes fileiras de necessitados acorriam ao sítio singelo e generoso. A notícia de que Maria descansava, agora, entre eles, espalhara um clarão de esperança por todos os sofredores. Ao passo que João pregava na cidade as verdades de Deus, ela atendia, no pobre santuário doméstico, aos que a procuravam exibindo-lhe suas úlceras e necessidades.
+Mary was externalabout her memories. He spoke of him with maternal burial, while the apostle commented on gospel truths, enjoying the teachings received. Numerous times, the meeting only ended high night, when the stars had greater brightness. And it wasn't just. After a few months, large ranks of needy rushed to the simple and generous site. The news that Mary rested, now, among them, had spread a flash of hope for all the sufferers. While John preached in the city the truths of God, she attended, in the poor domestic sanctuary, to those who sought her by displaying her ulcers and needs.\r
 
-Sua choupana era, então, conhecida pelo nome de “Casa da Santíssima”.
+His poplar was then known by the name "Casa da Santíssimo".\r
 
-O fato tivera origem em certa ocasião, quando um miserável leproso, depois de aliviado em suas chagas, osculou-lhe as mãos, reconhecidamente murmurando:
+The fact had come on one occasion when a wretched leper, after being relieved in his wounds, osculed his hands, admittedly murmuring:\r
 
-“Senhora, sois a mãe de nosso Mestre e nossa Mãe Santíssima!”
+"Madam, you are the mother of our Master and our Most Holy Mother!"\r
 
-A tradição criou raízes em todos os espíritos. Quem não lhe devia o favor de uma palavra maternal nos momentos mais duros? E João consolidava o conceito, acentuando que o mundo lhe seria eternamente grato, pois fora pela sua grandeza espiritual que o Emissário de Deus pudera penetrar a atmosfera escura e pestilenta do mundo para balsamizar os sofrimentos da criatura. Na sua humildade sincera, Maria se esquivava às homenagens afetuosas dos discípulos de Jesus, mas aquela confiança filial com que lhe reclamavam a presença era para sua alma um brando e delicioso tesouro do coração. O título de maternidade fazia vibrar em seu espírito os cânticos mais doces. Diariamente, acorriam os desamparados, suplicando a sua assistência espiritual. Eram velhos trôpegos e desenganados do mundo, que lhe vinham ouvir as palavras confortadoras e afetuosas, enfermos que invocavam a sua proteção, mães infortunadas que pediam a bênção de seu carinho.
+Tradition has taken root in all spirits. Who didn't owe you the favor of a motherly word in the toughest moments? And John consolidated the concept, stressing that the world would be eternally grateful to him, for it was for its spiritual greatness that the Emissary of God could penetrate the dark and pestilent atmosphere of the world to balsamize the creature's sufferings. In her sincere humility, Mary dodged the affectionate tributes of Jesus' disciples, but that filial trust with which she was told the presence was for her soul a bland and delicious treasure of the heart. The title of motherhood made the sweetest songs vibrate in his spirit. Every day, the helpless ones were taking place, pleading for their spiritual assistance. They were old trôpegos and deceived of the world, who came to hear the comforting and affectionate words, sick who invoked their protection, unfortunate mothers who asked for the blessing of their affection.\r
 
-“Minha mãe, dizia um dos mais aflitos, como poderei vencer as minhas dificuldades? Sinto-me abandonado na estrada escura da vida".
+"My mother, i said one of the most afflicted, how can I overcome my difficulties? I feel abandoned on the dark road of life."\r
 
-Maria lhe enviava o olhar amoroso da sua bondade, deixando nele transparecer toda a dedicação enternecida de seu espírito maternal.
+Mary sent her the loving gaze of her kindness, letting in him show all the enternecidal dedication of her maternal spirit.\r
 
-“Isso também passa!", dizia ela carinhosamente, "só o Reino de Deus é bastante forte para nunca passar de nossas almas, como eterna realização do amor celestial.”
+"It also passes!" she said affectionately, "only the Kingdom of God is strong enough never to pass from our souls, as eternal realization of heavenly love."\r
 
-Seus conceitos abrandavam a dor dos mais desesperados, desanuviavam o pensamento obscuro dos mais acabrunhados.
+His concepts slowed the pain of the most desperate, unwindled the dark thinking of the most cherished.\r
 
-A igreja de Éfeso exigia de João a mais alta expressão de sacrifício pessoal, pelo que, com o decorrer do tempo, quase sempre Maria estava só, quando a legião humilde dos necessitados descia o promontório desataviado, rumo aos lares mais confortados e felizes. Os dias e as semanas, os meses e os anos passaram incessantes, trazendo-lhe as lembranças mais ternas. Quando sereno e azulado, o mar lhe fazia voltar à memória o Tiberíades distante. Surpreendia no ar aqueles perfumes vagos que enchiam a alma da tarde, quando seu filho, de quem nem um instante se esquecia, reunindo os discípulos amados, transmitia ao coração do povo as louçanias da Boa Nova. A velhice não lhe acarretara nem cansaços nem amarguras. A certeza da proteção divina lhe proporcionava ininterrupto consolo.
+The church of Ephesus demanded of John the highest expression of personal sacrifice, so over time, Mary was almost always alone, when the humble legion of the needy descended the unataviated promontory, towards the most comforted and happy homes. The days and weeks, months and years passed incessantly, bringing him the most tender memories. When serene and bluish, the sea made him return to memory the distant Tiberíades. He surprised in the air those vague perfumes that filled the soul of the afternoon, when his son, from whom not a moment was forgotten, bringing together the beloved disciples, transmitted to the hearts of the people the dishes of the Good News. Old age had neither tiredness nor bitterness. The certainty of divine protection provided him with uninterrupted comfort.\r
 
-Como quem transpõe o dia em labores honestos e proveitosos, seu coração experimentava grato repouso, iluminado pelo luar da esperança e pelas estrelas fulgurantes da crença imorredoura. Suas meditações eram suaves colóquios com as reminiscências do filho muito amado.
+As those who transpose the day into honest and fruitful labor, their hearts experienced grateful rest, illuminated by the moonlight of hope and the shining stars of immorredoura belief. His meditations were gentle colloquia with the reminiscences of the much-loved son.\r
 
-Súbito, recebeu notícias de que um período de dolorosas perseguições se havia aberto para todos os que fossem fiéis à doutrina do seu Jesus divino. Alguns cristãos banidos de Roma traziam a Éfeso as tristes informações. Em obediência aos éditos mais injustos, escravizavam-se os seguidores do Cristo, destruíam-se-lhes os lares, metiam-nos a ferros nas prisões. Falava-se de festas públicas, em que seus corpos eram dados como alimento a feras insaciáveis, em horrendos espetáculos.
+Suddenly, he received news that a period of painful persecution had opened to all who were faithful to the doctrine of his divine Jesus. Some Christians banished from Rome brought Ephesus with sad information. In obedience to the most unjust edicts, the followers of Christ were enslaved, their homes were destroyed, ironing them in prisons. There was talk of public parties, in which their bodies were given as food to insatiable beasts, in horrendous spectacles.\r
 
-Então, num crepúsculo estrelado, Maria entregou-se às orações, como de costume, pedindo a Deus por todos aqueles que se encontrassem em angústias do coração, por amor de seu filho.
+Then, in a starry twilight, Mary gave herself to prayers, as usual, asking God for all those who found themselves in anguish of the heart, for the sake of her son.\r
 
-Embora a soledade do ambiente, não se sentia só: uma como força singular lhe banhava a alma toda. Aragens suaves sopravam do oceano, espalhando os aromas da noite que se povoava de astros amigos e afetuosos e, em poucos minutos, a lua plena participava, igualmente, desse concerto de harmonia e de luz.
+Although the soleity of the environment, he did not feel alone: one as a singular force bathed his whole soul. Soft aragens blew from the ocean, spreading the aromas of the night that was populated with friendly and affectionate stars and, in a few minutes, the full moon also participated in this concert of harmony and light.\r
 
-Enlevada nas suas meditações, Maria viu aproximar-se o vulto de um pedinte. "Minha mãe", exclamou o recém-chegado, como tantos outros que recorriam ao seu carinho —, "venho fazer-te companhia e receber a tua bênção".
+Taken in her meditations, Mary saw the figure of a beggar approach. "My mother!" exclaimed the newcomer, like so many others who resorted to his affection—, "I come to keep you company and receive your blessing."\r
 
-Maternalmente, ela o convidou a entrar, impressionada com aquela voz que lhe inspirava profunda simpatia. O peregrino lhe falou do céu, confortando-a delicadamente. Comentou as bem-aventuranças divinas que aguardam a todos os devotados e sinceros filhos de Deus, dando a entender que lhe compreendia as mais ternas saudades do coração. Maria sentiu-se empolgada por tocante surpresa. Que mendigo seria aquele que lhe acalmava as dores secretas da alma saudosa, com bálsamos tão dulçorosos? Nenhum lhe surgira até então para dar; era sempre para pedir alguma coisa. No entanto, aquele viandante desconhecido lhe derramava no íntimo as mais santas consolações. Onde ouvira noutros tempos aquela voz meiga e carinhosa?! Que emoções eram aquelas que lhe faziam pulsar o coração de tanta carícia? Seus olhos se umedeceram de ventura, sem que conseguisse explicar a razão de sua terna emotividade. Foi quando o hóspede anônimo lhe estendeu as mãos generosas e lhe falou com profundo acento de amor:
+Maternally, she invited him in, impressed with that voice that inspired her deep sympathy. The pilgrim spoke to him from heaven, comforting her delicately. He commented on the divine beatitudes awaiting all the devoted and sincere children of God, implying that he understood his most tender homesickness. Maria was excited by a touching surprise. What beggar would be the one who calmed his secret pains of the late soul, with so sweet balms? None had come up to him until then to give; it was always to ask for something. However, that unknown viandante poured into his heart the holiest consolations. Where have you heard in other times that sweet and caring voice?! What emotions were those that made him pulsate the heart of so much caress? His eyes were deared with ventura, without being able to explain the reason for his emotional suit. That's when the anonymous guest held out his generous hands and spoke to him with a deep love accent:\r
 
-“Minha mãe, vem aos meus braços!”
+"My mother, come to my arms!"\r
 
-Nesse instante, fitou as mãos nobres que se lhe ofereciam, num gesto da mais bela ternura. Tomada de comoção profunda, viu nelas duas chagas, como as que seu filho revelava na cruz e, instintivamente, dirigindo o olhar ansioso para os pés do peregrino amigo, divisou também aí as úlceras causadas pelos cravos do suplício. Não pôde mais. Compreendendo a visita amorosa que Deus lhe enviava ao coração, bradou com infinita alegria:
+At that moment, he looked at the noble hands he offered, in a gesture of the most beautiful tenderness. Taking deep commotion, he saw in them two wounds, such as the ones his son revealed on the cross and instinctively directing the anxious gaze to the feet of the pilgrim friend, also shared there the ulcers caused by the carnations of the torment. You couldn't do it anymore. Understanding the loving visit that God sent to his heart, he cried with infinite joy:\r
 
-“Meu filho! meu filho! as úlceras que te fizeram!. . .“
+"My son! my son! the ulcers they made you!. . ."\r
 
-E precipitando-se para ele, como mãe carinhosa e desvelada, quis certificar-se, tocando a ferida que lhe fora produzida pelo último lançaço, perto do coração.
+And rushing to him, as a loving and unveiled mother, she wanted to make sure, touching the wound produced by her last pitch, near the heart.\r
 
-Suas mãos ternas e solícitas o abraçaram na sombra visitada pelo luar, procurando sofregamente a úlcera que tantas lágrimas lhe provocara ao carinho maternal. A chaga lateral também lá estava, sob a carícia de suas mãos. Não conseguiu dominar o seu intenso júbilo. Num ímpeto de amor, fez um movimento para se ajoelhar. Queria abraçar-se aos pés do seu Jesus e osculá-los com ternura. Ele, porém, levantando-a, cercado de um halo de luz celestial, ajoelhou-se-lhe aos pés e, beijando-lhe as mãos, disse em carinhoso transporte:
+His tender and helpful hands embraced him in the shadow visited by the moonlight, suffering the ulcer that had caused him to maternal affection. The side chaga was also there, under the caress of his hands. He couldn't master his intense joy. In an impulse of love, he made a move to kneel. He wanted to embrace at the feet of his Jesus and to wrest them with tenderness. He, however, lifting her, surrounded by a halo of heavenly light, knelt at his feet and, kissing his hands, said in affectionate transport:\r
 
-“Sim, minha mãe, sou eu!... Venho buscar-te, pois meu Pai quer que sejas no meu reino a Rainha dos Anjos. . ."
+"Yes, my mother, it's me!... I come to get you, for my Father wants you to be in my kingdom the Queen of Angels. . . .\r
 
-Maria cambaleou, tomada de inexprimível ventura. Queria dizer da sua felicidade, manifestar seu agradecimento a Deus; mas o corpo como que se lhe paralisara, enquanto aos seus ouvidos chegavam os ecos suaves da saudação do Anjo, qual se a entoassem mil vozes cariciosas, por entre as harmonias do céu.
+Mary staggered, taken from inexpressible ventura. I wanted to say your happiness, to express your thanks to God; but the body as if it had paralyzed him, while to his ears came the gentle echoes of the Angel's greeting, which were to sing a thousand charitable voices, through the harmonies of heaven.\r
 
-No outro dia, dois portadores humildes desciam a Éfeso, de onde regressaram com João, para assistir aos últimos instantes daquela que lhes era a devotada Mãe Santíssima.
+The other day, two humble bearers descended from Ephesus, from where they returned with John, to watch the last moments of what was devoted to them Most Holy Mother.\r
 
-Maria já não falava. Numa inolvidável expressão de serenidade, por longas horas ainda esperou a ruptura dos derradeiros laços que a prendiam à vida material.
+Maria didn't talk. In an unforgettable expression of serenity, for long hours still waited for the rupture of the final bonds that held it to material life.\r
 
-A alvorada desdobrava o seu formoso leque de luz quando aquela alma eleita se elevou da Terra, onde tantas vezes chorara de júbilo, de saudade e de esperança.
+The dawn unfolded its beautiful range of light when that chosen soul rose from earth, where he had so often cried with joy, longing and hope.\r
 
-Não mais via seu filho bem-amado, que, certamente, a esperaria com as boas vindas no seu reino de amor; mas, extensas multidões de entidades angélicas a cercavam cantando hinos de glorificação.
+I no longer saw your beloved son, who would certainly expect her with the welcome in his kingdom of love; but, extensive crowds of angelic entities surrounded her singing glorification hymns.\r
 
-Experimentando a sensação de se estar afastando do mundo, desejou rever a Galileia com os seus sítios preferidos. Bastou a manifestação de sua vontade para que a conduzissem à região do lago de Genesaré, de maravilhosa beleza. Reviu todos os quadros do apostolado de seu filho e, só agora, observando do alto a paisagem, notava que o Tiberíades, em seus contornos suaves, apresentava a forma quase perfeita de um alaúde. Lembrou-se, então, de que naquele instrumento da Natureza Jesus cantara o mais belo poema de vida e amor, em homenagem a Deus e à humanidade. Aquelas águas mansas, filhas do Jordão marulhoso e calmo, haviam sido as cordas sonoras do cântico evangélico.
+Experiencing the feeling of moving away from the world, he wished to review Galilee with its favorite places. It was enough to demonstrate her will for them to lead her to the lake region of Genesaré, of wonderful beauty. He reviewed all the paintings of his son's apostolate and, only now, observing from above the landscape, he noticed that the Tiberíades, in its gentle contours, presented the almost perfect shape of a lute. It was recalled, then, that in that instrument of Nature Jesus had sung the most beautiful poem of life and love, in honor of God and humanity. Those meek waters, daughters of the sailor and calm Jordan, had been the sound strings of the gospel chant.\r
 
-Dulcíssimas alegrias lhe invadiam o coração e já a caravana espiritual se dispunha a partir, quando Maria se lembrou dos discípulos perseguidos pela crueldade do mundo e desejou abraçar os que ficariam no vale das sombras, à espera das claridades definitivas do Reino de Deus. Emitindo esse pensamento, imprimiu novo impulso às multidões espirituais que a seguiam de perto. Em poucos instantes, seu olhar divisava uma cidade soberba e maravilhosa, espalhada sobre colinas enfeitadas de carros e monumentos que lhe provocavam assombro. Os mármores mais ricos esplendiam nas magnificentes vias públicas, onde as liteiras patrícias passavam sem cessar, exibindo pedrarias e peles, sustentadas por misérrimos escravos.
+Sweet joys invaded his heart and already the spiritual caravan was set out, when Mary remembered the disciples persecuted for the cruelty of the world and wished to embrace those who would stand in the valley of shadows, waiting for the definitive clarity of the Kingdom of God. By emitting this thought, he gave new impetus to the spiritual crowds that followed it closely. In a few moments, his gaze was in a superb and wonderful city, scattered over car-adorned hills and monuments that caused him astonishment. The richest marbles skewed on the magnificent public roads, where patrician litters passed without ceasing, displaying stonestores and fur, sustained by misérrimos slaves.\r
 
-Mais alguns momentos e seu olhar descobria outra multidão guardada a ferros em escuros calabouços. Penetrou os sombrios cárceres do Esquilino, onde centenas de rostos amargurados retratavam padecimentos atrozes. Os condenados experimentaram no coração um consolo desconhecido.
+A few more moments and his gaze discovered another iron-guarded crowd in dark dungeons. The dark prisons of the Esquilino penetrated, where hundreds of bitter faces depicted atrocious sufferings. The condemned experienced in their hearts an unknown consolation.\r
 
-Maria se aproximou de um a um, participou de suas angústias e orou com as suas preces, cheias de sofrimento e confiança. Sentiu-se mãe daquela assembleia de torturados pela injustiça do mundo. Espalhou a claridade misericordiosa de seu Espírito entre aquelas fisionomias pálidas e tristes. Eram anciães que confiavam no Cristo, mulheres que por ele haviam desprezado o conforto do lar, jovens que depunham no Evangelho do Reino toda a sua esperança. Maria aliviou-lhes o coração e, antes de partir, sinceramente desejou deixar-lhes nos Espíritos abatidos uma lembrança perene. Que possuía para lhes dar? Deveria suplicar a Deus para eles a liberdade?! Mas, Jesus ensinara que com ele todo jugo é suave e todo fardo seria leve, parecendo-lhe melhor a escravidão com Deus do que a falsa liberdade nos desvãos do mundo. Recordou que seu filho deixara a força da oração como um poder incontrastável entre os discípulos amados. Então, rogou ao Céu que lhe desse a possibilidade de deixar entre os cristãos oprimidos a força da alegria. Foi quando, aproximando-se de uma jovem encarcerada, de rosto descarnado e macilento, disse-lhe ao ouvido:
+Mary approached one by one, participated in her anguish, and prayed with her prayers, full of suffering and trust. She felt mother to that assembly of tortured by the injustice of the world. He spread the merciful clarity of his Spirit among those pale and sad physiognomies. They were ancients who trusted Christ, women who had despised the comfort of home for him, young people who deposed in the Gospel of the Kingdom all their hope. Mary relieved their hearts and, before leaving, sincerely wished to leave them in the downcast Spirits. What did you have to give them? Should I plead with God for freedom?! But Jesus had taught that with him every yoke is soft and every burden would be light, looking better to slavery with God than false freedom in the unvãos of the world. He recalled that his son had left the strength of prayer as an unascounterly power among the beloved disciples. Then he begged Heaven to give him the possibility of leaving among oppressed Christians the power of joy. That's when, approaching a young incarcerated, with a scarnated and macilent face, she told her in her ear:\r
 
-> “Canta, minha filha! Tenhamos bom ânimo!... Convertamos as nossas dores da Terra em alegrias para o Céu!"
+> "Sing, my daughter! Let's get good cheer!... We turn our earth's pains into joys for Heaven!"\r
 
-A triste prisioneira nunca saberia compreender o porquê da emotividade que lhe fez vibrar subitamente o coração. De olhos extáticos, contemplando o firmamento luminoso, através das grades poderosas, ignorando a razão de sua alegria, cantou um hino de profundo e enternecido amor a Jesus, em que traduzia sua gratidão pelas dores que lhe eram enviadas, transformando todas as suas amarguras em consoladoras rimas de júbilo e esperança. Daí a instantes, seu canto melodioso era acompanhado pelas centenas de vozes dos que choravam no cárcere, aguardando o glorioso testemunho.
+The sad prisoner would never know how to understand why the emotionality that suddenly made her heart vibrate. With ecstatic eyes, contemplating the luminous firmament, through the powerful grids, ignoring the reason for his joy, sang a hymn of deep and enternecido love for Jesus, in which he reflected his gratitude for the pains sent to him, transforming all his bitterness in consoling rhymes of joy and hope. Then moments ago, his melodious singing was accompanied by the hundreds of voices of those who wept in prison, awaiting glorious testimony.\r
 
-Logo, a caravana majestosa conduziu ao Reino do Mestre a bendita entre as mulheres e, desde esse dia, nos tormentos mais duros, os discípulos de Jesus têm cantado na Terra, exprimindo o seu bom ânimo e a sua alegria, guardando a suave herança de nossa Mãe Santíssima.
+Soon, the majestic caravan led to the Kingdom of the Master the blessed among women and, since that day, in the harshest torments, Jesus' disciples have sung on earth, expressing their good cheer and joy, keeping the soft heritage of our Most Holy Mother.\r
 
-Por essa razão, irmãos meus, quando ouvirdes o cântico nos templos das diversas famílias religiosas do Cristianismo, não vos esqueçais de fazer no coração um brando silêncio, para que a Rosa Mística de Nazaré espalhe aí o seu perfume!
+For this reason, my brothers, when you hear the song in the temples of the various religious families of Christianity, do not forget to make a soft silence in your hearts, so that the Mystical Rose of Nazareth spreads its scent there!\r
 
-## Nota
-Esta não é uma biografia da vida de Maria, mas um relato de Humberto de Campos feito sobre os momentos culminantes de sua existência, de que a Bíblia não traz nenhuma informação.
+Note\r
+This is not a biography of Mary's life, but an account of Humberto de Campos made about the culminating moments of her existence, that the Bible does not bring any information.\r
 
 
 ## Source

@@ -2,29 +2,41 @@
 title: Lamennais, Felicité R. de
 date: 2019-02-01 19:00:00
 topics: 
-
+- france
+- lamennais
+- spiritism
+- allan-kardec
 ---
 
-Nascido em uma família burguesa em 19 de junho de 1782, em Saint-Malo, na França, foi brilhante escritor, tornando-se uma figura influente e controversa na história da Igreja francesa. 
+Born into a bourgeois family on June 19, 1782, in Saint-Malo, France, he was a brilliant writer, becoming an influential and controversial figure in the history of the French Church. 
 
-Com seu irmão Jean, concebeu a ideia de reviver o Catolicismo Romano como uma chave para a regeneração social. Chegaram a esboçar um programa de reforma em sua obra, Reflexões do estado da Igreja..., em 1808. 
+With his brother Jean, he conceived the idea of reviving Roman Catholicism as a key to social regeneration. They came to outline a reform program in his work, Reflections of the state of the Church..., in 1808. 
 
-Cinco anos mais tarde, no auge do conflito entre Napoleão e o Papado, os irmãos produziram uma defesa do Ultramontanismo (Doutrina e política dos católicos franceses que buscavam inspiração na Cúria Romana, defendendo a autoridade absoluta do Papa em matéria de fé e disciplina). Este livro valeu a Lamennais um conflito com o Imperador, ocasionando sua fuga para a Inglaterra, rapidamente, no ano de 1815. 
+Five years later, at the height of the conflict between Napoleon and the Papacy, the brothers produced a defense of Ultramontanism (Doctrine and politics of French Catholics seeking inspiration in the Roman Curia, defending the Pope's absolute authority in matters of faith and discipline). This book earned Lamennais a conflict with the Emperor, causing his escape to England quickly in 1815. 
 
-Um ano depois, com seus 34 anos de idade, Lamennais retorna a Paris e é ordenado padre. Escritor fluente, político e filósofo, ele se esforçava para combinar a política liberal com o Catolicismo Romano, depois da Revolução Francesa. Por isso, já em 1817 publicou Ensaios sobre a indiferença em matéria de religião considerada em suas relações com a ordem política e civil, além de uma tradução da Imitação de Jesus Cristo. O Ensaio lhe valeu fama imediata. 
+A year later, at the age of 34, Lamennais returns to Paris and is ordained a priest. Fluent writer, politician and philosopher, he struggled to combine liberal politics with Roman Catholicism after the French Revolution. Therefore, already in 1817 he published Essays on the indifference in matters of religion considered in his relations with the political and civil order, in addition to a translation of the Imitation of Jesus Christ. Rehearsal earned him immediate fame. 
 
-Nele, Lamennais argumentava a respeito da necessidade da religião, baseando seus apelos na autoridade da tradição e a razão geral da humanidade, em vez do individualismo do julgamento privado. Embora advogasse o Ultramontanismo na esfera religiosa, em suas crenças políticas, era um liberal que advogava a separação do Estado da Igreja, a liberdade de consciência, educação e imprensa.
+In it, Lamennais argued about the need for religion, basing his appeals on the authority of tradition and the general reason of humanity, rather than the individualism of private judgment. Although he advocated Ultramontanism in the religious sphere, in his political beliefs, he was a liberal who advocated the separation of the State of the Church, freedom of conscience, education and the press.
 
-Depois da revolução de julho, em 1830, Lamennais, junto com Henri Lacordaire (Os expoentes da Codificação XVIII) e Charles de Montalembert, além de um grupo entusiástico de escritores do Catolicismo Romano Liberal, fundou o jornal L'Avenir. Neste jornal diário, defendia Lamennais os princípios democráticos, a separação da Igreja do Estado, criando embaraços tanto para si, tanto com a hierarquia eclesiástica francesa, quanto com o governo do rei Luís Felipe. 
+After the July revolution in 1830, Lamennais, together with Henri Lacordaire (The Exponents of Xviii Coding) and Charles de Montalembert, as well as an enthusiastic group of writers of Liberal Roman Catholicism, founded the newspaper L'Avenir. In this daily newspaper, Lamennais defended the democratic principles, the separation of the Church of the State, creating embarrassments both for himself, both with the French ecclesiastical hierarchy and with the government of King Louis Felipe. 
 
-O Papa Gregório XVI desautorizou as opiniões de Lamennais na Encíclica Mirari vos, em agosto de 1831. A partir de então, Lamennais passa a atacar o Papado e as monarquias europeias, escrevendo o famoso poema "Palavras de um crente", condenado na Encíclica papal Singulari vos, em julho de 1834. O resultado foi a exclusão de Lamennais da Igreja. 
+Pope Gregory XVI disauthorized Lamennais' views at the Mirari Vos Encyclical in August 1831. From then on, Lamennais began to attack the Papacy and European monarchies, writing the famous poem "Words of a believer", condemned in the Papal Encyclical Singulari vos in July 1834. The result was the exclusion of Lamennais from the Church. 
 
-Incansável, ele se devotou à causa do povo, colocando sua caneta a serviço do republicanismo e do socialismo. Escreveu trabalhos como O Livro do Povo (1838), Os afazeres de Roma e Esboço de uma Filosofia. Chegou a ser condenado à prisão, mas, já em 1848, foi eleito para a Assembleia Nacional, aposentando-se em 1851. 
+Tirelessly, he devoted himself to the cause of the people, putting his pen in the service of republicanism and socialism. 
+He wrote works such as The People's Book (1838), the chores of Rome and Outline of a Philosophy. 
+He was sentenced to prison, but, as early as 1848, he was elected to the National Assembly, retiring in 1851. 
 
-Por ocasião de sua morte, em Paris, em 27 de fevereiro de 1854, não desejando se reconciliar com a Igreja, foi sepultado em uma cova de indigente. 
-No Mundo Espiritual, não permaneceu ocioso, eis que em O Livro dos Espíritos, na pergunta de número 1009, encontra-se uma mensagem de sua lavra, ilustrando a resposta. Nela, revela os traços da sua fé, concitando as criaturas a aproximar-se do bom pastor e do Pai Criador, combatendo com vigor a crença das penas eternas. 
+On the occasion of his death in Paris on February 27, 1854, not wishing to reconcile with the 
+Church, he was buried in a grave of indigent. 
 
-Na mensagem que assina em O Evangelho segundo o Espiritismo, cap. XI, item 15, ele se revela o ser compassivo, que conclama as criaturas a obedecer a voz do coração, oferecendo, se for necessário, a própria pela vida de um malfeitor.
+In the Spirit World, he did not remain idle, behalf, that in The Book of Spirits, in question number 1009, 
+there is a message of his ploughing, illustrating the answer. In it, he reveals the traces of his faith, 
+conking creatures to approach the good shepherd and the Creator Father, vigorously combating the belief 
+of eternal punishments. 
+
+In the message he signs in The Gospel according to Spiritism, cap. XI, item 15, 
+it reveals itself to be compassionate, who calls on creatures to obey the voice of the heart, 
+offering, if necessary, his own by the life of a evildoer.
 
 
 ## Source

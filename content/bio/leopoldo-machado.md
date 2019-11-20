@@ -2,56 +2,56 @@
 title: Leopoldo Machado
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- brasil
+- rio-de-janeiro
+- bahia
 ---
 
-Nasceu no Arraial de Cepa Forte, hoje Jandaíra, Bahia, em 30 de setembro de 1891.
+He was born in Arraial de Cepa Forte, now Jandaíra, Bahia, on September 30, 1891.
 
-Leopoldo Machado, como era conhecido, iniciou-se na Doutrina Espírita pelas mãos abençoadas do inolvidável José Petitinga, no ano de 1915, tornando-se arauto da fé e do trabalho.
+Leopoldo Machado, as he was known, began in the Spiritist Doctrine by the blessed hands of the unforgettable 
+José Petitinga, in 1915, becoming an herald of faith and work.
 
-Espírito de liderança, foi impulsionado às tarefas do bem e da verdade, vivendo a Doutrina Espírita em toda a sua pujança.
+Spirit of leadership, was driven to the tasks of good and truth, living the Spiritist Doctrine in all its strength.
 
-Após seu casamento com Dona Marília Ferraz de Almeida, radicou-se na cidade de Nova Iguaçu, Rio de Janeiro, onde iniciou grandes tarefas.
+After his marriage to Dona Marília Ferraz de Almeida, he settled in the city of Nova Iguaçu, Rio de Janeiro, where he began great tasks.
 
-Ele e a esposa tomaram a iniciativa de construir o Albergue Noturno Allan Kardec e o Lar de Jesus para meninas órfãs.
+He and his wife took the initiative to build the Allan Kardec Night Hostel and the Home of Jesus for orphaned girls.
 
-Educador pedagógico, inaugurou o Colégio Leopoldo, tradicional estabelecimento de ensino, considerado uma das melhores organizações educacionais da baixada fluminense.
+Pedagogical educator, inaugurated the Leopoldo College, a traditional educational establishment, considered one of the best educational organizations in the baixada de Janeiro.
 
-Jornalista, professor, escritor, poeta, compositor, pregador e polemista difundiu a Doutrina Espírita por todos os meios e formas, merecendo o respeito dos adversários da Doutrina e a admiração dos confrades.
+Journalist, teacher, writer, poet, composer, preacher and polemist spread the Spiritist Doctrine throughout all means and forms, deserving the respect of the opponents of the Doctrine and the admiration of confreres.
 
-Leopoldo Machado incentivou as novas gerações a pegar no arado com a criação das Mocidades Espíritas e das Escolas Espíritas de Evangelização para Infância.
+Leopoldo Machado encouraged the new generations to pick up the arado with the creation of Spiritist Youth sanders and Spiritist Schools of Evangelization for Childhood.
 
-Impulsionou as Semanas Espíritas, as Tardes Fraternas, os Simpósios, as Mesas Redondas e os Congressos Espíritas.
+He boosted spiritist weeks, fraternal afternoons, symposia, round tables and spiritist congresses.
 
-Realizou o "milagre" de estar presente em quase todos os movimentos espíritas confraternativos, percorrendo todo o Brasil, exaltando o Evangelho de Jesus e a Doutrina dos Espíritos, como sendo a volta do Cristianismo Redivivo, no seu sentido mais puro, como era pregado na Casa do Caminho.
+He performed the "miracle" of being present in almost all the spiritist movements confraternative, throughout Brazil, extolling the Gospel of Jesus and the Doctrine of spirits, as being the return of Redivivo Christianity, in its purest sense, as it was preached in the House of the Way.
 
-Dentre vários eventos, destaca-se o I Congresso de Mocidades Espíritas do Brasil, de 17 a 23 de julho de 1948, tendo frente Leopoldo Machado Lins de Vasconcelos.
+Among several events, stands out the 1st Congress of Spiritist Mocidades do Brasil, from July 17 to 23, 1948, with leopoldo Machado Lins de Vasconcelos.
 
-Foi uma das mais belas e proveitosas realizações espíritas de todos os tempos e, até hoje, colhem-se frutos.
+It was one of the most beautiful and profitable spiritist achievements of all time and, to this day, fruit is harvested.
 
-Nesse mesmo ano, Leopoldo Machado tomava parte ativa no Congresso Brasileiro de Unificação, realizado de 31 de outubro a 5 de novembro.
+That same year, Leopoldo Machado was an active part in the Brazilian Unification Congress, held from October 31 to November 5.
 
-Em 1949, era convocado para o 11º Congresso Pan-americano, realizado no Rio de Janeiro.
+In 1949, he was convened for the 11th Pan American Congress, held in Rio de Janeiro.
 
-Após, esteve presente, juntamente com Lins de Vasconcelos, Carlos Jordão da Silva, Francisco Spinelli, Ary Casadio e Luiz Burgos na Caravana da Fraternidade, que teve como coroamento o Pacto Áureo, incentivo unificador na formação do Conselho Federativo Nacional, sob os auspícios da Federação Espírita Brasileira.
+After, he was present, together with Lins de Vasconcelos, Carlos Jordão da Silva, Francisco Spinelli, Ary Casadio and Luiz Burgos in the Fraternity Caravan, which crowned the Golden Pact, unifying incentive in the formation of the National Federative Council , under the auspices of the Brazilian Spiritist Federation.
 
-Realizou também a Primeira Festa Nacional do Livro Espírita, em homenagem ao dia 18 de abril.
+He also held the First National Festival of the Spiritist Book, in honor of April 18.
 
-Escritor de vários livros espíritas, como Pigmeus Contra Gigantes, Caravana da Fraternidade, Ide e Pregai e muitos outros, além de crônicas, peças teatrais, biografias, roteiros, teses. Ainda compôs inúmeras melodias para a mocidade e a infância.
+Writer of several spiritist books, such as Pygmies Against Giants, Caravan of fraternity, Ide and Pregai and many others, as well as chronicles, plays, biographies, scripts, theses. He also composed numerous melodies for youth and childhood.
 
-Leopoldo Machado acreditou na força dos moços, como mola propulsora para renovação de valores do movimento espírita; acreditou nos Congressos, nas Semanas Espíritas e nas Confraternizações.
+Leopoldo Machado believed in the strength of the young men, as a driving spring for the renewal of values of the spiritist movement; believed in Congresses, Spiritist Weeks and Fraternizations.
 
-Lutou tenazmente para desencastelar muitos espíritas, que só pensavam em termos de suas Instituições, porque acreditava que Espiritismo é Luz, é Sol que, no futuro próximo, iluminará a humanidade.
+He fought tenaciously to untangle many Spiritists, who only thought in terms of their institutions, because he believed that Spiritism is Light, it is sun that, in the near future, will illuminate humanity.
 
-Lutou pela renovação de valores e de conceitos, sem fugir aos ditames da Codificação Kardequiana.
+He fought for the renewal of values and concepts, without escaping the dictates of the Kardequian Codification.
 
-Franco, leal, sincero e audaz.
+Frank, loyal, sincere and daring. That was leopoldo machado's very personal figure.
 
-Essa foi a figura personalíssima de Leopoldo Machado.
-
-Desencarnou na cidade de Nova Iguaçu (RJ), aos 22 de agosto de 1957.
-
-
+He defaced in the city of Nova Iguaçu (RJ), on August 22, 1957.
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/leopoldomachado.html)  

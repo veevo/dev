@@ -2,17 +2,32 @@
 title: Bezerra de Menezes
 description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
-categories: 
-- biographies
+topics:
+- spiritism
+- bezerra-de-menezes
 ---
 
-## Introduction
-Adolfo Bezerra de Menezes Cavalcanti was born in the old neighborhood of Freguesia do Riacho de Sangue (Stream of Blood), today Solonopole, in Ceara, Brazil, on August 29 th, 1831. He died in Rio de Janeiro, on April 11th, 1900.
+Adolfo Bezerra de Menezes Cavalcanti was born in the old neighborhood of Freguesia do Riacho de Sangue 
+(Stream of Blood), today Solonopole, in Ceara, Brazil, on August 29 th, 1831. 
+He died in Rio de Janeiro, on April 11th, 1900.
 
-In the year of 1838, Adolfo Bezerra de Menezes Cavalcanti, started studying at the public school of the Friar’s Villa, where in only ten months he sufficiently prepared himself to reach the degree of knowledge of his master, who was responsible to guide his first educational phase. At a very early age, he revealed to be extremely intelligent. When he was eleven years old he was able to commence the course on Humanities. At thirteen he knew Latin so well that he not only gave classes to his colleagues, but also was called to replace his teacher every time he had to be absent.
+In the year of 1838, Adolfo Bezerra de Menezes Cavalcanti, started studying at the public school of the 
+Friar’s Villa, where in only ten months he sufficiently prepared himself to reach the degree of knowledge 
+of his master, who was responsible to guide his first educational phase. At a very early age, he revealed 
+to be extremely intelligent. When he was eleven years old he was able to commence the course on Humanities. 
 
-His father, Antonio Bezerra de Menezes, was captain of the old militias and lieutenant – colonel of the National Guard; he was a stern man, extremely honest and of irreproachable character. His wealth was derived from his cattle’s farm. He spent large sums of money in politics and in the assistance of friends and relatives, because of his good-natured heart. Those people, however, only looked for him in order to exploit his charitable feelings, and he ended up compromising his fortune. Upon realizing that his debts equaled his possessions, he expressed to his creditors his intention of giving them
-everything that he owned, in order to pay off the debt. The creditors, being his friend, refused to accept such a proposal, replying that he could pay them when and how he wanted.
+At thirteen he knew Latin so well that he not only gave classes to his colleagues, but also was called 
+to replace his teacher every time he had to be absent.
+
+His father, Antonio Bezerra de Menezes, was captain of the old militias and lieutenant – colonel of the 
+National Guard; he was a stern man, extremely honest and of irreproachable character. His wealth was derived 
+from his cattle’s farm. He spent large sums of money in politics and in the assistance of friends and relatives, 
+because of his good-natured heart. 
+
+Those people, however, only looked for him in order to exploit his charitable feelings, and he ended up compromising 
+his fortune. Upon realizing that his debts equaled his possessions, he expressed to his creditors his intention 
+of giving them everything that he owned, in order to pay off the debt. The creditors, being his friend, refused 
+to accept such a proposal, replying that he could pay them when and how he wanted.
 
 In spite of the insistence of the elderly honest man, his creditors didn’t change their minds. Mr. Antonio Bezerra de Menezes proposed them to remain as the administrator of what one day was his fortune, only using from it the strictly necessary
 for the maintenance of his family, who changed from a previous comfortable condition to a life of privations.
@@ -103,8 +118,9 @@ We will help you in another way: Bringing you, whenever you need, new pupils of 
 
 
 ## Source
-English: Spiritist Group of New York - Aug 2002 Great Mediums and Spiritual Guides - Translated by Jussara Korngold - TODO:: Add link to SGNY  
-Portuguese: [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/bezerrademenezes.html)
+[SGNY.org](//sgny.org)
+Spiritist Group of New York - Aug 2002 Great Mediums and Spiritual Guides - 
+Translated by Jussara Korngold
 
 
 ## Related Profiles

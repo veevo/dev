@@ -2,56 +2,58 @@
 title: Maria Dolores
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- chico-xavier
+- poems
 ---
 
-Maria Dolores veio ao mundo como Maria de Carvalho Leite, na cidade sertaneja de Bonfim de Feira (BA), no dia 10 de setembro de 1900, filha de Hermenegildo Leite, escrivão da Prefeitura, e da doméstica Balbina de Carvalho Leite. Em Bonfim passou a infância. Do casal Hermenegildo e Balbina nasceram, com Dolores, três homens e duas mulheres. Os  biógrafos, sem exceção, desconheceram o fato de que a grande poetisa baiana possuía dotes mediúnicos.
+Maria Dolores came to the world as Maria de Carvalho Leite, in the country town of Bonfim de Feira (BA), on September 10, 1900, daughter of Hermenegildo Leite, clerk of the City Hall, and the domestic Balbina de Carvalho Leite. In Bonfim he spent his childhood. The couple Hermenegildo and Balbina were born, with Dolores, three men and two women. Biographers, without exception, were unseen that the great Bahian poet had psychic teas.
 
-Em 1916, diplomou-se professora pelo Educandário dos Perdões, considerada pelas colegas e professores como adolescente prodígio, graças à rara inteligência.
+In 1916, she graduated as a teacher by the Pardon Scum, considered by colleagues and teachers as a teenage prodigy, thanks to the rare intelligence.
 
-A poesia, Dolores começou a senti-la na cidade natal, ainda quase criança, a transformar-se, mais tarde, na poetisa de bons versos que todos conhecemos.
-Lecionou no Educandário dos Perdões e no Ginásio Carneiro Ribeiro, em Salvador. Além disso, também ministrava aulas particulares. Daí por que entendemos seu modo todo especial de ensinar, por meio dos versos, às almas aflitas.
+Poetry, Dolores began to feel it in her hometown, still almost a child, becoming later the poet of good verses that we all know.
+He taught at the Educandário dos Perdões and the Carneiro Ribeiro Gymnasium in Salvador. In addition, he also taught private lessons. Hence why we understand their every special way of teaching, through verses, to afflicted souls.
 
-Seu Espírito não se limitou somente aos versos. Ela tocava piano, pintava, gostava da costura e da arte culinária. Humana por excelência, viveu desenvolvendo em si qualidades inatas.
+His Spirit was not limited only to verses. She played the piano, painted, liked the seam and culinary art. Human par excellence, he lived developing in nate qualities.
 
-Sua vida não poderia, porém, ser somente flores: estava-lhe reservada uma prova de sofrimentos morais.
+His life could not, however, be only flowers: he was reserved a proof of moral suffering.
 
-Casada com o médico Odilon Machado, suportou o infeliz consórcio durante alguns anos, o qual se interrompeu finalmente pela solução do desquite. Não houve filhos dessa união, como nunca os teria Maria Dolores.
+Married to doctor Odilon Machado, she endured the unfortunate consortium for a few years, which was finally interrupted by the solution of the unquite. There were no children of this union, as Maria Dolores would never have.
 
-Em sua peregrinação, morou em várias cidades da Bahia e foi em Itabuna que conheceu Carlos Carmine Larocca, italiano radicado no Brasil, de quem se tornou companheira ajudando-o, ombro a ombro, em suas atividades. Proprietário do Café Baiano e de uma tipografia denominada A Época. Por ocasião da II Guerra Mundial, o Sr. Larocca foi prisioneiro político devido à sua nacionalidade. Em 1947, mudou-se para Salvador, onde Maria Dolores continuou com suas sessões mediúnicas. 
+On his pilgrimage, he lived in several cities in Bahia and it was in Itabuna that he met Carlos Carmine Larocca, Italian living in Brazil, of whom he became a companion helping him, shoulder to shoulder, in his activities. Owner of Café Baiano and a typography called The Time. On the occasion of World War II, Mr. Larocca was a political prisoner because of his nationality. In 1947, she moved to Salvador, where Maria Dolores continued with her psychic sessions. 
 
-Notamos em seus versos o quanto sofrera, buscando algo que não encontrava: a sua complementação afetiva, tal como fora planejado pela Providência, para que buscasse o Amor Maior, que ela soube encontrar um dia: Jesus! Tanto sofrimento, contudo, não foi capaz de torná-la indiferente ao sofrimento humano.
-Na imprensa, falava dos direitos humanos e do sofrimento dos menos felizes. Não foi compreendida: tacharam-na de "comunista", pelo que teve de responder às acusações que lhe faziam, pois fora a isso intimada.
+We noticed in her verses how much she had suffered, seeking something she did not find: her affective complementation, as planned by Providence, so that she would seek Greater Love, which she knew how to find one day: Jesus! So much suffering, however, was not able to make it indifferent to human suffering.
+In the press, he spoke of human rights and the suffering of the less happy. It was not understood: they thought she was "communist", so she had to answer the accusations they made to her, because he had been subpoenaed.
 
-Em menina, fora católica; em adulta, o sofrimento fizera-lhe conhecer a Doutrina de Allan Kardec e veio a consolação, a aceitação do sofrimento.
-A dor que suportou a fez conhecer o então combatido Espiritismo. De alma caridosa integrou-se à Legião da Boa Vontade, fundada pelo saudoso Alziro Zarur. Era frequente ver-se Maria Dolores dedicando-se aos sofredores dos bairros pobres da cidade de Salvador. Afastando-se das lides literárias, Maria Dolores dedica-se, então, à caridade infatigável, criando meninas, sonhando edificar o Lar das Meninas sem Lar.
+In girl, outside Catholic; as an adult, suffering had made him aware of the Doctrine of Allan Kardec and came consolation, acceptance of suffering.
+The pain she endured made her know the then-fought Spiritism. Of a charitable soul he joined the Legion of Goodwill, founded by the late Alziro Zarur. It was often to see Maria Dolores dedicating herself to the sufferers of the poor neighborhoods of the city of Salvador. Moving away from literary lessons, Maria Dolores is then dedicated to indefatigable charity, raising girls, dreaming of building the Home of Homeless Girls.
 
-Receando a apreciação da crítica especializada, guardou para si sua obra poética durante muito tempo, segundo confessa no prefácio do livro Ciranda da Vida, cuja renda possibilitou a realização de seu antigo desejo. Com isso, Maria Dolores, que não fora mãe biológica, tornava-se mãe espiritual de várias meninas, abrigando em seu próprio lar crianças desvalidas, orientando e assistindo-as.
+Fearing the appreciation of specialized criticism, he kept for himself his poetic work for a long time, he confesses in the preface to the book Ciranda da Vida, whose income allowed the realization of his old desire. With this, Maria Dolores, who was not a biological mother, became a spiritual mother of several girls, sheltering in her own home desomuch children, guiding and watching them.
 
-Sendo reconhecida na Capital pela sua arte, passou a escrever nos jornais Diário de Notícias e O Imparcial sendo, neste último, redatora-chefe da Página Feminina. Durante 13 anos, escreveu nos jornais citados, mostrando o mundo de ternura que trazia dentro de si, com o pseudônimo de Maria Dolores.
-Apelidada pelos amigos e familiares de Madô e Mariinha, era reconhecida pela simpatia e bondade com que a todos cativava.
+Being recognized in Capital for her art, she began writing in the newspapers Diário de Notícias e O Imparcial and The Impartial being, in the latter, editor-in-chief of the Women's Page. For 13 years, he wrote in the newspapers cited, showing the world of tenderness he brought within himself, under the pseudonym Maria Dolores.
+Nicknamed by the friends and family of Madô and Mariinha, she was recognized for the sympathy and kindness with which everyone captivated.
 
-Fazia campanhas, prendas para os bazares realizados em sua própria casa. Fundou um grupo que se reunia em sua residência todas as semanas, quando saíam para distribuir, nos bairros carentes escolhidos, farnéis, roupas, remédios... Chamavam-se As Mensageiras do Bem. No Natal, faziam campanhas e distribuíam donativos assim como no Dia das Mães.
+He was campaigning, gifts for the bazaars held in his own home. He founded a group that met in his residence every week, when they went out to distribute, in the chosen needy neighborhoods, farnes, clothes, medicines... They were called The Messengers of Good. At Christmas, they campaigned and distributed donations as well as on Mother's Day.
 
-Dolores costurava enxovais, vendia o que era seu ou os empenhava e, às vezes, contraía dívidas para desse modo ajudar alguém. Uma de suas filhas adotivas relatou certa vez que, quando ela desencarnou, alguém viera com joias que lhe pertenceram, as quais foram dadas por ela para que se tornasse viável uma das campanhas que então se fazia.
+Dolores sewed hoxovais, sold what was his or he committed them, and sometimes contracted debts to help someone. One of her adopted daughters once reported that when she defaced, someone had come with jewels that belonged to her, which were given by her to become viable one of the campaigns that then took part.
 
-No trabalho do Senhor, na dedicação à causa evangélica, foi desenvolvendo diversas faculdades mediúnicas. Isso a ajudou a suportar injúrias, como quando fora acusada de "comunista", e outros sofrimentos que, em vez de abaterem-na, elevavam-na.
+In the Lord's work, in his dedication to the Evangelical cause, he developed several psychic faculties. This helped her endure injuries, such as when she was accused of "communist," and other sufferings that, instead of slaughtering her, elevated her.
 
-Perdoando sempre por cima de suas lágrimas, qual ensinou Jesus, trazia em si um grande sentido maternal e, como não lhe foi dado o direito da maternidade, adotou seis meninas.
+Always forgiving over his tears, which Jesus taught, brought in him a great maternal sense and, as he was not given the right of motherhood, adopted six girls.
 
-Carlos (o esposo) estava na Itália quando Dolores adoeceu. A pneumonia a atacara de forma violenta. Antonieta Bastos foi visitá-la com José e Faustino e, vendo seu estado dispneico e de real abatimento, providenciaram o internamento no Hospital Português. Inúteis foram, porém, os esforços médicos. Poucos dias depois, quatro ou cinco dias, em 27 de agosto de 1959, partiu de volta à Pátria Espiritual. Era 1h40 min. E, como disse Mara, em sua crônica, Partiu-se o Guizo de Cristal. Nilza foi avisar, imediatamente, Antonieta e Maria Alice. Levaram o corpo para a Casa de Tia Sara − sede da LBV − e de lá partiu, com grande acompanhamento, para o Campo Santo.
+Carlos (her husband) was in Italy when Dolores fell ill. Pneumonia had attacked her violently. Antoinette Bastos went to visit her with José and Faustino and, seeing her dyspneic state and real abatement, provided hospitalization at the Portuguese Hospital. However, medical efforts were useless. A few days later, four or five days later, on August 27, 1959, he left back in the Spiritual Homeland. It was 1:40 a.m. And, as Mara said, in his chronicle, the Crystal Guizo broke. Nilza immediately warned Antoinette and Maria Alice. They took the body to the House of Aunt Sara − headquarters of the LBV − and from there left, with great accompaniment, to Campo Santo.
 
-Numa carta escrita a Maria Alice, Francisco Cândido Xavier narra o seguinte: Maria Dolores lhe aparecera no dia 29 de março de 1964, bela e remoçada. As lágrimas vieram-me aos olhos, de vê-la tão claramente junto a mim. Que emoção!
+In a letter written to Maria Alice, Francisco Cândido Xavier narrates the following: Maria Dolores appeared to her on March 29, 1964, beautiful and re-engaged. The tears came to my eyes, to see her so clearly next to me. What a thrill!
 
-Dolores era alva, de cabelos e olhos pretos, alegre e brincalhona, de estatura mediana e robusta de físico. Desencarnara aos 59 anos, mas a sua lira continuou vibrando em benefício do amor, da caridade e do perdão, o seu hino ao Senhor, não diferente dos hinos que tocava e cantava cheia da alegria de servir.
+Dolores was alva, with black hair and eyes, cheerful and playful, of medium stature and robust physical. He had disembodied at the age of 59, but his lira continued to vibrate for the benefit of love, charity and forgiveness, his hymn to the Lord, no different from the hymns he played and sang full of the joy of serving.
 
-Perguntaram a Chico Xavier qual o primeiro poema que Maria Dolores escreveu por seu intermédio, e ele disse ser o belíssimo Anseio de Amor, inserido nas páginas deAntologia da Espiritualidade.
+Chico Xavier was asked what the first poem Maria Dolores wrote through him, and he said he was the beautiful Desire for Love, inserted in the pages of Anthology of Spirituality.
 
-Desde então, ela nos envia, antes pelas mãos abençoadas do médium mineiro e ainda por intermédio de Divaldo Franco, suas páginas normalmente em forma de poesia e rimas, sendo muito comum enviar as tradicionais mensagens das mães e do Natal, por ocasião dessas comemorações.
+Since then, she has sent us, rather through the blessed hands of the mining medium and also through Divaldo Franco, her pages usually in the form of poetry and rhymes, being very common to send the traditional messages of mothers and Christmas, on the occasion of these Celebrations.
 
-Maria Dolores, a poetisa que ressurgiu pelas mãos abnegadas de Francisco Cândido Xavier, quando encarnada quase sempre engavetava os seus poemas. Em seu livroCiranda da Vida ela diz o porquê: O pavor à crítica, cujos apupos são uma das formas mais comuns em que se extravasa a vaidade humana, tem-me feito recuar ante a possibilidade de publicar os meus versos simplórios e passadistas. E, por isso, foi-se a mocidade, chegou a velhice, e eles continuam a entulhar o fundo de velha gaveta. Nunca tive jeito para versejá-lo moderno, atualizado até por alguns poetas da velha guarda. Nem mesmo cheguei a tentá-lo. Agora, porém, com a reforma espiritual que traçou um novo caminho para este meu fim de vida, sinto-me disposta e capaz de enfrentar a crítica, porque este livro se destina, com sua venda, a oferecer pequena ajuda a algumas instituições de caridade. Despretensiosa a minha atitude. Mas sincera. Bem intencionada.
+Maria Dolores, the poet who resurfaced by the selfless hands of Francisco Cândido Xavier, when incarnate almost always shelved her poems. In her bookCiranda da Vida she says why: The fear of criticism, whose aptus are one of the most common ways in which human vanity is extracted, has made me retreat before the possibility of publishing my simpleton and cross-like verses. And so gone the youth, came to old age, and they continue to fill the bottom of old drawer. I've never been a good way to see it modern, updated even by some old-school poets. I didn't even try it. Now, however, with the spiritual reform that has drawn a new path to this end of life of mine, I feel willing and able to face criticism, because this book is intended, with its sale, to offer little help to some charities. Unpretentious my attitude. But sincere. Well-intentioned.
 
-Não tardou, porém, e a poetisa reaparece com seu iniludível estilo depois de uma existência inteira consagrada ao próximo, compondo, sobretudo para os leitores espíritas, os mais belos poemas de encorajamento e reconhecimento da excelsitude de Jesus.
+It was not long, however, and the poet reappears with her ineludible style after an entire existence consecrated to others, composing, especially for spiritist readers, the most beautiful poems of encouragement and recognition of jesus' excelsitude.
 
 
 ## Source

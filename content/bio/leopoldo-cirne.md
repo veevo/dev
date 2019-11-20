@@ -2,24 +2,25 @@
 title: Leopoldo Cirne
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- feb
 ---
 
-Leopoldo Cirne exerceu o cargo de Presidente da Federação Espírita Brasileira durante o período de 1900 a 1914. Nasceu em 31 de abril de 1870, na Paraíba do Norte, criando-se, porém, na cidade do Recife. Desencarnou no Rio de Janeiro, na manhã de 31 de julho de 1941. Desde cedo, nele se revelou acentuado pendor pelos estudos e, favorecido por viva inteligência, avançava, com real proveito, em seu curso de humanidades. Dificuldades financeiras obrigaram-no a abandonar os estudos e a ingressar no comércio, quando contava onze anos de idade. Os comerciários, atualmente, desfrutam de direitos que, aos de seu tempo, não eram concedidos. Mal despontava a aurora, até às caladas da noite, estava o empregado no serviço ativo. Só uma pequena parte do domingo, podia o comerciário respirar mais livremente e dispor da sua vontade. Quis, porém, o destino que o nosso biografado, apenas de ter a alma cheia de belos sonhos, se visse na contingência de enfrentar, ainda menino, as lutas e a rude disciplina comercial, sacrificando, assim, seus mais caros ideais de formação intelectual.
+Leopoldo Cirne served as President of the Brazilian Spiritist Federation during the period from 1900 to 1914. He was born on April 31, 1870, in Paraíba do Norte, but was created in the city of Recife. He defaced rio de Janeiro on the morning of July 31, 1941. From an early age, he proved to be a sharp pain in his studies and, favored by living intelligence, advanced, with real advantage, in his course of humanities. Financial difficulties forced him to drop his studies and enter trade when he was eleven years old. The merchants currently enjoy rights that, those of their time, were not granted. As soon as the dawn was emerging, until the dead of night, was the employee in active service. Only a small part of Sunday could the merchant breathe more freely and dispose of his will. However, he wanted the fate that our biographer, only of having a soul full of beautiful dreams, saw himself in the contingency of facing, as a boy, the struggles and the rude commercial discipline, thus sacrificing his most expensive ideals of intellectual formation.
 
-Não é sabido se, em aqui chegando, pelo ano de 1891, trazia já sua crença firmada na Terceira Revelação. O certo, porém, é que em pleno desabrochar da sua juventude, pois contava mais ou menos vinte e dois anos de idade, já ao lado do inolvidável Bezerra de Menezes, trabalhava tão sincera e entusiasticamente em prol do Espiritismo, que, desde logo, granjeou a confiança de seus confrades que lhe sufragaram, em 1895, o nome para Vice-Presidente da Federação Espírita Brasileira.
+It is not known whether, in coming here, by the year 1891, it already brought its belief in the Third Revelation. The right thing, however, is that in the midst of the blossoming of his youth, because he was about twenty-two years old, already alongside the unforgettable Bezerra de Menezes, worked so sincerely and enthusiastically for the sake of Spiritism, which, from the outset, earned the confidence of his confreres who suffraged him, in 1895, the name for Vice-President of the Brazilian Spiritist Federation.
 
-Despontava o dia 11 de abril de 1900 e a família espírita brasileira, os pobres, os pequeninos, os ignorados tiveram que enfrentar o fato de que o Espírito de Adolfo Bezerra de Menezes, o grande Presidente da Federação Espírita Brasileira, partira para as regiões sublimes do Além.
+The Brazilian Spirit is emerging on April 11, 1900, the poor, the little ones, the ignored had to face the fact that the Spirit of Adolfo Bezerra de Menezes, the great President of the Brazilian Spiritist Federation, had left for the regions sublimes from beyond.
 
-Foi, pois, a Leopoldo Cirne que coube a tarefa de suprema direção da Casa de Ismael. E a sua atuação nesse alto posto foi tão marcante que, por cerca de catorze anos, o exerceu com verdadeiro amor evangélico e dentro daquele espírito de sincera humildade de que o Cristo nos deu edificante exemplo. Embora no começo de sua vida fora ele obrigado a interromper seu curso de humanidades, todavia, com esforço próprio, conseguiu Leopoldo Cirne ser um dos mais puros vernaculistas, deixando-nos artigos e obras que até hoje merecem a nossa admiração.
+It was, therefore, leopoldo Cirne who was the task of supreme direction of the House of Ishmael. And his performance in this high office was so remarkable that, for about fourteen years, he exercised it with true evangelical love and within that spirit of sincere humility that Christ gave us an uplifting example. Although at the beginning of his life he had been forced to interrupt his course of humanities, however, with his own effort, he managed Leopoldo Cirne to be one of the purest vernaculists, leaving us articles and works that to this day deserve our admiration.
 
-À sua perseverante força de vontade e de confiança na misericórdia do Alto, deve a Federação Espírita Brasileira a sede na Avenida Passos, inaugurada no dia 10 de dezembro de 1911.
+To its persevering willpower and confidence in the mercy of alto, the Brazilian Spiritist Federation owes the headquarters on Avenida Passos, inaugurated on December 10, 1911.
 
-Consagrou-se no campo da literatura filosófico-religiosa como um dos grandes pensadores do Movimento Espírita do País, sendo mesmo cognominado − o Léon Denis brasileiro.
+He consecrated himself in the field of philosophical-religious literature as one of the great thinkers of the Spiritist Movement of the country, being even considered – the Brazilian Léon Denis.
 
-Conhecia profundamente a Bíblia e tinha de cor muitos trechos da Vida do Cristo. As melhores obras de religião, filosofia, ciência, arte e literatura em geral lhe eram familiares.
+I knew the Bible deeply and had many parts of Christ's Life in color. The best works of religion, philosophy, science, art and literature in general were familiar to him.
 
-Traduziu vários livros para o nosso idioma, entre eles No Invisível e Cristianismo e Espiritismo, ambos de Léon Denis; e organizou, em 1904, o opúsculo Memória Histórica do Espiritismo. 
+He translated several books into our language, including In the Invisible and Christianity and Spiritism, both by Léon Denis; and organized, in 1904, the opuscule Historical Memory of Spiritism. 
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/leopoldocirne.html)

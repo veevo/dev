@@ -2,7 +2,9 @@
 title: León Denis
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- leon-denis
+- allan-kardec
 ---
 
 Leon Denis was born in a village called Foug, located in the surroundings of Tours , in France , on January 1st, 1846 , of a humble family. Very early in life out of necessity, he did manual works and had to carry the heavy responsibilities of his family. From his first steps into this world, he sensed that invisible friends assisted him. Instead of participating in plays relating to his youth, he tried to instruct himself as intensely as possible. He read serious works, thus striving through his own efforts, to develop his intelligence, and became a serious and competent self-didactic.
@@ -41,7 +43,6 @@ In a well advanced age, blind, and with a relatively weak constitution, he still
 ## Source
 SGNY - Great Exponents of Spiritism (Aug 2002)  
 (Excerpted From the website of The Spiritist Federation of Paraná)  
-TODO:: Add link to SGNY
 
 ## Bibliography
 Christianity and Spiritism  
@@ -60,9 +61,4 @@ Life and Destiny
 Progress  
 Experimental tests of the Survival  
 Socialism and Spiritism  
-
-## See Also
-[Leon Denis - O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/leondenis.html)  
-TODO
-
 

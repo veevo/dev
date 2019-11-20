@@ -2,36 +2,44 @@
 title: Lins de Vasconcellos
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- brazil
+- curitiba
+- parana
 ---
 
-Artur Lins de Vasconcellos Lopes foi expressiva figura do Espiritismo brasileiro.
+Artur Lins de Vasconcellos Lopes was an expressive figure of Brazilian Spiritism.
 
-Franco e combativo, jovial e sereno, sincero e leal, bom e caridoso fazia dessas virtudes uma coisa rotineira em sua vida de relação, sem jamais ostentá-la no convívio com seus companheiros de ideal.
+Frank and combative, jovial and serene, sincere and loyal, good and charitable made these virtues a routine thing in their relationship life, without ever ostenting her in the conviviality with his companions of ideal.
 
-Foi presidente da Coligação Nacional Pró-Estado Leigo, instituição republicana fundada em 17 de maio de 1931, a qual desenvolveu ingente trabalho em favor da separação entre a Igreja e o Estado, principalmente por ocasião dos trabalhos constituintes que culminaram com a promulgação da nova Constituição Brasileira, no ano de 1946, tendo enviado numerosas ações cívicas de grande profundidade nos anos subsequentes.
+He was president of the National Pro-State Lay Coalition, a Republican institution founded on May 17, 1931, which developed ingente work in favor of the separation between the Church and the State, especially on the occasion of the constituent works that culminated in the promulgation of the new Brazilian Constitution in 1946, having sent numerous civic actions of great depth in subsequent years.
 
-O esforço de Lins de Vasconcellos em favor do congraçamento dos espíritas do Brasil foi dos mais salientes, contribuindo de forma decisiva para o advento do Pacto Áureo de unificação dos espíritas do Brasil, no dia 5 de outubro de 1949. A ele se deve apreciável parcela dos trabalhos encetados nos anos de 1947 a 1952, em favor de um maior entrelaçamento entre os espíritas em nosso país.
+Lins de Vasconcellos' effort in favor of the congrace of Brazilian spiritists was one of the most salient, contributing decisively to the advent of the Golden Pact for the unification of Brazilian spiritists on October 5, 1949. He is due to a sensible portion of the works initiated in the years 1947 to 1952, in favor of a greater intertwining between spiritists in our country.
 
-Do jornal Mundo Espírita' que se edita em Curitiba, extraímos os seguintes dados biográficos desse grande vulto do Espiritismo brasileiro:
+From the newspaper Mundo Espírita' that is edited in Curitiba, we extracted the following biographical data from this great figure of Brazilian Spiritism:
 
-A batalha travada por Lins de Vasconcellos foi ingente, árdua e heroica.
+The battle fought by Lins de Vasconcellos was ingent, arduous and heroic.
 
-Nascido numa região áspera, princípio geográfico da caatinga, entre Paraíba e Pernambuco, era natural que Artur Lins trouxesse no Espírito a agressividade do berço agreste. Lutando, todavia, contra o meio, aprimorando qualidades, resistindo aos meios desonestos de ganho, foi abrindo um caminho limpo para a vida. Ainda na adolescência, Lins deixou a Paraíba para residir no Rio de Janeiro. Na antiga Capital Federal a demora foi curta.
+Born in a rough region, geographical principle of caatinga, between Paraíba and Pernambuco, it was natural for Artur Lins to bring in the Spirit the aggressiveness of the harsh cradle. Fighting, however, against the environment, improving qualities, resisting the dishonest means of gain, was paving a clear path to life. Still in his teens, Lins left Paraíba to reside in Rio de Janeiro. In the old Federal Capital the delay was short.
 
-Imaturo, com aquela ânsia de aventuras próprias da idade, e também ávido de conhecimento, Lins partiu para o sul do país, fixando-se em Curitiba. Constituiu família; formou-se em agronomia; fez concurso para cartorário. Sua vida seguiu firme. Tornou-se espírita, integrando-se totalmente na doutrina. Em 1926 houve grave incidente entre o governo do Estado e elementos liberais, por questões religiosas. É que o governo estadual, sem autorização da Assembleia, presenteara terrenos e dinheiro do patrimônio público ao clero. Pequeno número de cidadãos protestou contra o ato indébito do governo. Entre eles estava Lins de Vasconcelos. Este defendeu, de forma corajosa, perante o governo, que os princípios tutelares da democracia são inderrogáveis ainda ao arbítrio dos governadores. Aquela posição destemida de Lins na questão dos bispados acarretou-lhe demissão do cargo. Vencera o fanatismo religioso; sobrepunha-se a intolerância ao direito intangível de um democrata. E sobrava razão a Lins: o governo não podia dar ao clero, de mão beijada, terrenos e dinheiro do Estado.
+Immature, with that eagerness for adventures of his own age, and also eager to know, Lins left for the south of the country, settling in Curitiba. He constituted a family; graduated in agronomy; made tender for postorary. Your life has gone on tight. He became a spiritist, integrating entirely into doctrine. In 1926 there was a serious incident between the state government and liberal elements, for religious reasons. It is that the state government, without authorization from the Assembly, had presented land and money from public assets to the clergy. Small numbers of citizens protested against the government's indebit act. Among them was Lins de Vasconcelos. He courageously argued before the government that the tutelary principles of democracy are still inderogable to the agency of governors. That fearless position of Lins on the issue of bishoprics led to his resignation from office. He had overcome religious fanaticism; intolerance to a Democrat's intangible law was superimposed. And there was reason for Lins: the government could not give the clergy, hand kissed, land and state money.
 
-Uma vez demitido, Lins não se deixou abater pela sanha intolerante. Colocou suas energias na indústria. Venceu. Tornou-se milionário. Mas o dinheiro que amealhava facilmente como ele próprio dizia − era um depósito que lhe fazia Deus para a distribuição aos pobres, através do Espiritismo. Fez-se banqueiro dos desafortunados!
+Once fired, Lins didn't let himself be shot by the intolerant sanha. You put your energy in the industry. Won. He became a millionaire. But the money he easily collected as he himself said – it was a deposit that made Him God for distribution to the poor through Spiritism. He became a banker of the unfortunate!
 
-Era simples e sem vaidades. O que mais se admirava em Artur era o triunfo do seu Espírito sobre uma das mais terríveis provas a que uma criatura pode submeter-se: a riqueza! Rico, mais do que rico, opulento, Lins de Vasconcellos venceu galhardamente o fascínio do ouro, esmagou o poderio que a fortuna traz, afogou no nascedouro os gozos efêmeros que o dinheiro carreia. A moeda que lhe vinha dos negócios era destinada a  creches, a orfanatos, a albergues, a sanatórios, a escolas, a revistas e a jornais doutrinários.
+It was simple and without vanity. What was most admired in Arthur was his Spirit's triumph over one of the most terrible evidence to which a creature can submit: wealth! Rich, more than rich, opulent, Lins de Vasconcellos beat the golden fascination, crushed the might that fortune brings, drowned in the borndouro the ephemeral jouissance that money carries. The currency that came from business was destined for day care centers, orphanages, hostels, sanatoriums, schools, magazines and doctrinal newspapers.
 
-Há lindos lances de puro Cristianismo na vida de Artur Lins de Vasconcellos, mas relatá-los seria, por certo ferir a humildade do nosso querido irmão desencarnado. Basta chamar-lhe: Banqueiro dos Pobres! É um título magnificente que milhões e milhões de desencarnados gostariam de possuir. Artur Lins de Vasconcellos obteve esse título em vida, abençoado por milhares de bocas!
+There are beautiful bids of pure Christianity in the life of Artur Lins de Vasconcellos, but reporting them would certainly hurt the humility of our dear disembodied brother. Just call him: Banker of the Poor! It is a magnificent title that millions and millions of disembodied would like to possess. Artur Lins de Vasconcellos obtained this title in life, blessed by thousands of mouths!
 
-Lins de Vasconcellos não se empolgou com seus sucessos mundanos. Fez, isso sim, da riqueza material, instrumento para a realização do Bem. Foi bom, vestindo os desnudos, dando de comer aos esfomeados, instrução e educação aos que dessa assistência precisavam.
+Lins de Vasconcellos was not thrilled with his worldly successes. 
+He did, yes, of material wealth, an instrument for the realization of good. 
+It was good, wearing the naked, eating the hungry, instruction and education to those who needed this assistance.
 
-Tendo desencarnado em S. Paulo, seu corpo foi para Curitiba − cidade que tanto amou − e em cujo solo desejava que sua matéria repousasse no dia que o Pai o chamasse. Seu pedido foi satisfeito. Assim, no Jardim em frente ao Pavilhão Administrativo do Sanatório Bom Retiro, no bairro do Pilarzinho, em Curitiba, encimado por uma pedra simples, mas que revela bom gosto, na qual há uma placa de bronze com expressiva inscrição, foi inumado o corpo do querido companheiro de ideal espírita, aquele que tantas lutas sustentou ante a incompreensão dos homens, para que a Doutrina dos Espíritos demonstrasse ser capaz de transformar as criaturas desajustadas em seres com capacidade para amar o próximo, assim como Jesus nos amou.
+Having disembodied in St. Paul, his body went to Curitiba − a city he loved so much − and in whose soil 
+he wanted his matter to rest on the day the Father called him. Your request was satisfied. 
+Thus, in the Garden in front of the Administrative Pavilion of The Sanatorium Bom Retiro, in the neighborhood of Pilarzinho, in 
+Curitiba, surmounted by a simple stone, but which reveals good taste, in which there is a bronze plaque with expressive inscription, was inhumed the body of the dear companion of spiritist ideal, the one that sustained before the misunderstanding of men, so that the Doctrine of spirits demonstrated that he was able to transform the misfit creatures into beings capable of loving others, just as Jesus loved us.
 
-A Federação Espírita do Paraná, que tantos benefícios recebeu de Lins de Vasconcellos, prestou-lhe ultimamente significativa homenagem, dando seu respeitável e inesquecível nome ao educandário que naquele bairro mantém, no momento, funcionando com o curso ginasial, o Instituto 'Lins de Vasconcellos'. 
+The Spiritist Federation of Paraná, which received so many benefits from Lins de Vasconcellos, recently paid him significant tribute, giving his respectable and unforgettable name to the clerk who in that neighborhood maintains, at the moment, working with the course ginasial, the Institute 'Lins de Vasconcellos'. 
 
 
 ## Source

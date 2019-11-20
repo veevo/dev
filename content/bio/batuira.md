@@ -2,46 +2,48 @@
 title: Batuíra (Antonio G. da Silva)
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- sao-paulo
+- brazil
 ---
 
-Nasceu Batuíra aos 19 de março de 1839, em Portugal, na freguesia de Águas Santas, hoje integrada no conselho de Maia. Filho de humildes camponeses, tendo apenas completado a instrução primária, veio, com cerca de 11 anos de idade, para o Brasil, aportando na Guanabara em 3 de Janeiro de 1850.
+Batuíra was born on March 19, 1839, in Portugal, in the parish of Águas Santas, now integrated into the council of Maia. The son of humble peasants, having only completed primary education, came, at the age of 11, to Brazil, landing in Guanabara on January 3, 1850.
 
-Durante três anos trabalhou no comércio da Corte. Daí passou para Campinas-SP, onde ficou por algum tempo, até que se transferiu definitivamente para a capital paulista, que, na ocasião, deveria possuir menos de 30.000 habitantes. Aí, nos primeiros anos, foi distribuidor do Correio Paulistano. Naquele tempo, não havia bancas de jornais nos lugares públicos. A entrega se fazia à tarde, de casa em casa, e tão somente aos assinantes.
+For three years he worked in the Court trade. From there he moved to Campinas-SP, where he stayed for some time, until he transferred permanently to the state capital, which, at the time, had less than 30,000 inhabitants. Then, in the early years, he was a distributor of Correio Paulistano. At that time, there were no newsstands in the public places. The delivery was made in the afternoon, from house to house, and only to subscribers.
 
-Diligente, honesto e Espírito dócil, Batuíra, como entregador de jornais, ia formando amigos e admiradores em toda parte. Parece que foi neste período que aprendeu a arte tipográfica, certamente nas próprias oficinas do Correio Paulistano.
+Diligent, honest and docile spirit, Batuíra, as a newspaper delivery man, was forming friends and admirers everywhere. It seems that it was in this period that he learned typographic art, certainly in the workshops of correio Paulistano.
 
-Batuíra, muito ativo, correndo daqui para acolá, foi apelidado "o batuíra", nome que o povo dava à narceja, ave pernalta, muito ligeira, de voo rápido, que frequentava os charcos na várzea formada, no atual Parque D. Pedro II, pelos transbordamentos do Rio Tamanduateí. O nome do rapazinho era Antonio Gonçalves da Silva, mas, de então em diante, tomou para si o apelido de Batuíra.
+Batuíra, very active, running from here to there, was nicknamed "the batuíra", name that the people gave to the narcissist, bird pernalta, very light, fast flight, which frequented the ponds in the lowland formed, in the current Parque D. Pedro II, by the overflows of Rio Mr. Tamanduateí. The boy's name was Antonio Gonçalves da Silva, but from then on, he took to himself the nickname Of Batuíra.
 
-Dentro de pouco tempo, com as economias que reuniu, e naturalmente com o auxílio de pessoas amigas, montou um teatrinho nos fundos de uma taverna da rua Cruz Preta. Naquela modesta casa de espetáculos, muitos amadores fizeram sua estreia, inclusive Batuíra.
+In a short time, with the savings he gathered, and of course with the help of friendly people, he set up a little screen in the back of a tavern on Cruz Preta Street. In that modest concert hall, many amateurs made their debut, including Batuíra.
 
-Perseverando na sua faina, dedicou-se depois à fabricação de charutos. Assim, com bastante trabalho e economia, Batuíra fazia crescer suas modestas finanças, o que lhe permitiu esposar Brandina Maria de Jesus, de quem teve um filho, Joaquim Gonçalves Batuíra, que veio a falecer depois de homem feito e casado.
+Persevering in his faina, he then devoted himself to the manufacture of cigars. Thus, with a lot of work and economics, Batuíra grew his modest finances, which allowed him to marry Brandina Maria de Jesus, of whom he had a son, Joaquim Gonçalves Batuíra, who died after a man made and married.
 
-Audaz, tal como os grandes empreendedores, investiu seu dinheiro na compra de áreas desvalorizadas, iniciando a construção de pequenas casas para alugar, tornando-se assim um abastado proprietário, cujos haveres traduziam o fruto de muitos anos de trabalho árduo e honrado, unido a uma perseverança inquebrantável.
+Audacious, like the great entrepreneurs, invested their money in buying devalued areas, starting the construction of small houses to rent, thus becoming a wealthy owner, whose possessions translated the fruit of many years of hard work and honored, united to unbreakable perseverance.
 
-Na ocasião em que tudo parecia correr bem, falece, quase repentinamente, o filho único de sua segunda esposa, D. Maria das Dores Coutinho e Silva. Era uma criança de doze anos, por quem o casal se extremava em dedicação e carinho.
+At the time when everything seemed to go well, the only son of his second wife, D. Maria das Dores Coutinho e Silva, dies almost suddenly. He was a twelve-year-old child, for whom the couple were extremely in dedication and affection.
 
-Este golpe feriu profundamente aquele lar, que só pode encontrar lenitivo para a dor na consoladora Doutrina dos Espíritos.
+This blow deeply injured that home, which can only find lenitive for pain in the comforting Doctrine of Spirits.
 
-Tão grande foi a paz que o Espiritismo lhes infundiu, que Batuíra imediatamente pôs mãos à obra, no desejo ardente de que outros companheiros de labutas terrenas tivessem conhecimento daquela abençoada fonte de esperanças novas. E dentro daquele corpo baixo e de compleição robusta, um coração de ouro daria mais larga expansão aos seus nobres sentimentos de amor ao próximo.
+So great was peace that Spiritism infused them, that Batuíra immediately got to work, in the ardent desire that other earthly toil companions would be aware of that blessed source of new hopes. And within that low body and robust completeness, a heart of gold would give wider expansion to its noble feelings of love for others.
 
-No ano de 1889, Batuíra passou a ser, na cidade de São Paulo, o agente exclusivo do Reformador, função de que se encarregou até 1899 ou 1900.
+In 1889, Batuíra became, in the city of São Paulo, the exclusive agent of the Reformer, a function that was in charge until 1899 or 1900.
 
-No dia 6 de abril, de 1890, restabeleceu o Grupo Espírita Verdade e Luz, que havia muito se achava adormecido.
+On April 6, 1890, he restored the Spiritist Truth and Light Group, which had long been asleep.
 
-Adquiriu então uma pequena tipografia, destinada à divulgação e propagação do Espiritismo, editando a publicação quinzenal chamada Verdade e Luz, que atingiu, no ano de 1897, a marca de 15.000 exemplares.
+He then acquired a small typography, intended for the dissemination and propagation of Spiritism, editing the fortnightly publication called Truth and Light, which reached, in 1897, the mark of 15,000 copies.
 
-Batuíra era também médium curador, sendo centenas as curas de caráter físico e espiritual que obtinha ministrando água fluidificada ou aplicando passes magnéticos.
+Batuíra was also a healing medium, with hundreds being the healings of a physical and spiritual character that obtained by ministering fluidized water or applying magnetic passes.
 
-Em virtude de todos esses fatos, o povo, o mais beneficiado por Batuíra, passou a denominá-lo médico dos pobres, cognome que igualmente aureolou o nome de Adolfo Bezerra de Menezes.
+By virtue of all these facts, the people, most benefited by Batuíra, began to appoint him doctor of the poor, cognomen who also received the name of Adolfo Bezerra de Menezes.
 
-A ação benemérita de Batuíra não se circunscrevia, entretanto, a essas manifestações da caridade cristã. Foi muito mais além. Criou ele Grupos e Centros Espíritas em São Paulo, Minas Gerais, Estado do Rio, os quais animava e assistia; realizou conferências sobre diversos temas doutrinários, em inúmeras cidades de vários Estados, ocasião em que também visitava e curava irmãos sofredores; espalhou gratuitamente prospectos e folhetos de propaganda do Espiritismo, por ele próprio impressos, e distribuiu milhares de livros pelo interior do País.
+Batuíra's benemérite action is not limited, however, to these manifestations of Christian charity. It went much further. He created Spiritist Groups and Centers in São Paulo, Minas Gerais, State of Rio, which animated and watched; held conferences on various doctrinal themes in numerous cities in several States, when he also visited and healed suffering brothers; spread free prospectuses and propaganda brochures of Spiritism, by itself printed, and distributed thousands of books throughout the country.
 
-Batuíra, unido a outros confrades ilustres, constituiu na capital paulista, em 24 de maio de 1908, a União Espírita do Estado de S. Paulo, que federaria todos os Centros e Grupos existentes no Estado.
+Batuíra, united with other illustrious confreres, constituted in the state capital, on May 24, 1908, the Spiritist Union of the State of S. Paulo, which would federate all existing Centers and Groups in the State.
 
-Assim era o valoroso obreiro da Terceira Revelação, o incansável lidador que nunca se deixou abater pelas asperezas da jornada, tendo sido incontestavelmente um dos maiores propagandistas do Espiritismo no Brasil.
+Thus was the valiating worker of the Third Revelation, the tireless caretaker who never let himself be slaughtered by the roughness of the journey, having been undeniably one of the greatest propagandists of Spiritism in Brazil.
 
-Carregando sobre os ombros muitas responsabilidades, não sentiu, tão preso se achava ao cumprimento dos seus deveres, que suas forças vitais se esgotavam rapidamente. Súbita enfermidade assalta-lhe o corpo e, desse modo, em poucos dias, transpõe as aduanas do além. Aos 22 de janeiro, de 1909, sexta-feira, cerca de uma hora da madrugada, faleceu Sr. Antônio Gonçalves da Silva Batuíra.
+Carrying on his shoulders many responsibilities, he did not feel, so imprisoned he thought to fulfill his duties, that his vital forces were exhausted quickly. Sudden illness assaults his body and thus, in a few days, transposes the aduanas from beyond. On January 22, 1909, Friday, about an hour in the morning, Mr. Antônio Gonçalves da Silva Batuíra died.
 
 
 ## Source
