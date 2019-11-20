@@ -2,61 +2,61 @@
 title: Eurípedes Barsanulfo
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- euripedes-barsanulfo
+- superior-spirit
+- bezerra-de-menezes
+- mediumship
 ---
 
+Born on May 1, 1880, in the small town of Sacramento, State of Minas Gerais, and disembodied in the same city, at the age of 38, on November 1, 1918.\r
 
-Nascido em 1° de maio de 1880, na pequena cidade de Sacramento, Estado de Minas Gerais, e desencarnado na mesma cidade, aos 38 anos de idade, em 1° de novembro de 1918.
+Soon, deep intelligence and sense of responsibility manifested itself, a collection naturally conquered in the experiences of past lives.\r
 
-Logo cedo manifestou-se nele profunda inteligência e senso de responsabilidade, acervo conquistado naturalmente nas experiências de vidas pretéritas.
+He was still very young, but very studious and with tendencies for teaching and, therefore, was tasked by his master-school to teach his own classmates. Respectable political representative of his community, he became secretary of the Brotherhood of St. Vincent de Paula, having actively participated in the foundation of the journal Gazeta de Sacramento and sacramentano high school. Soon he was squeaking to the natural position of leader, for his safe guidance on the true values of life.\r
 
-Era ainda bem moço, porém muito estudioso e com tendências para o ensino e, por isso, foi incumbido pelo seu mestre-escola de ensinar aos próprios companheiros de aula. Respeitável representante político de sua comunidade, tornou-se secretário da Irmandade de São Vicente de Paula, tendo participado ativamente da fundação do jornal Gazeta de Sacramento e do Liceu Sacramentano. Logo se viu guindado à posição natural de líder, por sua segura orientação quanto aos verdadeiros valores da vida.
+Through information provided by one of his uncles, he became aware of the existence of spiritist phenomena and the works of the Kardequian Codification. In the face of the facts, he returned his activities entirely to the new Doctrine, researching in all means and ways, until he completely undos his doubts.\r
 
-Através de informações prestadas por um dos seus tios, tomou conhecimento da existência dos fenômenos espíritas e das obras da Codificação Kardequiana. Diante dos fatos, voltou totalmente suas atividades para a nova Doutrina, pesquisando por todos os meios e maneiras, até desfazer totalmente suas dúvidas.
+Awakened and convinced, he became without delay and without fading, identifying himself fully with the new ideals, a sincere and own attitude of his personality. He then sought the vicar of the mother church where he provided his collaboration, making available to him as secretary of the Brotherhood.\r
 
-Despertado e convicto, converteu-se sem delongas e sem esmorecimentos, identificando-se plenamente com os novos ideais, numa atitude sincera e própria de sua personalidade. Procurou, então, o vigário da Igreja matriz onde prestava sua colaboração, colocando à disposição do mesmo o cargo de secretário da Irmandade.
+This event resonated loudly among the inhabitants of the city and among members of his own family. In a few days he began to suffer the consequences of his misunderstood attitude.\r
 
-Repercutiu estrondosamente tal acontecimento entre os habitantes da cidade e entre membros de sua própria família. Em poucos dias começou a sofrer as consequências de sua atitude incompreendida.
+He persisted teaching and among the subjects included the teaching of Spiritism, provoking reaction in many people in the city, being sought by the parents of the students, who came to offer him money to return to the new subject and, in the face of his refusal, the students were removed one by one.\r
 
-Persistiu lecionando e entre as matérias incluiu o ensino do Espiritismo, provocando reação em muitas pessoas da cidade, sendo procurado pelos pais dos alunos, que chegaram a oferecer-lhe dinheiro para que voltasse atrás quanto à nova matéria e, ante sua recusa, os alunos foram retirados um a um.
+Under pressure of every order and merciless persecution, Euripides suffered severe trauma, withdrawing for treatment and recovery in a neighboring city, at which time they blossomed several mediumistic faculties, especially healing, awakening him to the missionary life. One of the first cases of healing occurred precisely with her own mother who, re-established, became a valuable advisor in her work.\r
 
-Sob pressões de toda ordem e impiedosas perseguições, Eurípedes sofreu forte traumatismo, retirando-se para tratamento e recuperação em uma cidade vizinha, época em que nele desabrocharam várias faculdades mediúnicas, em especial a de cura, despertando-o para a vida missionária. Um dos primeiros casos de cura ocorreu justamente com sua própria mãe que, restabelecida, tornou-se valiosa assessora em seus trabalhos.
+The production of various phenomena caused hundreds of people from other stops to Sacramento, sheltering in hotels, pensions and even family homes, because all Barsanulfo attended and no one left for some benefit, at least the lenitive of faith and renewed hope and, when deserved, the benefit of healing through kind Spiritual Benefactors.\r
 
-A produção de vários fenômenos fez com que fossem atraídas para Sacramento centenas de pessoas de outras paragens, abrigando-se nos hotéis, pensões e até mesmo em casas de famílias, pois a todos Barsanulfo atendia e ninguém saía sem algum proveito, no mínimo o lenitivo da fé e a esperança renovada e, quando merecido, o benefício da cura, através de bondosos Benfeitores Espirituais.
+He assisted everyone, without distinction of class, creed or color, and where his presence was necessary, there he was, there were or not material conditions.\r
 
-Auxiliava a todos, sem distinção de classe, credo ou cor e, onde se fizesse necessária a sua presença, lá estava ele, houvesse ou não condições materiais.
+He never faded and humbly followed his path full of mishaps, but excited by the most vivid idealism. He soon felt the need to publicize Spiritism, increasing the number of his followers. For this purpose he founded the Spiritist Group Hope and Charity, in 1905, a task in which he was supported by his brothers and some friends, going on to develop interesting works, both in the doctrinal field and in social assistance activities.\r
 
-Jamais esmorecia e, humildemente, seguia seu caminho cheio de percalços, porém animado do mais vivo idealismo. Logo sentiu a necessidade de divulgar o Espiritismo, aumentando o número dos seus seguidores. Para isso fundou o Grupo Espírita Esperança e Caridade, no ano de 1905, tarefa na qual foi apoiado pelos seus irmãos e alguns amigos, passando a desenvolver trabalhos interessantes, tanto no campo doutrinário, como nas atividades de assistência social.
+On one occasion, he fell into a trance among the students during a class. Returning to you, he described the meeting in Versailles, France, shortly after World War I, giving the names of the participants and the exact time of the meeting when the famous treaty was signed.\r
 
-Certa ocasião, caiu em transe em meio dos alunos, no decorrer de uma aula. Voltando a si, descreveu a reunião havida em Versailles, França, logo após a I Guerra Mundial, dando os nomes dos participantes e a hora exata da reunião quando foi assinado o célebre tratado.
+On April 1, 1907, he founded Allan Kardec College, which became a true milestone in the field of teaching. This educational institute came to be known throughout Brazil, having worked uninterruptedly since its inauguration, with an average of 100 to 200 students, until October 18, when it was forced to lock its doors for some time, due to the great epidemic of Spanish flu that ravaged our country.\r
 
-Em 1° de abril de 1907, fundou o Colégio Allan Kardec, que se tornou verdadeiro marco no campo do ensino. Esse instituto educacional passou a ser conhecido em todo o Brasil, tendo funcionado ininterruptamente desde a sua inauguração, com a média de 100 a 200 alunos, até o dia 18 de outubro, quando foi obrigado a cerrar suas portas por algum tempo, devido à grande epidemia de gripe espanhola que assolou nosso país.
+His work became so known that when enrollment was opened for enrollment, they ended on the same day, such was the search for students, forcing a college from the same region, run by nuns of the Order of St. Francis, to end their activities by lack of regulars.\r
 
-Seu trabalho ficou tão conhecido que, ao abrirem-se as inscrições para matrículas, as mesmas se encerravam no mesmo dia, tal era a procura de alunos, obrigando um colégio da mesma região, dirigido por freiras da Ordem de S. Francisco, a encerrar suas atividades por falta de frequentadores.
+Led by strong pulse, with safe guideline, the spiritist movement was strengthened in the region and this fact greatly bothered the Catholic clergy, passing this, initially veiled and, soon after, reportedly, to develop a defamatory campaign involving the worthy missionary and the doctrine of liberation, which was gallantly defended by Euripides, through the columns of the newspaper Lever, speaking mainly on the theme:God is not Jesus and Jesus is not God, with marked argumentation and undeniable, determining the defeat of his opponents who, in front of a giant who did not know fading in the fight, sent coming from Campinas, State of S. Paulo, reverend Feliciano Yague, famous for his preaching and knowledge, convinced that with his arguments and convictions they would inflict the ultimate blow into Spiritism.\r
 
-Liderado a pulso forte, com diretriz segura, robustecia-se o movimento espírita na região e esse fato incomodava sobremaneira o clero católico, passando este, inicialmente de forma velada e, logo após, declaradamente, a desenvolver uma campanha difamatória envolvendo o digno missionário e a doutrina de libertação, que foi galhardamente defendida por Eurípedes, através das colunas do jornal Alavanca, discorrendo principalmente sobre o tema:Deus não é Jesus e Jesus não é Deus, com argumentação abalizada e incontestável, determinando fragorosa derrota dos seus opositores que, diante de um gigante que não conhecia esmorecimento na luta, mandaram vir de Campinas, Estado de S. Paulo, o reverendo Feliciano Yague, famoso por suas pregações e conhecimentos, convencidos de que com suas argumentações e convicções infligiriam o golpe derradeiro no Espiritismo.
+This is how the priest challenged Euripides to a controversy in the public square. This was accepted and combined in terms respected by the well-known apostle of good.\r
 
-Foi assim que o referido padre desafiou Eurípedes para uma polêmica em praça pública. Esta foi aceita e combinada em termos respeitados pelo conhecido apóstolo do bem.
+On the marked day, the priest began his remarks, insulting Spiritism and spiritists, "doctrine of the devil and his adherents, madmen susceptible to eternal punishment", in a demonstration of false religious zeal, thus giving public witness to hatred, showing his soul full of intolerance and sectarianism.\r
 
-No dia marcado, o padre iniciou suas observações, insultando o Espiritismo e os espíritas, "doutrina do demônio e seus adeptos, loucos passíveis das penas eternas", numa demonstração de falso zelo religioso, dando assim testemunho público do ódio, mostrando sua alma repleta de intolerância e de sectarismo.
+The crowd that remained respectful and confident in the replica of the defender of Spiritism, anticipated the defeat of the offenders, by the very fragility of their empty and inconsistent arguments.\r
 
-A multidão que se mantinha respeitosa e confiante na réplica do defensor do Espiritismo, antevia a derrota dos ofensores, pela própria fragilidade dos seus argumentos vazios e inconsistentes.
+The sublime missionary serenely waited for his opportunity, starting his part with a sincere, humble and beautiful prayer, begging for peace and tranquility for one and light to others, making the environment conducive to inspiration and assistance of the larger plan and, in then began to defend the principles on which his teachings were founded.\r
 
-O missionário sublime aguardou serenamente sua oportunidade, iniciando sua parte com uma prece sincera, humilde e bela, implorando paz e tranquilidade para uns e luz para outros, tornando o ambiente propício para inspiração e assistência do plano maior e, em seguida, iniciou a defesa dos princípios nos quais se alicerçavam seus ensinamentos.
+With delicacy, with logic, giving vent to his intelligence, discourted the doctrinal distortions proclaimed by the Reverend, reducing them to the insignificance of his parsimonious knowledge, corroborated by the joyful and noisy manifestation of the crowd that from the beginning he trusted that which easily demonstrated the logic of the teachings proclaimed by Spiritism.\r
 
-Com delicadeza, com lógica, dando vazão à sua inteligência, descortinou os desvirtuamentos doutrinários apregoados pelo Reverendo, reduzindo-os à insignificância dos seus parcos conhecimentos, corroborado pela manifestação alegre e ruidosa da multidão que desde o princípio confiou naquele que facilmente demonstrava a lógica dos ensinos apregoados pelo Espiritismo.
+At the end of the famous controversy and recognizing the Reverend's state of soul, Euripides approached him and embraced him fraternally and sincerely, as sincere were his thoughts and attitudes.\r
 
-Ao terminar a famosa polêmica e reconhecendo o estado de alma do Reverendo, Eurípedes aproximou-se dele e abraçou-o fraterna e sinceramente, como sinceros eram seus pensamentos e suas atitudes.
+Barsanulfo followed with dedication the maxims of Jesus Christ until the last moment of his terrena life, on the occasion of the terrifying flu epidemic that ravaged the world in 1918, reaped lives, spreading tears and affliction, redoubling the work of the great missionary, that predicted it long before it invaded the American continent, always speaking of the gravity of the situation it would entail.\r
 
-Barsanulfo seguiu com dedicação as máximas de Jesus Cristo até o último instante de sua vida terrena, por ocasião da pavorosa epidemia de gripe que assolou o mundo em 1918, ceifando vidas, espalhando lágrimas e aflição, redobrando o trabalho do grande missionário, que a previra muito antes de invadir o continente americano, sempre falando na gravidade da situação que ela acarretaria.
+Manifested on our continent, came to meet him at the head of his sick, helping hundreds of poor families. He had reached the end of his fraternal mission. Exhausted by the effort spent, he defaced on November 1, 1918, at 6 p.m., surrounded by relatives, friends and disciples.\r
 
-Manifestada em nosso continente, veio encontrá-lo à cabeceira de seus enfermos, auxiliando centenas de famílias pobres. Havia chegado ao término de sua missão terrena. Esgotado pelo esforço despendido, desencarnou no dia 1° de novembro de 1918, às 18 horas, rodeado de parentes, amigos e discípulos.
-
-Sacramento em peso, em verdadeira romaria, acompanhou-lhe o corpo até a sepultura, sentindo que ele ressurgia para uma vida mais elevada e mais sublime
-
+Sacrament in weight, in true pilgrimage, accompanied his body to the grave, feeling that he resurfaced for a higher and more sublime life.\r
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/euripedesbarsanulfo.html)
-
-
 

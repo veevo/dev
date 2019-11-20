@@ -2,9 +2,11 @@
 title: Eusapia Palladino
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- phenomena 
+- moving-tables
+- materialization
 ---
-
 
 Eusapia Palladino was born in Murga, Naples , on 31 January 1854 . Her mother died a few days after her birth, and her peasant father gave her to be raised by a couple of friends. Before she was one year old it is said that she fell down and badly hurt her head. From that fracture on her skull, perplexed scientists observed, years later, a slight cold draught coming out while the medium was in a trance. Since Eusapia’s childhood, a white tuft of hair grew from the head scar.
 
@@ -36,7 +38,7 @@ During her life, Eusapia submitted herself to 36 research commissions, from 1888
 Sir William Crookes Spiritist Society, June 2002  
 Great Exponents of Spiritism  
 (From “Eusapia, The “Witch”, L Palhano Jr, 1995, Brazilian Edition)  
-TODO:: Add link to SGNY
+[SGNY.org](//sgny.org)
 
 
 

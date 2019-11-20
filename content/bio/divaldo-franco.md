@@ -2,152 +2,129 @@
 title: Divaldo Pereira Franco
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- mediunidade
+- divaldo-franco
+- chico-xavier
+- allan-kardec
+- mediums
+- psicography
+- psychophony
+- joanna-de-angelis
+- UN
+- salvador
+- bahia
+- brazil
 ---
 
+Simple, deeply educated person, more than fifty years dedicated to mediumship. He is a world-leading figure, both in the spiritist environment and outside of it, because his culture, his knowledge, as well as his mediumship are business cards that earned him respect and credibility, even by skeptics who bow to the culture of this unusual man.\r
 
-## Introduction
-Pessoa simples, profundamente culta, com mais de cinquenta anos dedicados à mediunidade. É figura de destaque mundial, tanto no meio espírita como fora dele, pois sua cultura, o seu saber, bem como a sua mediunidade são cartões-de-visita que lhe granjearam respeito e credibilidade, mesmo pelos céticos que se curvam perante a cultura deste homem invulgar.
+More than 40 years in the service of others, especially dedicated to street boys in Brazil, have made it a focus of attention.\r
 
-Mais de 40 anos a serviço do próximo, especialmente dedicados aos meninos de rua, no Brasil, fizeram dele um foco de atenção.
+Of humble origin, at the age of 20, he founded the Mansion of the Way, enormous care work, in Salvador, \r
+in Bahia, for which more than 40,000 street children have passed, who have found guidance for a worthy future there.\r
 
-De origem humilde, aos 20 anos, fundou a Mansão do Caminho, enorme obra assistencial, em Salvador, na Bahia, pela qual já passaram mais de 40 mil meninos de rua, que ali encontraram orientação para um futuro digno.
+World-renowned lecturer, is Doctor Honoris Cause by the College and Government of Montreal \r
+(Province of Quebec-Canada) and the University of Vienna. \r
+He has been in the UN six times, as well as in the Sorbonne, among other prominent places.\r
 
-Conferencista de renome mundial, é Doutor Honoris Cause pela Faculdade e Governo de Montreal (Província do Quebec-Canadá) e pela Universidade de Viena. Já palestrou por seis vezes na ONU, bem como em Sorbonne, entre outros lugares de destaque.
+## Origin \r
+Of humble origin, Divaldo Pereira Franco was born on May 5, 1927, in the city of Feira de Santana, Bahia. Son of Francisco Pereira Franco and Ana Alves Franco (disembodied), since childhood, communicates with the Spirits. He attended the Normal Rural School of Feira de Santana, receiving a primary teacher's degree in 1943.\r
 
-## Origem humilde
+As a young man, he was shaken by the death of his older brother, which left him traumatized and sick. Several medical specialists were consulted, without obtaining any satisfactory results. It was the helping hand of Mrs. Ana Ribeiro Borges who led him to the Spiritist Doctrine, freeing him from trauma and bringing consolation to both him and his whole family.\r
 
-De origem humilde, Divaldo Pereira Franco nasceu em 5 de maio de 1927, na cidade de Feira de Santana, na Bahia. Filho de Francisco Pereira Franco e Ana Alves Franco (desencarnados), desde a infância, comunica-se com os Espíritos. Cursou a Escola Normal Rural de Feira de Santana, recebendo o diploma de professor primário, em 1943.
+## Childhood and youth \r
+As a child, the sincere friendship of a little Spirit rejoiced even more his days. It was the Jaguaraçu Indian, which means,"Big Ounce." He came to play with Divaldo in the backyard of his house every day. The Indian appeared to be about five. The two little friends played without realizing the hours went by. They went up in trees, ran through the yard, set up beautiful nativity and the time of Christmas. They harvested mosses and foliage to adorn the lapinhas, as the nativity and the nativity places were called.\r
 
-Ainda jovem, foi abalado pela morte de seu irmão mais velho, o que o deixou traumatizado e enfermo. Foram consultados diversos médicos especialistas, sem obter nenhum resultado satisfatório. Foi a mão amiga de dona Ana Ribeiro Borges que o conduziu à Doutrina Espírita, libertando-o do trauma e trazendo a consolação tanto para ele, como para toda a família.
+At the age of 18, in 1945, Divaldo moved to Salvador, being approved in the contest for IPASE (Institute of Social Security and Assistance of State Servers), where he joined on November 5, 1945.\r
 
-## Infância e juventude
+## Mediumship and work \r
+Spiritist convinced, founded the Spiritist Center Caminho da Redemption on September 7, 1947. Two years later he began his psychographing task. Several messages were written through him. Under the guidance of the Spiritual Benefactors he kept what he wrote, until one day he received the recommendation that he burn everything he had written there, because he was nothing but a simple exercise.\r
 
-Quando criança, a amizade sincera de um pequeno Espírito alegrou ainda mais os seus dias. Era o índio Jaguaraçu, que quer dizer: "Onça Grande". Ele vinha brincar com Divaldo no quintal de sua casa todos os dias. O índio aparentava ter uns cinco anos. Os dois amiguinhos brincavam sem perceber as horas passarem. Subiam em árvores, corriam pelo quintal, armavam lindos presépios na época de Natal. Colhiam musgos e folhagens para enfeitar as lapinhas, como eram chamados os presépios.
+With the continuation came new messages signed by several Spirits, among them , [Joanna de Ângelis](/bio/joanna-de-angelis), which for a long time presented itself as "a Friendly Spirit", hiding in anonymity waiting for the opportune moment to present. Joanna revealed herself as her spiritual advisor, writing numerous messages, in a pleasant style passed on with deep wisdom and infinite love, which comforts people in need of spiritual guideline.\r
 
-Aos 18 anos, em 1945, Divaldo mudou-se para Salvador, sendo aprovado no concurso para o IPASE (Instituto de Previdência e Assistência dos Servidores do Estado), onde ingressou em 5 de novembro de 1945.
+In 1964, [Joanna de Ângelis](/bio/joanna-de-angelis) selected several messages of his own and feissed them in the book Messe de Amor, which became divaldo's first psychographed book. Currently, the medium is a record holder and has 175 published titles, including the biographies that portray his life and work.\r
 
-## Mediunidade e obra
+## Medium writer \r
+– ( − More than 170 works and about 5 million copies sold.\r
+− 219 Authors and Spiritual Missivistas, in various literary genres, such as poetry, tale, romance, dissertation, chronic narration and philosophical, psychological, psychiatric, children's, behavioral, religious, etc.\r
+− Approximately 100 books translated into 15 languages (Albanian, German, Esperanto, Spanish, French, Dutch, Hungarian, English, Italian, Norwegian, Polish, Russian, Swedish, Czech, Turkish).\r
+− He wrote messages by xenoglossia (xenos= foreign, glossa= language), that is, in languages he did not know, such as German, French, Italian, Castilian, inverted English and Africans.\r
+− He psychographed the book Hacia las Estrelas, psychographed entirely in Spanish, being the first book written in a language other than that of the medium. Translated into Portuguese with the title Towards the Stars.\r
 
-Espírita convicto, fundou o Centro Espírita Caminho da Redenção em 7 de setembro, de 1947. Dois anos depois iniciou a sua tarefa de psicografia. Diversas mensagens foram escritas por seu intermédio. Sob a orientação dos Benfeitores Espirituais guardou o que escreveu, até que um dia recebeu a recomendação de que queimasse tudo o que escrevera até ali, pois não passava de simples exercício.
+## Medium educator \r
+– (PT) Since 1952, more than 600 children, educated under the substitute homes regime.\r
+– 3,000 needy children and young people are served every day, free of charge, in an area of 77,000 square meters, with 43 buildings, in 22 socio-educational activities in the Mansion of the Way: care for pregnant women, prenatal care, day care, kindergarten, two elementary schools (up to 8th grade), a school of early childhood education, computer school, various vocational courses, Caravana Auta de Souza (care for elderly and irreversible patients), Health Center, Laboratory of Analyses Clinics, Cordiality House, libraries, museum...\r
+– ( – More than 30,000 children have passed to this day through the various courses and workshops of the Manor do Caminho since 1952.\r
 
-Com a continuação, vieram novas mensagens assinadas por diversos Espíritos, dentre eles, [Joanna de Ângelis](/bio/joanna-de-angelis), que durante muito tempo apresentava-se como "um Espírito Amigo", ocultando-se no anonimato à espera do instante oportuno para se apresentar. Joanna revelou-se como sua orientadora espiritual, escrevendo inúmeras mensagens, num estilo agradável repassado de profunda sabedoria e infinito amor, que conforta as pessoas necessitadas de diretriz espiritual.
+## Psychic lecturer \r
+− Since 1947 held more than 10,000 conferences in more than 300 cities abroad and 700 cities in Brazil in 25 states.\r
+– (PT) It was in 53 countries, 21 countries from the Americas, 20 from Europe, five from Africa, six from Asia and one from Oceania.\r
+− He held six conferences at the UN, The Department of New York, usa and the Department of Vienna, Austria.\r
+− Spoke of almost 40 Universities, more than half of the Exterior, from America, Europe and Africa.\r
+– (PT) His lectures deal with issues of great importance to the human creature and his self-knowledge.\r
 
-Em 1964, [Joanna de Ângelis](/bio/joanna-de-angelis) selecionou várias mensagens de sua autoria e enfeixou-as no livro Messe de Amor, que se tornou o primeiro livro psicografado por Divaldo. Atualmente, o médium é recordista e conta com 175 títulos publicados, incluindo os biográficos que retratam a sua vida e obra.
+## Presence in the National and Foreign Media \r
+– (PT) He has granted more than 200 interviews to radios and TVs abroad, was three times in voice of America, one of the largest Hispanic-language radio chains.\r
 
-## Médium escritor
+− In Brazil it has awarded approximately 800 interviews to more than 250 TV stations and 174 radio stations.\r
 
-− Mais de 170 obras e cerca de 5 milhões de exemplares vendidos.
-− 219 Autores e Missivistas Espirituais, em vários gêneros literários, como poesia, conto, romance, dissertação, narração crônica e temas filosóficos, psicológicos, psiquiátricos, infantis, comportamentais, religiosos etc.
-− Aproximadamente 100 livros traduzidos para 15 idiomas (albanês, alemão, esperanto, espanhol, francês, holandês, húngaro, inglês, italiano, norueguês, polonês, russo, sueco, tcheco, turco).
-− Escreveu mensagens por xenoglossia (xenos= estrangeiro, glossa= língua), isto é, em idiomas que não conhecia, como alemão, francês, italiano, castelhano, inglês invertido e africans.
-− Psicografou o livro Hacia las Estrelas, psicografado inteiramente em espanhol, sendo o primeiro livro escrito em um idioma que não o do médium. Traduzido para o português com o título Rumo às Estrelas.
+## Presence at the UN \r
+At the invitation of the UN, Divaldo Franco attended the 1st World Peace Meeting, from August 28 to 31, 2000, in a summit meeting with religious leaders from around the world, an unprecedented fact in human history, to debate and produce a proposal for peace.\r
+Most wars in the history of mankind were caused by religious, thirsty for supremacy and sectarian power, as politicians failed in the task of building peace between nations. A meeting of unarmed religious could produce a peace proposal for humanity through a unity of thought.\r
+If there is unity of thought among the 4 billion and 800 million religious worldwide, we can end wars, since they are provoked by intolerant and psychopaths, who stimulate revenge and hatred.\r
 
-## Médium educador
+The World Peace Meeting has already produced results:\r
+1. Creation of the Religious for Peace segment at the UN summit, which will work with political delegates aimed at achieving peace on the Planet by 2021.\r
+2. Preparation of a document with suggestions and proposals forwarded to all the governments of the Earth, in which stands out the importance of universal disarmament of all artifacts, including bacteriological and chemical.\r
+749 delegates from 73 countries attended the alluded Meeting, a total of 3,000 representatives, including Buddhism, Hinduism, Shinto, Masdeism and the high hierarchy of the Russian Catholic and Orthodox Churches.\r
 
-− Desde 1952, mais de 600 filhos, educados sob o regime de Lares Substitutos.
-− Três mil crianças e jovens carentes são atendidos todos os dias, gratuitamente, numa área de 77 mil metros quadrados, com 43 edificações, em 22 atividades socioeducacionais na Mansão do Caminho: atendimento à gestante, pré-natal, creche, jardim de infância, duas escolas de ensino fundamental (até a 8ª série), uma escola de educação infantil, escola de informática, cursos profissionalizantes diversos, Caravana Auta de Souza (atendimento a idosos e doentes irreversíveis), Centro de Saúde, Laboratório de Análises Clínicas, Casa da Cordialidade, bibliotecas, museu...
-− Mais de 30 mil crianças passaram até hoje pelos vários cursos e oficinas da Mansão do Caminho, desde 1952.
+## Proposals for peace \r
+We can work for peace if we face the four themes chosen, which Divaldo Franco compares and complements with the teachings of Allan Kardec, contained in The Spirits Book.\r
 
-## Médium conferencista
+### 1 − Peace in itself \r
+When he knows how to take advantage of all the resources of his intelligence and when he knows how to take care of his personal conservation, he combines the feeling of a true charity for his fellow men.\r
 
-− Desde 1947 realizou mais de 10 mil conferências, em mais de 300 cidades do Exterior e 700 cidades do Brasil, em 25 Estados.
-− Esteve em 53 países, sendo 21 países das Américas, 20 da Europa, cinco da África, seis da Ásia e um da Oceania.
-− Fez seis conferências na ONU, Departamento de Nova Iorque, EUA e Departamento de Viena, Áustria.
-− Falou em quase 40 Universidades, sendo mais da metade do Exterior, da América, Europa e África.
-− Suas palestras tratam de assuntos de grande importância para a criatura humana e seu autoconhecimento.
+### 2nd − Working to end poverty \r
+In a society where someone starves, we should be ashamed to live in it.\r
 
-## Presença na Mídia Nacional e do Exterior
+### 3 − Respect for the environment \r
+The Earth is our mother and this world, today of trials and atonements, will yield to the world of regeneration.\r
 
-− Concedeu mais de 200 entrevistas a rádios e TVs no Exterior, esteve três vezes na Voz da América, uma das maiores cadeias de rádio em língua hispânica.
+### 4 − Forgiveness and reconciliation \r
+The peaceful man is not vengeful. Like Jesus, forgive the offenses so as not to remember the benefits, because he knows that he will be forgiven as he himself has forgiven.\r
 
-− No Brasil já concedeu aproximadamente 800 entrevistas para mais de 250 emissoras de TV e 174 emissoras de rádio.
+### Divaldo's Considerations \r
+Divaldo Franco considered the meeting exciting, mainly because it was a significant global gathering of religious leaders who, for the first time in history, were not fighting. Buddhists alongside Hindus, Islamists, indigenous peoples from Africa, North America, Brazilian Pataxo and Caetés Indians, Guatemalans etc. The 15 most representative religions on Earth and also Spiritism participated, catalogued as a religion with the same rights as others, in a universe of 1 billion Hindus, 1 billion and 200 million Christians and 600 million Islamists and Muslims.\r
 
-## Presença na ONU
+## Simplicity \r
+Divaldo Franco recognizes himself only as a servant of the Spiritist Cause, despite having been given to him by the promoters of the event the title of religious leader. As a publicist of the Spiritist Doctrine and medium, there he was discreet, as recommended by Kardequian thought.\r
 
-A convite da ONU, Divaldo Franco participou do I Encontro Mundial pela Paz, no período de 28 a 31 de agosto de 2000, em uma reunião de cúpula com líderes religiosos de todo o mundo, fato inédito na história da Humanidade, para debater e produzir uma proposta de paz.
-A maioria das guerras, na história da humanidade, foi causada por religiosos, sedentos pela supremacia e poder sectário, já que os políticos falharam na tarefa de construir a paz entre as nações. Um encontro de religiosos desarmados poderia produzir uma proposta de paz para a Humanidade, por meio de uma  unidade de pensamento.
-Se existir unidade de pensamento entre os 4 bilhões e 800 milhões de religiosos em todo o mundo, poderemos acabar com as guerras, já que elas são provocadas por intolerantes e psicopatas, que estimulam a vingança e o ódio.
+### Joanna de Angela's Considerations \r
+In addressing his religion, a Jewish leader stated that to be respected his belief, he should respect other religions, since he was not the only one. At that moment, [Joanna de Ângelis](/bio/joanna-de-angelis), paraphrasing a parable, told the medium: God took from an immense mirror in which He was reflected and threw it to Earth. When hitting the ground, it fragmented into a thousand pieces. Every creature on earth, upon taking a piece, was left with a fragment that reflects God, but no one has achieved full possession, which is why God reveals himself proportionally to the level of consciousness and intelligence of each. So are religions: they take care of partially revealing God, without doing so in its entirety.\r
 
-O Encontro Mundial pela Paz já produziu resultados:
-1. Criação do segmento Religiosos para a paz, na cúpula da ONU, que trabalharão junto aos delegados políticos objetivando a consecução da paz no Planeta até 2021.
-2. Elaboração de um documento com sugestões e propostas encaminhado a todos os governos da Terra, no qual se destaca a importância do desarmamento universal de todos os artefatos, inclusive os bacteriológicos e químicos.
-Compareceram, para o aludido Encontro, 749 delegados de 73 países, num total de 3.000 representantes, incluindo do Budismo, Hinduísmo, Xintoísmo, Masdeísmo e da alta hierarquia das Igrejas Católica e Ortodoxa Russa.
+### The choice of theme \r
+Divaldo Franco chose poverty because he wanted to know the solutions to the proposals. He made use of the tribune, explained the bases of Spiritism and stressed: \r
 
-## As propostas em prol da paz
-
-Podemos trabalhar pela paz se enfrentarmos os quatro temas escolhidos, que Divaldo Franco compara e complementa com os ensinamentos de Allan Kardec, contidos em O Livro dos Espíritos.
-
-### 1ª − A paz em si mesma
-
-Quando souber aproveitar todos os recursos de sua inteligência e quando souber cuidar de sua conservação pessoal, que alia o sentimento de uma verdadeira caridade por seus semelhantes.
-
-### 2ª − Trabalhar para acabarmos com a pobreza
-
-Em uma sociedade em que alguém passa fome, deveríamos ter vergonha de viver nela.
-
-### 3ª − Respeito ao meio ambiente
-
-A Terra é nossa mãe e este mundo, hoje de provas e expiações, cederá lugar ao mundo de regeneração.
-
-### 4ª − O perdão e a reconciliação
-
-O homem pacífico não é vingativo. A exemplo de Jesus, perdoa as ofensas para não se recordar senão dos benefícios, porque sabe que lhe será perdoado como ele próprio tiver perdoado.
-
-### Considerações de Divaldo
-
-Divaldo Franco considerou a reunião emocionante, principalmente porque foi um significativo encontro mundial de líderes religiosos que, pela primeira vez na História, não estavam brigando. Budistas ao lado de hinduístas, islamitas, indígenas da África, da América do Norte, índios brasileiros pataxós e caetés, guatemaltecos etc. Participaram as 15 religiões mais representativas da Terra e também o Espiritismo, catalogado como uma religião com os mesmos direitos das outras, num universo de 1 bilhão de hinduístas, 1 bilhão e 200 milhões de cristãos e 600 milhões de islamitas e muçulmanos.
-
-## A simplicidade
-
-Divaldo Franco se reconhece apenas como servidor da Causa Espírita, apesar de ter-lhe sido conferido pelos promotores do evento o título de líder religioso. Na condição de divulgador da Doutrina Espírita e médium, ali esteve discreto, conforme recomenda o pensamento kardequiano.
-
-### Considerações de Joanna de Ângelis
-
-Ao abordar sua religião, um líder judeu afirmou que para ser respeitada sua crença, ele deveria respeitar as outras religiões, já que não era a única. Nesse momento, [Joanna de Ângelis](/bio/joanna-de-angelis), parafraseando uma parábola, disse ao médium: Deus tomou de um imenso espelho no qual Ele estava refletido e atirou-o à Terra. Ao bater no solo, fragmentou-se em mil pedaços. Cada criatura da Terra, ao pegar-lhe um pedaço, ficou com um fragmento que reflete Deus, mas ninguém conseguiu a posse total, razão porque Deus se revela proporcionalmente ao nível de consciência e inteligência de cada um. Assim são as religiões: se encarregam de revelar parcialmente Deus, sem o fazer em sua totalidade.
-
-### A escolha do tema
-
-Divaldo Franco escolheu a pobreza por desejar conhecer as soluções para as propostas. Fez uso da tribuna, explicou as bases do Espiritismo e ressaltou: Este encontro comprova que a Doutrina Espírita possui as mesmas propostas aqui apresentadas e que o grande inimigo do homem ainda é o egoísmo. O filho predileto do egoísmo é a ignorância, que envolve as criaturas em sombras. Citou Allan Kardec, que defendeu a educação moral para pôr fim à miséria no mundo e não apenas a educação convencional.
- 
-
-## Países onde visita e atua
+> This meeting proves that the Spiritist Doctrine has the same proposals presented here and that man's great enemy is still selfishness. The favorite son of selfishness is ignorance, which surrounds creatures in shadows. He cited Allan Kardec, who advocated moral education to end poverty in the world and not just conventional education.\r
 
 
- 
-América do Sul
- 
-Argentina, Bolívia, Chile, Colômbia, Equador, Paraguai, Peru, Uruguai, Venezuela.
- 
-América do Norte
- 
-México, Estados Unidos, Canadá.
- 
-América Central
- 
-Costa Rica, El Salvador, Guatemala, Honduras, Nicarágua, Panamá, Porto Rico, República Dominicana.
- 
-África
- 
-África do Sul, Angola, Bophutatswana, Moçambique, Suazilândia.
- 
-Europa
- 
-Alemanha, Andorra (Principado), Áustria, Bélgica, Dinamarca, Escócia, Espanha, França, Grécia, Holanda, Hungria, Inglaterra, Irlanda, Itália, Noruega, Portugal, República Eslava, República Tcheca, Suécia, Suíça, Polônia, República Checa.
- 
-Ásia
- 
-Índia, Israel, Japão, Malásia, Cingapura, Tailândia, China.
- 
-Oceania
- 
-Austrália e Havaí (Estado independente dos Estados Unidos), na Polinésia, Nova Zelândia.
-
+## Countries where you visit and operate \r
+South America \r
+Argentina, Bolivia, Chile, Colombia, Ecuador, Paraguay, Peru, Uruguay, Venezuela.  \r
+North America \r
+Mexico, United States, Canada.  \r
+Central America \r
+Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua, Panama, Puerto Rico, Dominican Republic.  \r
+Africa \r
+South Africa, Angola, Bophutatswana, Mozambique, Swaziland.  \r
+Europe \r
+Germany, Andorra (Principality), Austria, Belgium, Denmark, Scotland, Spain, France, Greece, Netherlands, Hungary, England, Ireland, Italy, Norway, Portugal, Slavic Republic, Czech Republic, Sweden, Switzerland, Poland, Czech Republic.  \r
+Asia \r
+India, Israel, Japan, Malaysia, Singapore, Thailand, China.  \r
+Oceania \r
+Australia and Hawaii (independent State of the United States) in Polynesia, New Zealand.  \r
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/divaldofranco.html)
-
-
-
-
 

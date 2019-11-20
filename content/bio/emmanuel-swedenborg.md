@@ -2,9 +2,11 @@
 title: Emmanuel Swedenborg
 date: 2019-02-01 19:00:00
 topics: 
-
+- swedenborg
+- sweden
+- religion
+- church
 ---
-
 
 Despite his obvious impact, Swedenborg’s name is still not well-known three hundred years after his birth. He was an inventor, a scientist, a civil servant, and a philosopher before he accepted God’s call to be a rational revelator during the Age of Enlightenment. While Swedenborg’s genius may be found in all his works, it is his claim to be a revelator, and his spiritual vision, which truly set him apart. Historically it has been this claim which has attracted interest in him; and it is his theological writings that have been the source of his greatest influence. Swedenborg stands apart from other revelators because of the means through which he received revelation, its substance, and the process of its transmission.
 
@@ -14,14 +16,14 @@ In presenting a vision counter to the prevailing religious and secular paradigms
 
 A biography of Swedenborg and a chronological list of his major works are included in this anthology because a knowledge of the man and the substance of his writings may provide some insight into the persistence of his influence.
 
-Background
+## Background
 Emanuel Swedenborg was born in Stockholm on January 29, 1688 . At the time of his birth, Sweden ‘s century of expansion was drawing to a close. In asserting her independence during this century, the Swedish kingdom became more economically and politically integrated into Europe ‘s cultural orbit. The great mineral wealth of Sweden and war were important ingredients in this process. Foreign miners and mercenaries were brought to Sweden to assist in her development and modernization. The Swedish arms industry was established at this time, strengthening the military position of Sweden and providing a valuable export. The internal administration of the kingdom was further centralized through the development of a state bureaucracy, with the University of Uppsala providing the training for the corps of civil servants. During this period the city of Göteborg was established as an export center and Stockholm was transformed into a modern showplace.
 
 While all these changes were taking place at one level in Sweden , the life in the countryside remained essentially unchanged. The rhythms of agriculture, of the seasons, of sowing and harvest, of dearth and plenty were untouched. In this world the supernatural brooded over the landscape and in the hearts of men. The struggle between light and dark, heaven and hell, God and Satan, salvation and damnation, good and evil dominated men’s thoughts and pervaded their physical world. Only a thin veil separated life and death, and which was which was shrouded in ambiguity. The reality and intensity of this world is brilliantly captured in the novels of Selma Lagerlöf, winner of the Nobel prize for literature in 1909.
 
 Jesper Swedberg, Swedenborg’s father, was born into this reality. Born at “Sveden” in 1653, the family homestead not far from Falun, Swedberg’s life fortunes were dramatically altered when the new mining techniques imported from abroad made a family-owned mine once again productive. These additional resources enabled Swedberg to attend the University of Uppsala and opened to him the world of modern Sweden through a career in the Church. Immediately after his ordination in 1683 Swedberg married Sarah Behm, a modest and religious woman, whose family’s wealth was derived from extensive mining interests. Noticed by the King early in his career while serving in the position of chaplain of his horse guards in Stockholm , in 1702 Swedberg was elevated to the post of Bishop of Skara, having served in Uppsala as a professor of theology and Dean and Rector of the Cathedral in the interim. He remained in Skara until his death in 1735. His tenure in Skara is remembered today because of his deep interest in education. Despite his prominence, Swedberg remained outside of the Church’s formal power structure and innocent of her official ideology of faith alone. Throughout his long and prosperous life, Swedberg never abandoned the perspective and sensitivities of his early rural upbringing with its emphasis on the supernatural, piety, and good works.
 
-Early Life
+## Early Life
 Emanuel was the third of nine children and the second son born to Jesper and Sarah Behm Swedberg. While living in Uppsala , in 1696, Swedenborg suddenly lost his mother and his older brother Albert in an epidemic. A year later, Swedberg married for a second time. His new wife was Sarah Bergia, a wealthy widow, who also had mining interests. She seems to have been particularly fond of Emanuel and upon her death in 1720, he inherited half of her estate, Starbo, and a modest fortune.
 
 Swedenborg wrote very little concerning his early life, and except for the following, which was written in a letter to a friend in 1769, what little else is known comes from public records and his father’s autobiography:
@@ -38,7 +40,7 @@ In you I acknowledge the source of personal benefit, inasmuch as it was by your 
 
 Although Swedenborg’s interest in the natural sciences and mathematics may be attributed to Benzelius’ influence, his fascination with the factual and the concrete also seems quite similar to Swedberg’s vigorous concern for a “down to earth,” living, practical theology; and Swedenborg’s distaste for the abstract in the realm of science is reminiscent of his father’s animosity toward cerebral faith and dogmatics in religion. Therefore, it is possible to see evidence of his father’s character in his scientific career as well as seeing Benzelius’ more rational and universal concerns echoed in his theology.
 
-Studies Abroad
+## Studies Abroad
 In 1710, on the advice of Benzelius, Swedenborg left for England to immerse himself in the most modern scientific currents of his day; he stayed for two years studying mathematics and astronomy. During his stay he also frequented the shops of booksellers and instrument makers in order to enlarge his library and his knowledge, and while in London he lived with a variety of different journeymen in order to learn their trades. In this way he learned the arts of engraving, making mathematical instruments and cabinetry, and later in Holland he learned glass-grinding as well.
 
 While in England Swedenborg studied with the astronomers John Flamsteed and Edward Halley and, perhaps during conversations with them, became intrigued by the competition seeking a reliable means to find the longitude at sea. He devoted considerable time and energy to solving the problem, and it is clear from his letters that he discussed his solution with both Flamsteed and Halley. His method required exact lunar tables, which were unavailable at the time. In spite of the criticism his method received, he continued to have confidence in his idea, perhaps because the problem was not finally resolved until the 1740s, “when John Harrison perfected a chronometer, successfully used by James Cook.” Swedenborg published his method in 1718 and again in 1769. At the time of his second publication, he presented his method to the Royal Society in England .
@@ -123,20 +125,23 @@ Because of restrictions on the freedom of the press in Sweden , Swedenborg publi
 
 It would be over one hundred years before an official New Church organization was established in Sweden .
 
-Swedenborg’s Mission in the Spiritual World
+## Swedenborg’s Mission in the Spiritual World
 According to Swedenborg, the purpose of spiritual and natural creation was to form a heaven from the human race. However, this required free response on the part of man, and provision for his salvation. The spiritual world, of which heaven is a part, is the world of causes, while the natural world is that of effects. Therefore, for a new revelation to be truly new and universal, it must reveal the world of causes which was for so long hidden from man, and it must essentially address the question of order at that level; for so far as the world of causes is ordered, so will be the world of effects. Thus, the major events which surround the formation of this new church occurred in the spiritual world, according to Swedenborg. Thus, the last judgment which is referred to in the book of Revelation, was an event which took place in the spiritual world in 1757. Once that judgment took place, this world of causes was prepared for the establishment of a new heaven there. Both this new heaven and new church were to be founded on a more interior or essential vision of the conjunction of good and truth in the Divine Human of the Lord Jesus Christ. The new heaven would be established among the good departed souls who had not received a clear understanding of the Lord as a result of their experiences in the Christian church before their death, or who at death knew little or nothing about Christianity.
 
 Swedenborg’s role in the spiritual world was to serve as an instrument whereby the world of cause could be conjoined to the world of effect, not just for the sake of his own salvation, but for all men. For in The True Christian Religion, his last published work, Swedenborg details the universal theology of the new church, and informs mankind that with the advent of the New Church , “now it is permitted to enter with understanding into the mysteries of faith.” What will bring about the establishment of this church both in the spiritual and the natural worlds is the acknowledgment on the part of spirits and men that the Lord Jesus Christ reigns.
 
 The publication of The True Christian Religion inscribed by the “Lord’s command” with the words “Servant of the Lord Jesus Christ,” marked the culmination of Swedenborg’s dual mission—to serve as an instrument for the establishment of a new heaven, and a new church on earth. These, he believed, would be established by the Lord alone among those who freely acknowledged His sovereignty and led a good life.
 
-Shortly after the publication of The True Christian Religion in Amsterdam in 1771, Swedenborg left the Netherlands and went to England . He suffered a stroke in December 1771 and died on March 29, 1772 .
+Shortly after the publication of The True Christian Religion in Amsterdam in 1771, 
+Swedenborg left the Netherlands and went to England.
+
+He suffered a stroke in December 1771 and died on March 29, 1772.
 
 ## Source
 Jane K. Williams-Hogan, Ph.D. Bryn Athyn College of the New Church
 Spiritist Group of New York, Aug 2002  
 Great Exponents of Spiritism  
-TODO:: Add link to SGNY
+[SGNY.org](//sgny.org)
 
 
 

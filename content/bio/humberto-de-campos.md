@@ -2,40 +2,43 @@
 title: Humberto de Campos
 date: 2019-02-01 19:00:00
 topics: 
-
+- spiritism
+- humberto-de-campos
+- brother-x
+- chico-xavier
 ---
 
+Humberto de Campos was born in the small town of Piritiba, Maranhão, in 1886. He was a poor boy. \r
+He studied with effort and sacrifice. He was orphaned by a father at the age of five. His childhood was marked by misery. \r
+In his Memoirs, he tells some episodes that left him deep grooves in his soul.\r
 
-Humberto de Campos nasceu na pequena localidade de Piritiba, no Maranhão, em 1886. Foi menino pobre. Estudou com esforço e sacrifício. Ficou órfão de pai aos 5 anos de idade. Sua infância foi marcada pela miséria. Em sua Memórias, ele conta alguns episódios que lhe deixaram sulcos profundos na alma.
-Tempo depois, mudou-se para o Rio de Janeiro, então Capital da República, onde se tornou famoso. Brilhante jornalista e cronista perfeito, suas páginas foram "colunas" em todos os jornais importantes do País.
+He later moved to Rio de Janeiro, then capital of the Republic, where he became famous. \r
+Brilliant journalist and perfect chronicler, his pages were "columns" in all major newspapers in the country.\r
 
-Dedicou-se inteiramente à arte de escrever e, por isso, eram parcos os recursos financeiros. A certa altura da sua vida, quando minguadas se fizeram as economias, teve a ideia de mudar de estilo. Adotando o pseudônimo de Conselheiro XX, escreveu uma crônica chistosa a respeito da figura eminente da época, Medeiros e Albuquerque, que se tornou assim motivo de riso, da zombaria e da chacota dos cariocas por vários dias.
-O Conselheiro, sibilino e mordaz, feriu fundo o orgulho e a vaidade de Medeiros, colocando na boca do povo os argumentos que todos desejavam assacar contra Albuquerque. O sucesso foi total.
+He devoted himself entirely to the art of writing and, therefore, financial resources were scarce. At one point in his life, when the savings were made, he had the idea to change his style. Adopting the pseudonym as Conselheiro XX, he wrote a chistosa chronicle about the eminent figure of the time, Medeiros and Albuquerque, which thus became a laughing stock, mockery and mockery of cariocas for several days.\r
+The Counselor, sibilino and scathing, injured the pride and vanity of Medeiros, putting in the mouth of the people the arguments that everyone wanted to draw against Albuquerque. The success was total.\r
 
-Tendo feito, por experiência, aquela crônica, de um momento para outro se viu na contingência de manter o estilo e escrever mais, pois seus leitores multiplicaram, chovendo cartas às redações dos jornais, solicitando novas matérias do Conselheiro XX.
-Além de manter o estilo, Humberto se foi aprofundando no mesmo, tornando-se para alguns, na época, quase imortal, saciando o paladar de toda uma mentalidade que desejava mais liberdade de expressão e mais explicitação na abordagem dos problemas humanos e sociais.
-Quando adoeceu, modificou completamente o estilo. Sepultou o Conselheiro XX, e das cinzas, qual Fênix luminosa, nasceu outro Humberto, cheio de piedade, compreensão e entendimento para com as fraquezas e sofrimentos do seu semelhante.
+Having done, from experience, that chronicle, from one moment to another was found in the contingency of maintaining the style and writing more, because its readers multiplied, raining letters to the newsrooms of the newspapers, requesting new articles of the Councilor XX.\r
+In addition to maintaining style, Humberto deepened in it, becoming for some, at the time, almost immortal, satiating the palate of an entire mentality that desired more freedom of expression and more explicitin addressing human and social problems.\r
+When he got sick, he completely modified the style. He buried Councillor XX, and the ashes, which Luminous Phoenix, was born another Humberto, full of piety, understanding and understanding for the weaknesses and sufferings of his fellow.\r
 
-A alma sofredora do País buscou avidamente Humberto de Campos e dele recebeu consolação e esperança. Eram cartas de dor e desespero que chegavam às suas mãos, pedindo socorro e auxílio. E ele, tocado nas fibras mais sensíveis do coração, a todas respondia, em crônicas, pelos jornais, atingindo milhares de leitores em circunstâncias idênticas de provações e lágrimas.
+The suffering soul of the country eagerly sought Humberto de Campos and received consolation and hope from him. They were letters of pain and despair that came into your hands, asking for help and help. And he, touched on the most sensitive fibers of the heart, all answered, in chronicles, by newspapers, reaching thousands of readers in identical circumstances of trials and tears.\r
 
-Fez-se amado por todo o Brasil, especialmente na Bahia e São Paulo. Seus padecimentos, contudo, aumentavam dia a dia. Parcialmente cego e submetendo-se a várias cirurgias, morando em pensão, sem o calor da família, sua vida era, em si mesma, um quadro de dor e sofrimento. Não desesperava, porém, e continuava escrevendo para consolo de muitos corações.
+He became loved throughout Brazil, especially in Bahia and São Paulo. His sufferings, however, increased daily and partially blindand undergoing several surgeries, living in pension, without the warmth of the family, his life was, in itself, a picture of pain and suffering. I did not despair, however, and continued to write for the comfort of many hearts.\r
 
-A 5 de dezembro de 1934, desencarnou. Partiu levando da Terra amargas decepções. Jamais o Maranhão, sua terra natal, aceitou-o. Seus conterrâneos chegaram mesmo a hostilizá-lo. Três meses apenas de desencarnado, retornou do Além, através do jovem médium Chico Xavier, este, com 24 anos de idade somente, e começou a escrever, sacudindo o País inteiro com suas crônicas de além-túmulo. O fato abalou a opinião pública. Os jornais do Rio de Janeiro e outros Estados estamparam suas mensagens, despertando a atenção de toda gente. Os jornaleiros gritavam:Extra, extra! Mensagens de Humberto de Campos, depois de morto!  E o povo lia com sofreguidão...
+On December 5, 1934, he defaced. He left taking bitter disappointments from Earth. Never Maranhão, his homeland, accepted him. His countrymen even harassed him. Three months only disembodied, returned from beyond, through the young medium Chico Xavier, this, at the age of 24 only, and began writing, shaking the whole country with his chronicles beyond the tomb. The fact shook public opinion. The newspapers of Rio de Janeiro and other states stamped their messages, attracting everyone's attention. The newsmen shouted, Extra, extra! Messages from Humberto de Campos, after he was dead!  And the people read with suffering...\r
 
-Agripino Grieco e outros críticos literários famosos examinaram atenciosamente a produção de Humberto, agora no Além. E atestaram a autenticidade do estilo. Só podia ser Humberto de Campos! − afirmaram eles. Começou então uma fase nova para o Espiritismo no Brasil. Chico Xavier e a Federação Espírita Brasileira ganharam notoriedade. Vários livros foram publicados.Aconteceu o inesperado. Os familiares de Humberto moveram uma ação judicial contra a FEB, exigindo os direitos autorais do morto!
+Agripino Grieco and other famous literary critics carefully examined Humberto's production, now in the Beyond. And they attested to the authenticity of the style. It could only be Humberto de Campos! − they said. Then began a new phase for Spiritism in Brazil. Chico Xavier and the Brazilian Spiritist Federation gained notoriety. Several books have been published. The unexpected happened. Humberto's family members filed a lawsuit against FEB, demanding the copyright of the deceased!\r
 
-Tal foi a celeuma, que o histórico de tudo isso está hoje registrado num livro cujo título é A Psicografia ante os Tribunais, escrito por Dr. Miguel Timponi. A Federação ganhou a causa. Humberto, constrangido, ausentou-se por largo período e, quando retornou a escrever, usou o pseudônimo de Irmão X.
-Nas duas fases do Além, grafou 12 obras pelo médium Chico Xavier.
+Such was the celeuma, that the history of all this is recorded today in a book whose title is The Psychography before the Courts, written by Dr. Miguel Timponi. The Federation won the cause. Humberto, embarrassed, absent for a long time and, when he returned to writing, used the pseudonym Brother X.\r
+In the two phases of the Beyond, he spelled 12 works by medium Chico Xavier.\r
 
-Crônicas de Além-Túmulo; Brasil, Coração do Mundo, Pátria do Evangelho; Boa Nova; Novas Mensagens; Luz Acima; Contos e Apólogos e outros foram livros que escreveu para deleite de muitas almas.
+Chronicles of Beyond-Tomb; Brazil, Heart of the World, Homeland of the Gospel; Good News; New Messages; Light Up; Short stories and Apologists and others were books he wrote to the delight of many souls.\r
 
-Nas primeiras mensagens, temos um Humberto bem humano, com características próprias do intelectual do mundo. Logo depois, ele se vai espiritualizando, sutilizando as ideias e expressões, tornando-se então o escritor espiritual predileto de milhares.
-Os que lerem suas obras de antes e de depois de morto, poderão constatar a realidade do fenômeno espírita e a autenticidade da mediunidade de Chico Xavier.
- 
+In the first messages, we have a very human Humberto, with characteristics characteristic of the intellectual of the world. Soon after, he goes spiritualizing, using ideas and expressions, then becoming the favorite spiritual writer of thousands.\r
 
+Those who read their works before and after death will be able to see the reality of the spiritist phenomenon and the authenticity of Chico Xavier's mediumship.\r
 
 ## Source
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/humbertodecampos.html)
-
-
 
