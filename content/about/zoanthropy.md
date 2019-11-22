@@ -6,6 +6,8 @@ topics:
 - bad-spirits
 - hell
 - spirits
+- umbral
+- bad-spirits
 ---
 
 Zoanthropy [from the Latin zo (o) - + antrop (o) + -ia ] - 

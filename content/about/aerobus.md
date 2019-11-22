@@ -7,11 +7,14 @@ topics:
 - spiritual world
 ---
 
-Aeróbus [do grego aéreos] - Carro aéreo espiritual para transporte de Espíritos que não podem se locomover. 
+Aerobus [of Greek air] - Spiritual air car for 
+transport of Spirits who cannot get around. 
 
-Segundo [André Luiz](/bio/andre-luis), seria na Terra um grande funicular, isto é, veículo com tração por 
-cabos acionados por motor estacionário e que freqüentemente se utiliza para vencer grandes diferenças de nível 
-- um tipo de teleférico. 
+According to [André Luiz](/bio/andre-luis), it would be on Earth a 
+large funicular, that is, vehicle with traction by 
+cables driven by stationary engine and which frequently 
+is used to overcome large level differences 
+- some kind of cable car. 
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

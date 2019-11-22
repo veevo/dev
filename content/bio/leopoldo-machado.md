@@ -8,12 +8,15 @@ topics:
 - bahia
 ---
 
-He was born in Arraial de Cepa Forte, now Jandaíra, Bahia, on September 30, 1891.
+He was born in Arraial de Cepa Forte, now Jandaíra, Bahia, on September 
+30, 1891.
 
-Leopoldo Machado, as he was known, began in the Spiritist Doctrine by the blessed hands of the unforgettable 
-José Petitinga, in 1915, becoming an herald of faith and work.
+Leopoldo Machado, as he was known, began in the Spiritist Doctrine by the 
+blessed hands of the unforgettable José Petitinga, in 1915, becoming an herald 
+of faith and work.
 
-Spirit of leadership, was driven to the tasks of good and truth, living the Spiritist Doctrine in all its strength.
+Spirit of leadership, was driven to the tasks of good and truth, living the 
+Spiritist Doctrine in all its strength.
 
 After his marriage to Dona Marília Ferraz de Almeida, he settled in the city of Nova Iguaçu, Rio de Janeiro, where he began great tasks.
 

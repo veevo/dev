@@ -5,6 +5,8 @@ topics:
 - xenoglossy 
 - medium
 - mediumship
+- chico-xavier
+- divaldo-franco
 ---
 
 Xenoglossy [from Greek xenon = foreign, foreign + glous = language + -ia] - 
