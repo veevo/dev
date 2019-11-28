@@ -1,30 +1,41 @@
 ---
-layout: default-md
-section: Books
 title: Evolution in two worlds
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-author: Chico Xavier
 date: 2019-01-11 13:00:00
-tags: 
-- book
+topics: 
+- andre-luis
+- chico-xavier
+- emmanuel
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Psychographed by Francisco Cândido Xavier and Waldo Vieira, Evolution in two
+worlds is divided into two parts. The first relates the words of Christ to
+concepts such as the existence of the perispirit and spiritual body, cosmic fluid,
+heredity, evolution and sex, spiritual feeding and mechanisms
+of the mind, among others. The second part brings together questions and answers about
+issues linked to marriage, divorce, pregnancy and abortion.
 
-## Author(s)
-Francisco Xavier and André Luiz (Spirit)
+Combining scientific and evangelical concepts, Spirit André Luiz promotes a
+study of the evolutionary process of being and soul in the two planes of our
+existence —the material world and the spirit world—, establishing a challenge
+intellectual to all who practice and wish to know the Doctrine
+Spiritist.
 
-## From the Publisher
-
+## About the Book
+Author: [Andre Luis (Spirit)](/bio/andre-luis)  
+Medium: [Chico Xavier](/bio/chico-xavier)  
 
 ## Related Books
-TODO
+[Nosso Lar](nosso-lar)  
+[Missionaries of the Light](missionaries-of-the-light)  
+[In The Realms Of Mediumship](in-the-realms-of-mediumship)  
+[In The Greater World](in-the-greater-world)  
+[Liberation](liberation)  
+[The Messengers](the-messengers)  
+[Workers of the Life Eternal](workers-of-the-life-eternal)  
+[Sex and Destiny](sex-and-destiny)  
+[And Life Goes On](and-life-goes-on)  
 
-## See also
-[About Chico Xavier](/profile/chico-xavier)  
-TODO
-
-
-<a href="/books/chico-xavier" class="button">Back to Chico Xavier Books</a>
-<a href="/books" class="button">All Books</a>
-
+## See Also
+[Andre Luis](/bio/andre-luis)  
+[Chico Xavier](/bio/chico-xavier)  
+[Emmanuel](/bio/emmanuel)  

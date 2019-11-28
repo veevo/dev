@@ -1,11 +1,7 @@
 ---
-layout: default-md
-section: Books
 title: Other Authors
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-11 13:00:00
-tags: 
-- author
+topics: 
 ---
 
 ## Books from Other Authors
@@ -86,8 +82,6 @@ Richard Simonetti
 
 
 ## See Also
-TODO
 
 
-<a href="/books" class="button">Back to Books</a>
 

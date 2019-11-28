@@ -1,17 +1,20 @@
 ---
-layout: default-md
-section: Books
-title: Divaldo Franco
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Divaldo Franco - Bibliography
 date: 2019-01-11 13:00:00
-tags: 
-- author
+topics: 
+- divaldo-franco
+- joanna-de-angelis
 ---
 
-## Bibliography
-[Divaldo Pereira Franco](/profiles/divaldo-franco) is one of the best known contemporary orators and mediums, a faithful and indefatigable messenger of the word of Christ through the consoling and hopeful lessons of the Spiritist Doctrine.
+[Divaldo Pereira Franco](/bio/divaldo-franco) is one of the best known
+contemporary orators and mediums, a faithful and indefatigable messenger of the
+word of Christ through the consoling and hopeful lessons of the Spiritist
+Doctrine.
 
-With the guidance of [Joanna de Ângelis](/profiles/joanna-de-angelis), his spiritual mentor, he has psychographed almost 200 works of various spirits, many of which have already been translated into other languages, bringing the light of the Gospel to all five continents.
+With the guidance of [Joanna de Ângelis](/bio/joanna-de-angelis), his
+spiritual mentor, he has psychographed almost 200 works of various spirits, many
+of which have already been translated into other languages, bringing the light
+of the Gospel to all five continents.
 
 
 ## Collection - Joanna de Angelis
@@ -62,11 +65,10 @@ Divaldo Franco and Manoel Philomeno de Miranda (Spirit)
 Divaldo Franco and Manoel Philomeno de Miranda (Spirit)  
    
 ## Articles - From the Blog
-TODO
 
 ## See Also
-TODO
-
-
-<a href="/books" class="button">Back to Books</a>
-
+[Divaldo Pereira Franco](/bio/divaldo-franco)  
+[Joanna de Ângelis](/bio/joanna-de-angelis)
+[Chico Xavier](/bio/chico-xavier)  
+[Emmanuel](/bio/emmanuel)  
+[Andre Luis](/bio/andre-luis)  

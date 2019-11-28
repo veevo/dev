@@ -1,26 +1,25 @@
 ---
-layout: default-md
-section: Books
-title: The Mystery of Joan of Arc
-subtitle: The story of Joan of Arc, told by Spiritist Author, Léon Denis.
-author: Leon Denis
+title: Joan of Arc
 date: 2019-01-11 13:00:00
-tags: 
-- book
+topics: 
+- leon-denis
+- joan-of-arc
 ---
 
-The story of Joan of Arc, told by Spiritist Author, Léon Denis.
-
-
-## About the Book
-Book Title: The Mystery of Joan of Arc  
-Author: Léon Denis  
-     
+Written by Leon Denis, this book recounts the life of Joan of Arc in the defeated and
+annihilated 15th-century France, living as a humble peasant, without any
+type of instruction, bearer of extraordinary psychic gifts, which
+made it possible for the visions of the Beyond and the hearing of voices, which guided it and
+sustained in the great mission he has performed, freeing his homeland from the dominion
+english, in addition to pacifying and uniting her.
+Spiritism explains —, how his visions, premonitions, voice hearing, are
+analyzed as psychic phenomena that ignorance and lies have tried to
+it is a book that exalts the power of faith and restores the primacy of
+Truth.
 
 
 ## See Also
-TODO
+[Leon Denis](/bio/leon-denis)  
+[Joan of Arc](/bio/joan-of-arc)  
 
 
-<a href="/books/leon-denis" class="button">Léon Denis - Bibliography</a>
-<a href="/books" class="button">All Books</a>

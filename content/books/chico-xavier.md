@@ -1,12 +1,17 @@
 ---
-title: Chico Xavier
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Chico Xavier - Bibliography
 date: 2019-01-11 13:00:00
+topics: 
+- chico-xavier
+- andre-luis
+- emmanuel
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
-
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+Chico Xavier or Francisco Cândido Xavier, born Francisco de Paula Cândido, was a
+popular philanthropist and medium in Spiritism. During a period of 60 years he
+wrote over 490 books and several thousand letters claiming to use a process
+known as "psychography". Books based on old letters and manuscripts were
+published posthumously, bringing the total number of books to 496
 
 ## Collection - André Luiz
 [Nosso Lar](nosso-lar)  
@@ -66,11 +71,7 @@ Collected works from Francisco Cândido Xavier
 ## DVDs
 [Pinga Fogo](pinga-fogo)  
 
-
 ## See Also
-TODO
-
-
-
-<a href="/books" class="button">Back to Books</a>
-
+[Andre Luis](/bio/andre-luis)  
+[Chico Xavier](/bio/chico-xavier)  
+[Emmanuel](/bio/emmanuel)  

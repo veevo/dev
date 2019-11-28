@@ -1,12 +1,7 @@
 ---
-layout: default-md
-section: Books
 title: Pinga Fogo (DVD)
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
-author: Chico Xavier
 date: 2019-01-11 13:00:00
-tags: 
-- book
+topics: 
 ---
 
 This special two-DVD edition with English subtitles retrieves the historic program Pinga-Fogo with Francisco Xavier, a veritable milestone of the Brazilian Spiritist Movement. It brings more than two hours of extra footage with interviews, documentaries, and bonus information.
@@ -18,14 +13,12 @@ During the interviews, Francisco Xavier also discussed the following topics: col
 
 The bonus footage includes: the news reporter and the medium, the great surprise to all news reporters, the emotion 35 years later, the importance of the program Pinga Fogo, remembering Francisco Xavier, honoring Francisco Xavier, and Francisco Xavier—A Story of Love. It also features interviews with other members of the Brazilian spiritist movement such as Francisco Galves, Nena Galves, Dr. Tuffik Mattar, Dr. Marlene Nobre, and Zita Ghilardi.
 
-## Author(s)
+## About the Book
 Francisco Xavier and Emmanuel (Spirit)
 
-## Topics
-TODO
 
 ## From the Publisher
-Title: 	Pinga Fogo with Francisco Xavier  
+
 Director(s): 	TV Tupi, channel 4, São Paulo  
 Source: 	Brazilian news program  
 Type: 	Documentary with interviews  
@@ -49,20 +42,16 @@ Observation: 	Some parts of the original documentary could not be restored. Duri
   
    
 Original Material:  
-Title: 	Pinga-fogo com Chico Xavier  
+
 Publisher: 	TV Tupi Canal 4 de São Paulo  
 Location: 	São Paulo – SP, Brazil  
 Publication Date: 	1971  
 Language: 	Brazilian Portuguese  
 
 ## Related Books
-TODO
 
 ## See also
-[About Chico Xavier](/profile/chico-xavier)  
-TODO
+[About Chico Xavier](/bio/chico-xavier)  
 
 
-<a href="/books/chico-xavier" class="button">Back to Chico Xavier Books</a>
-<a href="/books" class="button">All Books</a>
 

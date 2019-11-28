@@ -1,28 +1,37 @@
 ---
-title: Allan Kardec
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Allan Kardec Bibliography
 date: 2019-01-11 13:00:00
+topics:
+- allan-kardec
+- spiritism
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Allan Kardec is the pen name of the French educator, translator and author
+Hippolyte Léon Denizard Rivail. He is the author of the five books known as the
+Spiritist Codification, and is the founder of Spiritism.
 
-### The Spiritist Codification
+For more information about Allan Kardec, [please click here](/bio/allan-kardec).
 
+Kardec's bibliography is impressive. On this section, we split it into two
+sub-categories: 
+* the Spiritist Codification - the main books that are the base for
+  [Spiritism](/spiritism)
+* Supplementary works - the other books he produced also related to Spiritism.
+
+## The Spiritist Codification 
 [The Spirits' Book](../spirits-book)  
 [The Mediums Book](../mediums-book)  
 [The Gospel Explained By The Spiritist Doctrine](../gospel-according-spiritism)  
 [Heaven and Hell](../heaven-and-hell)  
 [Genesis](../genesis)  
 
-### Other books
+## Supplementary Works
 [What is Spiritism?](../what-is-spiritism)  
 [The Spiritism on its simplest expression](../spiritism-simplest-expression)  
 [The Spiritist Review](../the-spiritist-review)  
 [Posthumous Works](../posthumous-works)  
 
 ## See also
-[About Allan Kardec]()  
-TODO
+[Allan Kardec](/bio/allan-kardec)  
 
-<a href="/books" class="button">Back to Books</a>
 

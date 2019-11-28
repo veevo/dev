@@ -1,18 +1,25 @@
 ---
-layout: default-md
-section: Books
-title: André Luis
-subtitle: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: André Luis - Bibliography
 date: 2019-01-11 13:00:00
-tags: 
-- author
+topics: 
+- andre-luis
+- chico-xavier
+- emmanuel
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue.
+André Luiz. In his last life, he was a medical doctor and researcher, in the
+early 20th century. Today, Spiritists know the spirit author, André Luiz, as a
+magnificent messenger, teacher and friend, one who is greatly admired and
+honored for his literary contributions to the advancement in mankind's
+understanding of spirit matters.
 
-More about [André Luis](/profiles/andre-luis)
+André Luiz bibliography is also extensive. On this page, we sub-divided his
+books in:
+* novels - histories usually that he witnessed on the spirit world
+* instructive - instructional/educational books
+* inspirational - messages of confort and education
 
-### Novels
+## Novels
 [Nosso Lar](nosso-lar)  
 [Missionaries of the Light](missionaries-of-the-light)  
 [In The Realms Of Mediumship](in-the-realms-of-mediumship)  
@@ -24,28 +31,17 @@ More about [André Luis](/profiles/andre-luis)
 [Sex and Destiny](sex-and-destiny)  
 [And Life Goes On](and-life-goes-on)  
 
-
-### Instructive
+## Instructive
 [Disobsession](disobsession)  
 
-
-### Inspirational Messages
+## Inspirational Messages
 [Christian Agenda](christian-agenda)  
 [Green Light](green-light)  
-
-### Other books
-TODO
-
 
 ## Movies
 [Watch: Astral City (based on the book Nosso Lar - A Spiritual Home)](/movies/astral-city)
 
-
 ## See also
-TODO
-
-
-
-<a href="/books/andre-luis" class="button">André Luis - Bibliography</a>
-<a href="/books" class="button">All Books</a>
-
+[André Luis](/bio/andre-luis)
+[Chico Xavier](/bio/chico-xavier)  
+[Emmanuel](/bio/emmanuel)  

@@ -3,6 +3,7 @@ title: José Herculano Pires
 date: 2019-02-01 19:00:00
 topics: 
 - spiritism
+- herculano-pires
 ---
 
 José Herculano Pires was born in the city of Avaré, in the state of São Paulo on September 25, 1914 and defaced on March 9, 1979. Son of pharmacist José Pires Correia and pianist Bonina Amaral Simonetti Pires, he did his first studies in Avaré, Itaí and Cerqueira César.
