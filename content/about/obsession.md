@@ -20,6 +20,16 @@ If they come to dominate any of them, they identify with their Spirit and lead h
 
 3. Fixed and disturbing idea
 
+
+## Kardec, Genesis
+O excelso sistematizador da Doutrina Espírita, Allan Kardec, em A Gênese,
+capítulo 14, define a obsessão como "(...) a ação persistente que um mau
+espírito exerce sobre um indivíduo". Diz, igualmente, que "ela apresenta
+características muito diferentes, que vão desde a simples influência moral, sem
+sinais exteriores perceptíveis, até a perturbação completa do organismo e das
+faculdades mentais".
+
+
 ## See Also
 [Obsession](../obsession)  
 [Obsessed](../obsessed)  

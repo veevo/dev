@@ -10,3 +10,6 @@ The reflexive nature of [Spiritism](/spiritism) suggests that people develop goo
 
 The oldest known type of ethical theory in western philosophy was discussed by [Plato](https://en.wikipedia.org/wiki/Plato) who four discussed four key virtues: [wisdom](wisdom), [courage](courage), [temperance](temperance) and [justice](justice). [Spiritism](/spiritism) however believe that there are way more virtues that human beings should develop. For that reason, we prepared this special section where we list studies on the **Essential Virtues** the human being should develop.
 
+## Exemplo de virtude
+Jesus foi o Espírito mais evoluído que já encarnou neste planeta; o maior exemplo de virtudes, de capacidade de amar. E Ele nos deixou a “fórmula” para nos aperfeiçoarmos: ” Amar a Deus sobre todas as coisas e ao próximo como a si mesmo”.
+

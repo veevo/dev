@@ -9,13 +9,16 @@ topics:
 - spiritism
 ---
 
-Vampirism [of Hungarian vampir and French vampire ] - Absorption of the psychic forces of incarnate and disembodied by obsessive spirits. See: Parasitosis .
+Vampirism [of Hungarian vampir and French vampire ] - Absorption of the psychic
+forces of incarnate and disembodied by obsessive spirits. 
+
+See: Parasitosis.
 
 ## See Also
 [Spiritism](/spiritism)  
 [Mediumship](/spiritism/mediumship)   
 [Obsession](../obsession)  
-Parasitose
+[Parasitosis](../parasitosis)  
 
 
 ## Source
