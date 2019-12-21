@@ -1,6 +1,5 @@
 ---
 title: Greed
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
 topics: 
 - vices
@@ -8,10 +7,21 @@ topics:
 - charity
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Greed, or avarice, is an inordinate or insatiable longing for material gain, be
+it food, money, status, or power. As a secular psychological concept, greed is
+an inordinate desire to acquire or possess more than one needs.
+
+One of the main characteristics of a greed addiction is that the individual is
+focused on acquiring and maintaining their wealth and not disbursing their
+fortune. This is in stark contrast with spending addicts, whose compulsion to
+buying material things makes them lose all their money and drive them into
+unmanageable debt.
 
 ## Related Virtues
-Charity
+[Charity](/virtues/charity)
+
+## Related Articles
+TODO
 
 ## See Also
-TODO
+[Wikipedia: Greed](https://en.wikipedia.org/wiki/Greed)

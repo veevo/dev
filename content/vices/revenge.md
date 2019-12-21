@@ -1,15 +1,26 @@
 ---
 title: Revenge
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
 topics: 
 - vices
+- revenge
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Revenge (also vengeance, retribution, or vendetta amongst others) consists
+primarily of retaliation against a person or group in response to a perceived
+wrongdoing. Although many aspects of revenge resemble or echo the concept of
+justice, revenge usually has a more injurious than harmonious goal. The goal of
+revenge usually consists of forcing the perceived wrongdoer to suffer the same
+pain that was originally inflicted.
+
+## Source
+[Psychology Wiki: Revenge](https://psychology.wikia.org/wiki/Revenge)
 
 ## Related Virtues
 TODO
 
-## See Also
+## Related Articles
 TODO
+
+## See Also
+[Psychology Wiki: Revenge](https://psychology.wikia.org/wiki/Revenge)

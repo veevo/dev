@@ -1,12 +1,26 @@
 ---
 title: Anger
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
 topics: 
 - vices
+- anger
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Anger, also known as wrath or rage, is an intense emotional state.
+It involves a strong uncomfortable and hostile response to a perceived
+provocation, hurt or threat.
+
+Settled and deliberate anger is a reaction to perceived deliberate harm or
+unfair treatment by others. This form of anger is episodic. Dispositional anger
+is related more to character traits than to instincts or cognitions.
+Irritability, sullenness, and churlishness are examples of the last form of
+anger.
+
+## Related Virtues
+TODO
+
+## Related Articles
+TODO
 
 ## See Also
-TODO
+[Wikipedia: Anger](https://en.wikipedia.org/wiki/anger)

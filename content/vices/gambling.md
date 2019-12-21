@@ -1,12 +1,31 @@
 ---
-title: Sensuality
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
+title: Gambling
 date: 2019-02-01 19:00:00
 topics: 
 - vices
+- gambling
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Gambling addiction or gambling disorder is defined as persistent and recurring
+problematic gambling behavior that causes distress and impairs your overall
+livelihood. 
+
+The desire to buy scratch tickets, play slot machines, and visit casinos aren’t
+necessarily signs of gambling addiction. But when the desire to gamble becomes
+overwhelming to the point you can’t stop thinking about it until you gamble on
+something, may be a sign you need help. Those who suffer from gambling addiction
+will continue to gamble despite negative financial, legal, and social
+consequences.
+
+## Related Virtues
+TODO
+
+## Related Articles
+TODO
+
+## Source
+[Addictions.com: Gambling Addiction](https://www.addictions.com/gambling/)
 
 ## See Also
-TODO
+[Gambling Addiction](https://www.addictions.com/gambling/)
+

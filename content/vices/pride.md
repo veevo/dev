@@ -1,6 +1,5 @@
 ---
 title: Pride
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
 topics: 
 - vices
@@ -8,12 +7,27 @@ topics:
 - humility
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Pride is the father of all evils, it is he who unleashes all others Defects.
+It's not hard to see that truth. It's out of pride that we've discussed, it's
+out of pride that we fight, it is out of wounded pride that we hurt ourselves,
+it is the pride that makes forgiveness difficult.
 
-O orgulho onde temos dificuldades de admitir nossas falhas e fraquezas e queremos ser melhores que os outros. Esquecemos que todos somos “criaturas” de Deus, portanto, todos somos iguais, e que percebendo nossas deficiências estamos nos conhecendo melhor e com melhores condições de as transformarmos em qualidades e evoluirmos.
+Pride is an exaggeration of self-esteem, and self-self-love is necessary for 
+you must love yourself but with pride, this feeling exaggerates, which 
+becomes a sick thing.
+
+Pride prevents us from admitting our flaws and weaknesses when
+we want to be better than others. We forget that we are all "creatures" of
+God, therefore, we are all equal, and that realizing our shortcomings we are
+knowing each other better and better able to turn them into
+qualities and evolve.
 
 ## Related Virtues
 Humility
 
-## See Also
+## Related Articles
 TODO
+
+## See Also
+[Wikipedia: Pride](https://en.wikipedia.org/wiki/Pride)  
+[Psychology Wiki: Pride](https://psychology.wikia.org/wiki/Pride)

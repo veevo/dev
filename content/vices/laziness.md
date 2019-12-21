@@ -1,12 +1,32 @@
 ---
 title: Laziness
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
 topics: 
 - vices
+- laziness
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Laziness is disinclination to activity or exertion despite having the ability to
+act or to exert oneself. It is often used as a pejorative; terms for a person
+seen to be lazy.
+
+Laziness is a habit rather than a mental health issue. It may
+reflect a lack of self-esteem, a lack of positive recognition by others, a lack
+of discipline stemming from low self-confidence, or a lack of interest in the
+activity or belief in its efficacy.
+
+Laziness may manifest as procrastination or vacillation. Studies of motivation
+suggest that laziness may be caused by a decreased level of motivation, which in
+turn can be caused by over-stimulation or excessive impulses or distractions.
+
+## Related Virtues
+TODO
+
+## Related Articles
+TODO
+
+## Source
+[Wikipedia: Laziness](https://en.wikipedia.org/wiki/Laziness)
 
 ## See Also
-TODO
+todo

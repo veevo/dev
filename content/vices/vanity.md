@@ -1,12 +1,23 @@
 ---
 title: Vanity
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
 topics: 
 - vices
+- vanity
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Vanity is the excessive belief in one's own abilities or attractiveness to others. 
+
+In many religions, vanity, in its modern sense, is considered a form of self-idolatry in which one likens oneself to the greatness of God for the sake of one's own image, and thereby becomes separated and perhaps in time divorced from the Divine grace of God. In Christian teachings, vanity is an example of pride,
+
+## Source
+[Wikipedia: Vanity](https://en.wikipedia.org/wiki/Vanity)
+   
+## Related Virtues
+TODO
+
+## Related Articles
+TODO
 
 ## See Also
 TODO

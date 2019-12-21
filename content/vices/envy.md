@@ -1,6 +1,5 @@
 ---
 title: Envy
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
 topics: 
 - vices
@@ -8,10 +7,15 @@ topics:
 - kindness
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Envy can be define as a feeling of discontent and resentment aroused by and in
+conjunction with desire for the possessions or qualities of another.
 
 ## Related Virtues
 Kindness
+
+## Related Articles
+TODO
+
 
 ## See Also
 TODO

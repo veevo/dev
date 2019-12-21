@@ -1,8 +1,11 @@
 ---
-title: Vices and Obsession
+title: Obsession
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-01-01
 image: "images/contact.jpg"
+topics:
+- vices
+- obsession
 ---
 
 It is also important to point out that in all these cases, the alcoholic or the
@@ -21,7 +24,8 @@ obsessives and prevent it from being harassed again.
 
 ## Message from a spiritual Mentor
 The spiritual mentor [Joanna de Angelis](/bio/joanna-de-angelis) teaches us on
-the book “Joana de Angelis Responde”, psicografia de Divaldo Franco, capítulo 14:
+the book “Joana de Angelis Answers”, psichographed by [Divaldo Franco](/bio/divaldo-franco), 
+chapter 14:
 
 > "In addition to merely psychophysiological conjunctures, it is worth considering that,
 > in all vicious dependence, there is always a lancinante obsessive force,
@@ -34,3 +38,11 @@ In these cases, spiritual treatment and spiritual treatment is necessary
 together with the conventional treatment, added of magnetic pass resources,
 water fluidized and disobsession.
 
+## Related Virtues
+TODO
+
+## Related Articles
+TODO
+
+## See Also
+TODO

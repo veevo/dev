@@ -1,12 +1,23 @@
 ---
-title: Sensuality
-description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
+title: Games
 date: 2019-02-01 19:00:00
 topics: 
 - vices
+- games
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+## Video game disorder
+Video game addiction also known as gaming disorder or internet gaming disorder
+is generally defined as problematic, compulsive use of video and/or internet
+games, that results in significant impairment to an individual's ability to
+function in various life domains over a prolonged period of time.
+
+
+## Related Virtues
+TODO
+
+## Related Articles
+TODO
 
 ## See Also
-TODO
+[Wikipedia: Video game addiction](https://en.wikipedia.org/wiki/Video_game_addiction)
