@@ -10,6 +10,9 @@ Alcoholism, also known as alcohol use disorder, is a broad term for any drinking
 of alcohol that results in mental or physical health problems. The disorder was
 previously divided into two types: alcohol abuse and alcohol dependence.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

@@ -16,6 +16,9 @@ Intolerance is based in prejudice, and can lead to discrimination.
 In a social or political sense, intolerance is the absence of tolerance toward
 (acceptance of) people with differing viewpoints.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

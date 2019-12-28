@@ -21,6 +21,9 @@ The reason why so many people fail to stop is because they are addicted. Being
 addicted does not mean that you cannot stop - only that it is likely to be
 difficult. Anyone can succeed if he or she goes about it in the right way.
 
+## Common behaviors
+todo
+
 ## Source
 [What Is A Smoking Addiction?](https://yourmedicalsource.com/content/what-smoking-addiction)
 

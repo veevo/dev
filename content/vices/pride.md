@@ -22,6 +22,9 @@ God, therefore, we are all equal, and that realizing our shortcomings we are
 knowing each other better and better able to turn them into
 qualities and evolve.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 Humility
 

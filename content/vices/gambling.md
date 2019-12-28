@@ -17,6 +17,9 @@ something, may be a sign you need help. Those who suffer from gambling addiction
 will continue to gamble despite negative financial, legal, and social
 consequences.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

@@ -11,6 +11,9 @@ Sensualism is the persistent or excessive pursuit of sensual pleasures and
 interests. In philosophy, sensualism refers to the ethical doctrine that
 feeling is the only criterion for what is good
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

@@ -4,10 +4,13 @@ description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in 
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- spiritism
-- sensualism
-- sex
+- espiritismo
+- sensualismo
+- sexo
 - vices
+- companheirismo
+- responsabilidade
+- mae
 ---
 
 Certamente, na quase totalidade dos distúrbios na área da sexualidade, a

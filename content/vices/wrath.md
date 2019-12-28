@@ -10,6 +10,9 @@ topics:
 
 See: [Anger](../anger)
 
+## Common behaviors
+todo
+
 
 ## Related Virtues
 Patience

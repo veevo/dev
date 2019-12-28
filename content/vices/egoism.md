@@ -13,6 +13,9 @@ interest; selfishness (opposed to altruism).
 
 See: [Selfishness](../selfishness)
 
+## Common behaviors
+todo
+
 ## Related Virtues
 Altruism
 

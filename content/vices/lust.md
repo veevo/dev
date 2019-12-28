@@ -15,6 +15,9 @@ Lust can take any form such as the lust for sexuality, love, money or power. It
 can take such mundane forms as the lust for food as distinct from the need for
 food.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 Chastity
 

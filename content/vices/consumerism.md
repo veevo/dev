@@ -24,6 +24,9 @@ People with shopping addiction tend to be more materialistic than other shoppers
 and try to prop themselves up by seeking status through material objects and
 seeking approval from others.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

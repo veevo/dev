@@ -10,6 +10,9 @@ Defamation (sometimes known as calumny, vilification, or traducement) is the
 oral or written communication of a false statement about another that unjustly
 harms their reputation, and usually constitutes a tort or a crime.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

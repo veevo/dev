@@ -19,6 +19,9 @@ Laziness may manifest as procrastination or vacillation. Studies of motivation
 suggest that laziness may be caused by a decreased level of motivation, which in
 turn can be caused by over-stimulation or excessive impulses or distractions.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

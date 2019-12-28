@@ -10,6 +10,9 @@ Aggression is overt or covert, often harmful, social interaction with the
 intention of inflicting damage or other unpleasantness upon another individual.
 It may occur either reactively or without provocation.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

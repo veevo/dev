@@ -11,6 +11,9 @@ Hedonism can be classified in:
 2. The ethical doctrine holding that only what is pleasant or has pleasant consequences is intrinsically good.  
 3. The doctrine holding that behavior is motivated by the desire for pleasure and the avoidance of pain.  
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

@@ -4,15 +4,18 @@ description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in 
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- spiritism
+- sexo
+- sensualismo
+- abnegacao
 - happiness
 - pleasure
-- food
-- sex
-- life
-- hunger
-- satisfaction
-- body
+- compaixao
+- compreensao
+- discernimento
+- amor
+- pureza
+- sabedoria
+- mae
 ---
 
 Man naturally seeks pleasure and well-being.
@@ -96,7 +99,7 @@ It is very laborious, but it is the goal of his coming to Earth.
 Think about it.
 
 ## Source
-Redação do Momento Espírita.
+Redação do Momento Espírita.  
 Em 13.1.2018.
 
 [Original Article (pt-BR)](http://www.momento.com.br/pt/ler_texto.php?id=5310)

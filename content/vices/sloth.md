@@ -25,6 +25,9 @@ and other people. Sloth resists others’ demands on us. They are diversions of
 time, energy, and resources that we could spend on our own needs, desires, and
 interests.
 
+## Common behaviors
+todo
+
 
 ## Related Virtues
 Diligence  

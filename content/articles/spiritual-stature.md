@@ -3,6 +3,12 @@ title: Spiritual stature
 date: 2019-05-14T14:46:10+06:00
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 image: "images/masonary-post/post-2.jpg"
+topics:
+- esforco
+- justica
+- felicidade
+- respeito
+- oracao
 ---
 
 When someone asks us about our stature, we soon inform you how tall we are.

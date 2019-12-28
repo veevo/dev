@@ -13,6 +13,9 @@ games, that results in significant impairment to an individual's ability to
 function in various life domains over a prolonged period of time.
 
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

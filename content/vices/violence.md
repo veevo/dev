@@ -41,6 +41,9 @@ types of violence:
 * emotional
 
 
+## Common behaviors
+todo
+
 ## Source
 [Wikipedia: Violence](https://en.wikipedia.org/wiki/Violence)
 

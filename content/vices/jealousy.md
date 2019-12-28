@@ -14,6 +14,9 @@ jealous when their parents give sweets to a sibling but not to them.
 Jealousy generally refers to the thoughts or feelings of insecurity, fear, and
 concern over a relative lack of possessions.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

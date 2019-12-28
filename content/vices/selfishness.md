@@ -20,6 +20,8 @@ According to [Kardec](/bio/allan-kardec), question 913:
 his heart every feeling of selfishness, because it is incompatible with justice,
 love and charity: it neutralizes all other qualities."
 
+## Common behaviors
+todo
 
 ## Related Virtues
 Altruism

@@ -10,6 +10,10 @@ Vanity is the excessive belief in one's own abilities or attractiveness to other
 
 In many religions, vanity, in its modern sense, is considered a form of self-idolatry in which one likens oneself to the greatness of God for the sake of one's own image, and thereby becomes separated and perhaps in time divorced from the Divine grace of God. In Christian teachings, vanity is an example of pride,
 
+
+## Common behaviors
+todo
+
 ## Source
 [Wikipedia: Vanity](https://en.wikipedia.org/wiki/Vanity)
    

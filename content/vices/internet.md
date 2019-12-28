@@ -20,6 +20,9 @@ individual engages in online activities at the cost of fulfilling daily
 responsibilities or pursuing other interests, and without regard for the
 negative consequences.
 
+## Common behaviors
+todo
+
 
 ## Related Virtues
 TODO

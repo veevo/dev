@@ -11,6 +11,9 @@ Gluttony (Latin: gula, derived from the Latin gluttire meaning "to gulp down or
 swallow") means over-indulgence and over-consumption of food, drink, or wealth
 items, particularly as status symbols. 
 
+## Common behaviors
+todo
+
 ## Related Virtues
 Temperance
 

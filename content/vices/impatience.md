@@ -9,6 +9,9 @@ topics:
 The quality of being impatient; lacking patience; restlessness and intolerance
 of delays; anxiety and eagerness, especially to begin something.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

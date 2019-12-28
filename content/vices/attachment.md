@@ -14,6 +14,9 @@ The term attachment disorder is used to describe emotional and behavioral
 problems of young children, and also applied to school-age children, teenagers
 and adults.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

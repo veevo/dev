@@ -17,6 +17,9 @@ fortune. This is in stark contrast with spending addicts, whose compulsion to
 buying material things makes them lose all their money and drive them into
 unmanageable debt.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 [Charity](/virtues/charity)
 

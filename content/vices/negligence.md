@@ -13,6 +13,9 @@ The core concept of negligence is that people should exercise reasonable care in
 their actions, by taking account of the potential harm that they might
 foreseeably cause to other people or property.
 
+## Common behaviors
+todo
+
 ## Source
 [Wikipedia: Lust](https://en.wikipedia.org/wiki/negligence)
 

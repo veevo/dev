@@ -16,6 +16,9 @@ is related more to character traits than to instincts or cognitions.
 Irritability, sullenness, and churlishness are examples of the last form of
 anger.
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

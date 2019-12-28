@@ -29,6 +29,8 @@ The Wall Street Journal debunked reports that 1 in 5 marriages are ruined by
 Facebook, noting that there appeared to be no scientific evidence supporting
 such data.
 
+## Common behaviors
+todo
 
 ## Related Virtues
 TODO

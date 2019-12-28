@@ -7,6 +7,9 @@ topics:
 
 See: [Defamation](../defamation)
 
+## Common behaviors
+todo
+
 
 ## Related Virtues
 TODO

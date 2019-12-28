@@ -11,6 +11,9 @@ with the assumption that the person is wasting their time by doing nothing of
 value. Such a view is reflected in the proverb "an idle mind is the devil's
 workshop".
 
+## Common behaviors
+todo
+
 ## Related Virtues
 TODO
 

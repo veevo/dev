@@ -13,6 +13,9 @@ justice, revenge usually has a more injurious than harmonious goal. The goal of
 revenge usually consists of forcing the perceived wrongdoer to suffer the same
 pain that was originally inflicted.
 
+## Common behaviors
+todo
+
 ## Source
 [Psychology Wiki: Revenge](https://psychology.wikia.org/wiki/Revenge)
 
