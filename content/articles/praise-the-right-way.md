@@ -1,11 +1,11 @@
 ---
-title: Elogie do jeito certo
+title: Praise the right way
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- persistencia
-- oracao
-- crianca
+- persistence
+- prayer
+- child
 ---
  
 

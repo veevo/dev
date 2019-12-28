@@ -1,18 +1,18 @@
 ---
-title: Um minuto
+title: One minute
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- impaciencia
-- paciencia
-- caridade
-- perdao
-- felicidade
-- amor
-- gentileza
-- oracao
-- familia
+- violence
+- impatience
+- patience
+- charity
+- forgiveness
+- faithlicidade
+- love
+- kindness
+- prayer
+- family
 ---
 
 Por um minuto, feche os olhos e pense no que lhe aprouver...

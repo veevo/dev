@@ -1,13 +1,13 @@
 ---
-title: A parte que nos cabe
+title: The part that fits us
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ociosidade
+- idleness
 - jesus
-- respeito
-- crianca
-- familia
+- respect
+- child
+- family
 ---
 
 Quando Jesus nos orientou sobre a ideia de que nossa mão direita não deve saber

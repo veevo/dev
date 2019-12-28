@@ -1,21 +1,21 @@
 ---
-title: Comunicação dos Espíritos
+title: Communication of spirits
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- drogas
-- vicios
-- alcoolismo
-- cigarro
-- sexo
-- sensualismo
-- justica
-- felicidade
-- auxilio
-- pureza
-- respeito
+- drugs
+- addictions
+- alcoholism
+- cigarette
+- sex
+- sensualism
+- justice
+- faithlicidade
+- help
+- purity
+- respect
 - vigilancia
-- sabedoria
+- wisdom
 ---
 
 Algumas pessoas têm estranhos conceitos a respeito dos Espíritos.

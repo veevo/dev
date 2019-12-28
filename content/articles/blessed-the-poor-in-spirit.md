@@ -1,18 +1,18 @@
 ---
-title: Bem aventurados os pobres de espírito
+title: Blessed the poor in spirit
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- egoismo
+- selfishness
 - jesus
-- evangelho
-- caridade
-- justica
-- felicidade
-- humildade
-- amor
-- modestia
-- respeito
+- gospel
+- charity
+- justice
+- faithlicidade
+- humility
+- love
+- modesty
+- respect
 ---
 
 No Sermão da Montanha, o Mestre Jesus afirmou: Bem-aventurados os pobres de

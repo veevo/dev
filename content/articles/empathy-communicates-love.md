@@ -1,13 +1,13 @@
 ---
-title: A empatia comunica o amor
+title: Empathy communicates love
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- empatia
-- amor
-- oracao
-- crianca
-- mae
+- empathy
+- love
+- prayer
+- child
+- mother
 ---
 
 Todos nós, pais, amamos nossos filhos e queremos o melhor do mundo para eles.

@@ -1,10 +1,10 @@
 ---
-title: Instrumento precioso
+title: Precious instrument
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- jogos
-- sabedoria
+- games
+- wisdom
 ---
 
 É bastante comum se ouvir referências à busca da fortuna. Pensando assim, há os

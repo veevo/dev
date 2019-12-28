@@ -1,19 +1,19 @@
 ---
-title: Reações violentas
+title: Violent reactions
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- raiva
-- odio
-- agressividade
-- disciplina
-- justica
-- humildade
-- amor
-- paciencia
+- violence
+- anger
+- hate
+- aggressiveness
+- discipline
+- justice
+- humility
+- love
+- patience
 - tolerancia
-- crianca
+- child
 ---
 
 Está se tornando comum as pessoas reagirem com violência ao mal que lhes

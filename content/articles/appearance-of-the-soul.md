@@ -1,24 +1,24 @@
 ---
-title: Aparência da alma
+title: Appearance of the soul
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- alma
-- orgulho
+- soul
+- pride
 - egoísmo
-- raiva
-- inveja
-- maledicência
-- amor
-- caridade
-- amizade
-- solidariedade
-- bondade
-- coragem
-- esforco
-- bondade
-- amor
-- mae
+- anger
+- envy
+- badedicência
+- love
+- charity
+- friendship
+- solidarity
+- kindness
+- courage
+- effort
+- kindness
+- love
+- mother
 ---
 
 Há um antigo conto popular japonês que narra a história de uma moça tiranizada

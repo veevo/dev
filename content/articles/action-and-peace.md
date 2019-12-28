@@ -1,20 +1,20 @@
 ---
-title: Ação de paz
+title: Action and peace
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- paz
-- violencia
-- paciencia
-- humildade
-- calma
-- compreensao
-- esforco
-- serenidade
-- sensibilidade
-- temperanca
-- tranquilidade
+- vanity
+- peace
+- violence
+- patience
+- humility
+- calm
+- comprehension
+- effort
+- serenity
+- sensitivity
+- temperance
+- tranquility
 ---
 
 

@@ -1,13 +1,13 @@
 ---
-title: Ciúme
+title: Jealousy
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ciume
-- altruismo
-- confianca
-- disciplina
-- amor
+- jealousy
+- altruism
+- trust
+- discipline
+- love
 ---
 
 Os ciumentos não precisam de causa para o ciúme: têm ciúme, nada mais. O ciúme

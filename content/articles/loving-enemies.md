@@ -1,20 +1,20 @@
 ---
-title: Amando os inimigos
+title: Loving enemies
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- inimigo
-- benevolencia
-- compreensao
-- esforco
-- empatia
-- perdao
-- indulgencia
-- amor
+- impatience
+- patience
+- enemy
+- benevolence
+- comprehension
+- effort
+- empathy
+- forgiveness
+- indulgence
+- love
 - tolerancia
-- oracao
+- prayer
 ---
 
 Você já percebeu que há pessoas que nos exigem um pouco mais de esforço para

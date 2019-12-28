@@ -1,11 +1,11 @@
 ---
-title: Um pouco de compaixão
+title: A little compassion
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- empatia
-- compaixao
-- familia
+- empathy
+- compassion
+- family
 ---
 
 É verdade que algumas vezes nos irritamos com aquele que vem nos bater à porta

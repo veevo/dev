@@ -1,14 +1,14 @@
 ---
-title: Não desista de você
+title: Dont give up on you
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
-- depressao
-- esforco
-- amor
-- paciencia
-- crianca
+- fast
+- effort
+- love
+- patience
+- child
 ---
 
 Por vezes você não entende como as pessoas ainda conseguem sorrir num mundo

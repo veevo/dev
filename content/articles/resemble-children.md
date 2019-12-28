@@ -1,21 +1,21 @@
 ---
-title: Assemelhar-se às crianças
+title: Resemble children
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- apego
-- materialismo
+- attachment
+- materialism
 - jesus
-- criancas
-- evangelho
-- amor
-- felicidade
-- amor
-- pureza
-- oracao
-- crianca
+- childs
+- gospel
+- love
+- faithlicidade
+- love
+- purity
+- prayer
+- child
 ---
 
 Apresentaram a Jesus então umas criancinhas, a fim de que ele as tocasse. E

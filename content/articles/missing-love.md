@@ -1,17 +1,17 @@
 ---
-title: Falta amar
+title: Missing love
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- casamento
-- redes-sociais
-- amor
-- adolescentes
-- familia
-- gratidao
-- amor
-- familia
-- mae
+- wedding
+- social networks
+- love
+- teens
+- family
+- gratitude
+- love
+- family
+- mother
 ---
 
 Um vídeo circulou pelas redes sociais. Mostrava algo bastante singelo e

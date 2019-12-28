@@ -1,17 +1,17 @@
 ---
-title: Privacidade
+title: Privacy
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- sensualismo
-- sexo
-- pornografia
-- privacidade
-- intimidade
+- sensualism
+- sex
+- pornography
+- privacy
+- intimacy
 - obsessao
-- dignidade
-- pureza
-- respeito
+- dignity
+- purity
+- respect
 ---
 
 Atualmente, fala-se muito em direito à privacidade e à intimidade.

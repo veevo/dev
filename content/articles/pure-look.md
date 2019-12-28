@@ -1,16 +1,16 @@
 ---
-title: Um olhar puro
+title: Pure look
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- sensualismo
-- sexo
-- pornografia
-- trabalho
-- aprendiz
-- dignidade
-- oracao
-- familia
+- sensualism
+- sex
+- pornography
+- work
+- apprentice
+- dignity
+- prayer
+- family
 ---
  
 

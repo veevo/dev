@@ -1,12 +1,12 @@
 ---
-title: Justiça Divina
+title: Divine justice
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- devocao
-- justica
-- deus
-- mae
+- devotion
+- justice
+- god
+- mother
 ---
 
  Eles eram jovens, amáveis e simpáticos. Seus semblantes irradiavam alegria.

@@ -1,15 +1,15 @@
 ---
-title: As agruras da vida
+title: Life groupings
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- gula
-- programacao-espiritual
-- esforco
-- justica
-- auxilio
-- humildade
-- paciencia
+- gluttony
+- spiritual-programming
+- effort
+- justice
+- help
+- humility
+- patience
 - tolerancia
 ---
 

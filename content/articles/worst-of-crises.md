@@ -1,16 +1,16 @@
 ---
-title: A pior das crises
+title: Worst of crises
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
+- pride
+- humility
 - jesus
-- calma
-- bondade
-- amor
-- solidariedade
-- sabedoria
+- calm
+- kindness
+- love
+- solidarity
+- wisdom
 ---
 
 Tiago, um dos Apóstolos de Jesus, era bastante fiel às tradições da época, ao

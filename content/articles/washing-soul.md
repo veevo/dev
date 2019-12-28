@@ -1,18 +1,18 @@
 ---
-title: Lavar a alma
+title: Washing soul
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- alma
-- raiva
-- compaixao
-- coragem
-- perdao
-- integridade
-- amor
-- oracao
+- pride
+- humility
+- soul
+- anger
+- compassion
+- courage
+- forgiveness
+- integrity
+- love
+- prayer
 ---
 
 Naquela manhã, a caminho do trabalho, Marcela ouviu uma conversa no ônibus: Eu

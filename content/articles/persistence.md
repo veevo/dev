@@ -1,11 +1,11 @@
 ---
-title: Persistência
+title: Persistence
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- persistencia
-- oracao
-- familia
+- persistence
+- prayer
+- family
 ---
 
 Um homem investe tudo o que tem numa pequena oficina. Trabalha dia e noite,

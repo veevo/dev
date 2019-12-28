@@ -1,21 +1,21 @@
 ---
-title: Jesus sabe
+title: Jesus knows
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- calunia
-- difamacao
+- slander
+- defamation
 - jesus
-- justica
-- trabalho
-- aprendiz
-- companheirismo
-- compaixao
-- confianca
-- justica
-- amor
-- renuncia
-- oracao
+- justice
+- work
+- apprentice
+- companionship
+- compassion
+- trust
+- justice
+- love
+- waiver
+- prayer
 ---
 
 Quantas lágrimas você já verteu a sós, sem ninguém para lhe estender um ombro

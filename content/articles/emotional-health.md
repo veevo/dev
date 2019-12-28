@@ -1,23 +1,23 @@
 ---
-title: Saúde emocional
+title: Emotional health
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- gratidao
-- compaixao
-- amor
-- saude
-- raiva
-- compaixao
-- compreensao
-- esforco
-- perdao
-- gratidao
-- felicidade
-- amor
-- tranquilidade
-- oracao
+- revenge
+- gratitude
+- compassion
+- love
+- health
+- anger
+- compassion
+- comprehension
+- effort
+- forgiveness
+- gratitude
+- faithlicidade
+- love
+- tranquility
+- prayer
 ---
  
 

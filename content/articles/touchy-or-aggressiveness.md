@@ -1,19 +1,19 @@
 ---
-title: Melindre ou agressividade?
+title: Touchy or aggressiveness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- melindre
-- agressividade
-- afabilidade
-- caridade
-- companheirismo
-- esforco
-- respeito
-- gentileza
-- familia
+- pride
+- humility
+- touchy
+- aggressiveness
+- affability
+- charity
+- companionship
+- effort
+- respect
+- kindness
+- family
 ---
 
 Melindre tem várias definições. Pode ser definido como amabilidade, delicadeza

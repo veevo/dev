@@ -1,10 +1,10 @@
 ---
-title: Se soubéssemos...
+title: If we knew
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discernimento
-- oracao
+- discernment
+- prayer
 ---
 
 Se o criminoso conhecesse, de antemão, o tributo de dor que a vida lhe cobrará,

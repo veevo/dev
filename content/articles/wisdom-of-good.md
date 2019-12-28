@@ -1,15 +1,15 @@
 ---
-title: A sabedoria do bem
+title: Wisdom of good
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- amor
-- violencia
-- compaixao
-- felicidade
-- amor
-- sabedoria
+- revenge
+- love
+- violence
+- compassion
+- faithlicidade
+- love
+- wisdom
 ---
 
 Quando, na Antiguidade, alguém queria matar um urso, pendurava uma pesada tora

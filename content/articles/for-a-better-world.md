@@ -1,21 +1,21 @@
 ---
-title: Para um mundo melhor
+title: For a better world
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- sensualismo
-- sexo
-- pornografia
-- criancas
-- familia
-- violencia
-- caridade
-- confianca
-- esforco
-- amor
-- respeito
-- oracao
-- crianca
+- sensualism
+- sex
+- pornography
+- childs
+- family
+- violence
+- charity
+- trust
+- effort
+- love
+- respect
+- prayer
+- child
 ---
 
 Como aguardar a melhoria do mundo, se tão poucos cuidados existem para com o

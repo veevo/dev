@@ -1,17 +1,17 @@
 ---
-title: O outro lado da festa
+title: Other side of the party
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- drogas
-- vicios
-- sexo
-- sensualismo
-- saude
-- familia
-- adolescentes
-- carnaval
-- crianca
+- drugs
+- addictions
+- sex
+- sensualism
+- health
+- family
+- teens
+- carnival
+- child
 ---
 
 Os preparativos para a grande festa estão sendo providenciados há meses.

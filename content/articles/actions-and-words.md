@@ -1,19 +1,19 @@
 --
-title: Ações e palavras
+title: Actions and words
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- francisco-de-assis
+- vanity
+- humility
+- francis-of-assisi
 - jesus
-- familia
-- filhos
-- sabedoria
-- justica
-- responsabilidade
-- sabedoria
-- oracao
+- family
+- children
+- wisdom
+- justice
+- responsibility
+- wisdom
+- prayer
 ---
 
 

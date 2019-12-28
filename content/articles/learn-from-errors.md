@@ -1,17 +1,17 @@
 ---
-title: Aprender com os erros
+title: Learn from errors
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- vaidade
-- humildade
-- aprendiz
-- disciplina
-- esforco
-- amor
-- responsabilidade
-- sabedoria
+- pride
+- vanity
+- humility
+- apprentice
+- discipline
+- effort
+- love
+- responsibility
+- wisdom
 ---
 
 A perfeição ainda é um estado muito distante da Humanidade.

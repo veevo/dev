@@ -1,13 +1,13 @@
 ---
-title: Amor sem barreiras
+title: Love without barriers
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- casamento
-- discricao
-- amor
-- crianca
-- familia
+- wedding
+- discretion
+- love
+- child
+- family
 ---
 
 De um modo geral, ficamos atentos às notícias, o que nos leva a sintonizarmos,

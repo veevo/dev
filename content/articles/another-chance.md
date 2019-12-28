@@ -1,10 +1,10 @@
 ---
-title: Outra chance
+title: Another chance
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discricao
-- perdao
+- discretion
+- forgiveness
 ---
 
 A linguagem dos Evangelhos, pela sua tônica de síntese, não se alonga em

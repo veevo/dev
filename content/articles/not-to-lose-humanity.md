@@ -1,16 +1,16 @@
 ---
-title: Para não perder a humanidade
+title: Not to lose humanity
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- redes-sociais
-- tecnologia
-- empatia
-- respeito
-- sensibilidade
-- solidariedade
-- gentileza
+- violence
+- social networks
+- technology
+- empathy
+- respect
+- sensitivity
+- solidarity
+- kindness
 ---
 
 Diariamente, nos deparamos com as mais diversas notícias do que ocorre no

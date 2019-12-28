@@ -1,23 +1,23 @@
 ---
-title: Os tons multicoloridos do amor
+title: Shades of love
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- amor
-- vaidade
-- humildade
-- caridade
-- disciplina
-- esforco
-- perdao
-- amor
-- mansidao
-- tranquilidade
-- crianca
-- familia
-- mae
+- impatience
+- patience
+- love
+- vanity
+- humility
+- charity
+- discipline
+- effort
+- forgiveness
+- love
+- meekness
+- tranquility
+- child
+- family
+- mother
 ---
 
 

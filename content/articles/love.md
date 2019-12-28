@@ -1,12 +1,12 @@
 ---
-title: O amor
+title: Love
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- casamento
-- devocao
-- amor
-- oracao
+- wedding
+- devotion
+- love
+- prayer
 ---
 
         O amor é de essência divina, bradam os Imortais. O homem, nos ensaios

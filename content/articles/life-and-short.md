@@ -1,13 +1,13 @@
 ---
-title: A vida é curta
+title: Life and short
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ociosidade
-- vinganca
-- amor
-- responsabilidade
-- familia
+- idleness
+- revenge
+- love
+- responsibility
+- family
 ---
 
 Um simples adesivo, fixado num vidro de carro, revela uma filosofia de vida

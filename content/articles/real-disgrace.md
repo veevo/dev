@@ -1,20 +1,20 @@
 ---
-title: A verdadeira desgraça
+title: Real disgrace
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- felicidade
-- infelicidade
-- crianca
-- desgraca
-- coragem
-- dignidade
-- disciplina
-- felicidade
-- oracao
-- crianca
+- vanity
+- humility
+- faithlicidade
+- unhappiness
+- child
+- disgrace
+- courage
+- dignity
+- discipline
+- faithlicidade
+- prayer
+- child
 ---
 
 Toda gente fala da desgraça, toda gente já a sentiu e julga

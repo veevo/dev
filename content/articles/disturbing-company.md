@@ -1,15 +1,15 @@
 ---
-title: Companhia perturbadora
+title: Disturbing company
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- inveja
-- caridade
-- compreensao
-- disciplina
-- felicidade
-- amor
-- respeito
+- envy
+- charity
+- comprehension
+- discipline
+- faithlicidade
+- love
+- respect
 ---
 
  

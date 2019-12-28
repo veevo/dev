@@ -1,9 +1,9 @@
 ---
-title: Serpente e o vaga-lume (A)
+title: Snake and firefly
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- inveja
+- envy
 --- 
 
 Conta uma lenda que certa vez uma serpente começou a perseguir um vaga-lume.

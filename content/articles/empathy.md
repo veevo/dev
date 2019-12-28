@@ -1,11 +1,11 @@
 ---
-title: Empatia
+title: Empathy
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- empatia
-- oracao
-- familia
+- empathy
+- prayer
+- family
 ---
 
 Um ancião que estava para morrer procurou um jovem e narrou uma história de

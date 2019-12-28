@@ -1,15 +1,15 @@
 ---
-title: Reforma íntima
+title: Intimate reform
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- ciume
-- egoismo
-- reforma-intima
-- esforco
-- respeito
+- impatience
+- patience
+- jealousy
+- selfishness
+- reform-last
+- effort
+- respect
 ---
  
 

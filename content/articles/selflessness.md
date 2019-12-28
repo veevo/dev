@@ -1,22 +1,22 @@
 ---
-title: Abnegação
+title: Selflessness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- abnegacao
-- apego
-- egoismo
-- caridade
-- bondade
-- razao
-- responsabilidade
-- determinacao
-- disciplina
-- desinteresse
-- esforco
-- bondade
-- responsabilidade
-- sensibilidade
+- abnegation
+- attachment
+- selfishness
+- charity
+- kindness
+- reason
+- responsibility
+- determination
+- discipline
+- disinterest
+- effort
+- kindness
+- responsibility
+- sensitivity
 ---
 
 

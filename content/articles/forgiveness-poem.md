@@ -1,22 +1,21 @@
 ---
-title: Poema do perdão
+title: Forgiveness poem
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- abnegacao
-- perdao
+- abnegation
+- forgiveness
 - jeus
-- simao-pedro
-- agressividade
-- abnegacao
-- violencia
-- companheirismo
-- perdao
-- amor
-- respeito
-- responsabilidade
-- oracao
-- mae
+- simon-peter
+- aggressiveness
+- violence
+- companionship
+- forgiveness
+- love
+- respect
+- responsibility
+- prayer
+- mother
 ---
 
 Poema do perdão

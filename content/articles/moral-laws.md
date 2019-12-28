@@ -1,19 +1,19 @@
 ---
-title: Moral Laws
+title: Moral laws
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- espiritismo
-- leis-divinas
+- spiritism
+- divine-laws
 - lucas
-- mateus
-- violencia
-- caridade
-- justica
-- amor
-- respeito
-- oracao
+- matthew
+- violence
+- charity
+- justice
+- love
+- respect
+- prayer
 ---
 
 The law of universal gravitation is one of the laws governing the physical

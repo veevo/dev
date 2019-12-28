@@ -1,12 +1,12 @@
 ---
-title: Pregações
+title: Preaching
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
 - jesus
-- amor
-- respeito
+- love
+- respect
 ---
 
 A modernidade é rica de meios para que as pessoas externem seus pensamentos.

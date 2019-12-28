@@ -1,17 +1,17 @@
 ---
-title: Fixação mental
+title: Mental fixation
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ciume
-- vinganca
+- jealousy
+- revenge
 - jesus
-- reforma-intima
-- esforco
-- paciencia
-- perseveranca
+- reform-last
+- effort
+- patience
+- perseverance
 - vigilancia
-- oracao
+- prayer
 ---
 
 

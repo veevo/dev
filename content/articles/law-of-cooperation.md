@@ -1,18 +1,18 @@
 ---
-title: A lei de cooperação
+title: Law of cooperation
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- leis-divinas
-- cooperacao
-- companheirismo
-- esforco
-- pureza
+- divine-laws
+- cooperation
+- companionship
+- effort
+- purity
 - tolerancia
-- sabedoria
-- oracao
+- wisdom
+- prayer
 ---
 
 

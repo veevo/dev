@@ -1,19 +1,19 @@
 ---
-title: Nossos sentimentos-dores
+title: Feelings and pains
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- raiva
-- aprendiz
-- compaixao
-- compreensao
-- esforco
-- perdao
-- felicidade
-- amor
-- respeito
+- anger
+- apprentice
+- compassion
+- comprehension
+- effort
+- forgiveness
+- faithlicidade
+- love
+- respect
 - tolerancia
 ---
 

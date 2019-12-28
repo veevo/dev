@@ -1,14 +1,14 @@
 ---
-title: Buscai e achareis
+title: Search and you will find
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- preguica
-- comodismo
-- dignidade
-- esforco
-- respeito
-- responsabilidade
+- laziness
+- entrepreneurship
+- dignity
+- effort
+- respect
+- responsibility
 ---
 
 Há uma passagem no Evangelho na qual Jesus afirma: Buscai e achareis.

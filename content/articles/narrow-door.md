@@ -1,26 +1,26 @@
 ---
-title: A porta estreita
+title: Narrow door
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- apego
-- meterialismo
-- sabedoria
+- attachment
+- materialism
+- wisdom
 - jesus
-- evangelho
-- deus
-- dinheiro
-- sexo
-- sensualismo
-- aprendiz
-- compaixao
-- esforco
-- bondade
-- felicidade
-- amor
-- lealdade
-- pureza
-- sabedoria
+- gospel
+- god
+- money
+- sex
+- sensualism
+- apprentice
+- compassion
+- effort
+- kindness
+- faithlicidade
+- love
+- loyalty
+- purity
+- wisdom
 ---
 
 Em certo trecho do Evangelho, Jesus afirma ser estreita a porta que conduz à

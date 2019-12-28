@@ -1,18 +1,18 @@
 ---
-title: Mágoas
+title: Sorrows
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
 - emocoes
-- magoa
-- aprendiz
-- compreensao
-- esforco
-- perdao
-- amor
-- paciencia
+- hurt
+- apprentice
+- comprehension
+- effort
+- forgiveness
+- love
+- patience
 - tolerancia
 ---
 

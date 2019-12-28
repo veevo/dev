@@ -1,15 +1,15 @@
 ---
-title: Contentar-se
+title: Settle for yourself
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- paulo-de-tarso
-- egoismo
-- apego
-- dignidade
-- felicidade
-- sabedoria
-- familia
+- paul-of-tarsus
+- selfishness
+- attachment
+- dignity
+- faithlicidade
+- wisdom
+- family
 ---
 
 Em sua Epístola aos filipenses, Paulo de Tarso afirmou já ter aprendido a se

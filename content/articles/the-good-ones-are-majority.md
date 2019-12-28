@@ -1,13 +1,13 @@
 ---
-title: Os bons são maioria
+title: The good ones are majority
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
-- bondade
-- bondade
-- amor
-- mae
+- kindness
+- kindness
+- love
+- mother
 ---
 
 

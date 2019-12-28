@@ -1,19 +1,19 @@
 ---
-title: O tempo
+title: Time
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- alegria
-- tristeza
-- sabedoria
-- amor
-- tempo
-- calma
-- amor
-- paciencia
-- sabedoria
+- vanity
+- humility
+- joy
+- sadness
+- wisdom
+- love
+- time
+- calm
+- love
+- patience
+- wisdom
 --- 
 
 Um autor desconhecido escreveu certa vez que a alegria, a tristeza, a vaidade,

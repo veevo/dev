@@ -1,19 +1,19 @@
 ---
-title: Vingança tola
+title: Foolish revenge
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- vinganca
-- pena-de-morte
-- violencia
-- justica
-- perdao
-- amor
-- respeito
-- oracao
-- familia
-- mae
+- violence
+- revenge
+- death penalty
+- violence
+- justice
+- forgiveness
+- love
+- respect
+- prayer
+- family
+- mother
 ---
 
 A pena de morte, a princípio, pode ter como finalidade punir juridicamente um

@@ -1,14 +1,14 @@
 ---
-title: Em nome da vaidade
+title: In the name of vanity
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- etica
-- respeito
-- sabedoria
-- crianca
+- vanity
+- humility
+- ethics
+- respect
+- wisdom
+- child
 ---
 
 Na antiga china os príncipes se casavam com meninas entre 12 e 13 anos. As

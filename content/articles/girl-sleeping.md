@@ -1,20 +1,20 @@
 ---
-title: A menina que dormia
+title: Girl sleeping
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- negligencia
-- evangelho
+- negligence
+- gospel
 - jesus
-- reforma-intima
-- crueldade
-- indiferenca
-- egoismo
-- rebeldia
-- esforco
-- amor
-- respeito
-- responsabilidade
+- reform-last
+- cruelty
+- indifference
+- selfishness
+- rebellion
+- effort
+- love
+- respect
+- responsibility
 ---
 
 

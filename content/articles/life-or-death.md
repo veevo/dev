@@ -1,21 +1,21 @@
 ---
-title: Vida ou morte
+title: Life or death
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vida
-- morte
-- raiva
-- odio
-- impaciencia
-- paciencia
-- mal-humor
-- negligencia
-- calma
-- dignidade
-- amor
-- oracao
-- familia
+- life
+- death
+- anger
+- hate
+- impatience
+- patience
+- bad-humor
+- negligence
+- calm
+- dignity
+- love
+- prayer
+- family
 ---
 
 Todos os seres vivos nascemos, vivemos um determinado tempo. E morremos um dia.

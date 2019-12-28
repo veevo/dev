@@ -1,13 +1,13 @@
 ---
-title: Serenidade e acomodação
+title: Serenity and accommodation
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- preguica
-- serenidade
-- aprendiz
-- calma
-- serenidade
+- laziness
+- serenity
+- apprentice
+- calm
+- serenity
 ---
 
 Você já observou que um dos maiores inimigos do homem é a acomodação? Irmã da

@@ -1,12 +1,12 @@
 ---
-title: Generosidade sempre
+title: Generosity always
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- generosidade
-- gentileza
-- oracao
-- mae
+- generosity
+- kindness
+- prayer
+- mother
 ---
 
 Somos generosos perante a vida?

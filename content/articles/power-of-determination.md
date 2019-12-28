@@ -1,11 +1,11 @@
 ---
-title: O poder da determinação
+title: Power of determination
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- persistencia
-- oracao
-- mae
+- persistence
+- prayer
+- mother
 ---
 
 O garoto era encarregado de chegar mais cedo, todos os dias, e acender o

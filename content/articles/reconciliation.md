@@ -1,22 +1,22 @@
 ---
-title: Reconciliação
+title: Reconciliation
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- orgulho
-- egoismo
-- humildade
-- perdao
-- vicios
-- leis-divinas
-- fraternidade
-- aprendiz
-- companheirismo
-- justica
-- felicidade
-- respeito
-- oracao
+- vanity
+- pride
+- selfishness
+- humility
+- forgiveness
+- addictions
+- divine-laws
+- fraternity
+- apprentice
+- companionship
+- justice
+- faithlicidade
+- respect
+- prayer
 ---
 
 Há uma interessante passagem evangélica na qual Jesus recomenda que o homem se

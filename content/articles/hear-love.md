@@ -1,18 +1,18 @@
 ---
-title: Ouvir, ver, amar
+title: Hear love
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- redes-sociais
-- tecnologia
-- dignidade
-- empatia
-- perdao
-- gratidao
-- felicidade
-- humildade
-- amor
-- familia
+- social networks
+- technology
+- dignity
+- empathy
+- forgiveness
+- gratitude
+- faithlicidade
+- humility
+- love
+- family
 ---
 
 Residente em Aracaju, no Estado do Sergipe, Reinaldo é vendedor de coco há

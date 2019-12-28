@@ -1,9 +1,9 @@
 ---
-title: A César e a Deus
+title: Cesar and god
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discricao
+- discretion
 - jesus
 ---
 

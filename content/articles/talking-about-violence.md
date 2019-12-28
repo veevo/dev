@@ -1,14 +1,14 @@
 ---
-title: Falando de violências...
+title: Talking about violence
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- agressividade
-- indiferenca
-- perdao
-- amor
-- oracao
+- violence
+- aggressiveness
+- indifference
+- forgiveness
+- love
+- prayer
 ---
 
 Falando de violências...

@@ -1,17 +1,17 @@
 ---
-title: O sol real
+title: Real sun
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- consumismo
-- materialismo
-- simplicidade
-- desprezo
-- indiferenca
-- etica
-- felicidade
+- addictions
+- drugs
+- consumerism
+- materialism
+- simplicity
+- contempt
+- indifference
+- ethics
+- faithlicidade
 ---
 
 Certa vez um pai, muito sensível, percebeu que uma de suas filhas estava

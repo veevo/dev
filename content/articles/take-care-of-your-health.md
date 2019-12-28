@@ -1,14 +1,13 @@
 ---
-title: 
+title: Take care of your health
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- saude
-- alcoolismo
-- sinceridade
+- health
+- alcoholism
+- sincerity
 ---
 
-Cuide da sua saúde
 
 Nas atividades diárias, você encontra muita desatenção para com a saúde, vivida
 por gigantesco número de pessoas.

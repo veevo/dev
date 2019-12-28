@@ -4,18 +4,18 @@ description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in 
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- sexo
-- sensualismo
-- abnegacao
+- sex
+- sensualism
+- abnegation
 - happiness
 - pleasure
-- compaixao
-- compreensao
-- discernimento
-- amor
-- pureza
-- sabedoria
-- mae
+- compassion
+- comprehension
+- discernment
+- love
+- purity
+- wisdom
+- mother
 ---
 
 Man naturally seeks pleasure and well-being.

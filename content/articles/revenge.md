@@ -1,18 +1,18 @@
 ---
-title: A vingança
+title: Revenge
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- coragem
-- dignidade
-- justica
+- revenge
+- courage
+- dignity
+- justice
 - fielidade
-- perdao
-- gratidao
-- indulgencia
-- amor
-- serenidade
+- forgiveness
+- gratitude
+- indulgence
+- love
+- serenity
 - tolerancia
 ---
 

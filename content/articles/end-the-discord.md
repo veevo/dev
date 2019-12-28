@@ -1,19 +1,19 @@
 ---
-title: Calar a discórdia
+title: End the discord
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- rebeldia
-- diversidade
-- trabalho
-- familia
-- rebeldia
-- dignidade
-- desinteresse
-- etica
-- serenidade
+- vanity
+- humility
+- rebellion
+- diversity
+- work
+- family
+- rebellion
+- dignity
+- disinterest
+- ethics
+- serenity
 ---
 
 A harmonia plena ainda constitui um sonho distante de qualquer organização

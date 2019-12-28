@@ -1,17 +1,17 @@
 ---
-title: Trabalhadores da última hora
+title: Last minute workers
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
+- revenge
 - jesus
-- trabalho
-- compreensao
-- esforco
-- pureza
-- renuncia
-- crianca
-- familia
+- work
+- comprehension
+- effort
+- purity
+- waiver
+- child
+- family
 ---
 
 Em suas pregações, Jesus utilizou largamente o recurso das parábolas.

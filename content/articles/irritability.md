@@ -1,16 +1,16 @@
 ---
-title: Irritabilidade
+title: Irritability
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- irritacao
-- calma
-- felicidade
-- humildade
-- amor
-- oracao
+- impatience
+- patience
+- irritation
+- calm
+- faithlicidade
+- humility
+- love
+- prayer
 ---
 
 Pedro, Elizabeth e José estavam reunidos a tarde toda, envolvidos no trabalho

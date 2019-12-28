@@ -1,20 +1,20 @@
 ---
-title: É preciso saber viver
+title: Know how to live
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- calunia
-- difamacao
-- maledicencia
-- traicao
-- vinganca
+- slander
+- defamation
+- badedicencia
+- betrayal
+- revenge
 - jesus
-- amor
-- compreensao
-- perdao
-- amor
-- paciencia
-- gentileza
+- love
+- comprehension
+- forgiveness
+- love
+- patience
+- kindness
 ---
 
 Dois grandes vultos da música brasileira, certa vez, compuseram os seguintes

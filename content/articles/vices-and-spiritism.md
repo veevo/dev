@@ -1,5 +1,5 @@
 ---
-title: Vices under the Light of Spiritism
+title: Vices and spiritism
 description: Are the aura and the perispirit the same? Learn about aura, perispirt and other important concepts about them.
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"

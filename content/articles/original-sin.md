@@ -1,19 +1,19 @@
 ---
-title: Pecado original
+title: Original sin
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- pureza
-- bondade
-- rebeldia
-- disciplina
-- esforco
-- bondade
-- paciencia
-- pureza
-- sensibilidade
-- crianca
+- addictions
+- purity
+- kindness
+- rebellion
+- discipline
+- effort
+- kindness
+- patience
+- purity
+- sensitivity
+- child
 ---
 
 A humanidade é essencialmente díspar em suas características.

@@ -1,14 +1,14 @@
 ---
-title: Gratidão ao Senhor da Vida
+title: Gratitude to you
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discernimento
-- gratidao
-- deus
-- oracao
-- crianca
-- familia
+- discernment
+- gratitude
+- god
+- prayer
+- child
+- family
 ---
 
 Quando ouvimos falar em gratidão, uma forte lembrança, misto de saudade, nos

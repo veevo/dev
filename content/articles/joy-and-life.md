@@ -1,5 +1,5 @@
 ---
-title: Alegria e Vida
+title: Joy and life
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
@@ -7,10 +7,10 @@ topics:
 - spiritism
 - happiness
 - life
-- etica
-- felicidade
-- amor
-- oracao
+- ethics
+- faithlicidade
+- love
+- prayer
 ---
 
 A Humanidade terrena passa por momentos difíceis, complicados, jamais imaginados pelas gerações presentes.

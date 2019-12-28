@@ -1,19 +1,19 @@
 ---
-title: Cultivando jardins
+title: Cultivating gardens
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- vaidade
-- humildade
-- justica
-- perdao
-- bondade
-- gratidao
-- amor
-- responsabilidade
-- gentileza
-- crianca
+- pride
+- vanity
+- humility
+- justice
+- forgiveness
+- kindness
+- gratitude
+- love
+- responsibility
+- kindness
+- child
 ---
 
 Todos os dias, antes das seis da manhã, Francisco Toda se encontra na lida

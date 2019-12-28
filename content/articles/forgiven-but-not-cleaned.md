@@ -1,24 +1,24 @@
 ---
-title: Perdoados, mas não limpos
+title: Forgiven but not cleaned
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- calunia
-- difamacao
-- maledicencia
-- traicao
-- crueldade
-- pureza
-- bondade
-- perdao
+- violence
+- slander
+- defamation
+- badedicencia
+- betrayal
+- cruelty
+- purity
+- kindness
+- forgiveness
 - vigilancia
-- justica
-- perdao
-- bondade
-- pureza
+- justice
+- forgiveness
+- kindness
+- purity
 - vigilancia
-- oracao
+- prayer
 ---
  
 

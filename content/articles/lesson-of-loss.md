@@ -1,20 +1,20 @@
 ---
-title: A lição do perdão
+title: Lesson of loss
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- calunia
-- difamacao
-- perdao
-- aprendiz
-- calma
-- compreensao
-- perdao
-- felicidade
-- amor
-- respeito
-- solidariedade
-- familia
+- slander
+- defamation
+- forgiveness
+- apprentice
+- calm
+- comprehension
+- forgiveness
+- faithlicidade
+- love
+- respect
+- solidarity
+- family
 ---
 
 O que faríamos se, de repente, por uma circunstância qualquer, tivéssemos nas

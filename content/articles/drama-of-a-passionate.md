@@ -1,13 +1,13 @@
 ---
-title: Drama de um apaixonado
+title: Drama of a passionate
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- drogas
-- cocaina
-- coragem
-- oracao
-- familia
+- drugs
+- cocaine
+- courage
+- prayer
+- family
 ---
  
 

@@ -1,13 +1,13 @@
 ---
-title: A esperança
+title: Hope
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- esperanca
-- tranquilidade
-- oracao
+- pride
+- humility
+- hope
+- tranquility
+- prayer
 ---
 
 Há dias que temos a impressão de que chegamos no fim do caminho. Olhamos para

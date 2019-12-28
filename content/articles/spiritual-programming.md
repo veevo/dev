@@ -1,11 +1,11 @@
 ---
-title: Programação espiritual
+title: Spiritual programming
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discernimento
-- reencarnacao
-- crianca
+- discernment
+- reincarnation
+- child
 ---
 
 Antes de renascer na carne, cada Espírito elabora uma programação a cumprir.

@@ -1,13 +1,13 @@
 ---
-title: Tola vingança
+title: Silly revenge
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- determinacao
-- perdao
-- felicidade
-- mae
+- revenge
+- determination
+- forgiveness
+- faithlicidade
+- mother
 ---
 
 As lendas chinesas são muito interessantes e sempre plenas de ensinos.

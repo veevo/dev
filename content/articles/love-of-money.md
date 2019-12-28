@@ -1,13 +1,13 @@
 ---
-title: O amor ao dinheiro move os executivos
+title: Love of money
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- confiabilidade
-- confianca
-- leis-divinas
-- familia
-- mae
+- reliability
+- trust
+- divine-laws
+- family
+- mother
 ---
 
 Postura empresarial fere os Dez Mandamentos.

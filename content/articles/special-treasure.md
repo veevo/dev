@@ -1,17 +1,17 @@
 ---
-title: Um especial tesouro
+title: Special treasure
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
-- paulo-de-tarso
-- paciencia
-- humildade
-- brandura
-- disciplina
-- sabedoria
+- addictions
+- drugs
+- cigarette
+- paul-of-tarsus
+- patience
+- humility
+- softness
+- discipline
+- wisdom
 ---
 
 Na Epístola aos Efésios, capítulo 5, versículos 14 a 17, Paulo de Tarso

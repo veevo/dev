@@ -1,22 +1,22 @@
 ---
-title: Perante o mal
+title: Before evil
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- vinganca
+- violence
+- revenge
 - jesus
-- amor
-- mal
-- compreensao
-- esforco
-- justica
-- perdao
-- generosidade
-- amor
-- paciencia
-- serenidade
-- familia
+- love
+- bad
+- comprehension
+- effort
+- justice
+- forgiveness
+- generosity
+- love
+- patience
+- serenity
+- family
 ---
 
 A Lei de Talião representou um progresso nos costumes da Humanidade.

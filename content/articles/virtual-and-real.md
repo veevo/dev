@@ -1,13 +1,13 @@
 ---
-title: O virtual e o real
+title: Virtual and real
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
-- compaixao
-- esforco
-- sensibilidade
-- crianca
+- compassion
+- effort
+- sensitivity
+- child
 ---
 
 

@@ -1,16 +1,16 @@
 ---
-title: Benfeitora
+title: Benefactor
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- dor
-- benfeitor
-- aprendiz
-- felicidade
-- amor
-- perseveranca
+- impatience
+- patience
+- fathern
+- benefactor
+- apprentice
+- faithlicidade
+- love
+- perseverance
 ---
 
 

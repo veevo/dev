@@ -1,13 +1,13 @@
 ---
-title: O benfeitor anônimo
+title: Anonymous benefactor
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- modestia
-- benevolencia
-- oracao
-- familia
-- mae
+- modesty
+- benevolence
+- prayer
+- family
+- mother
 ---
 
 Não saiba a vossa mão esquerda o que faz a vossa mão direita. As palavras do

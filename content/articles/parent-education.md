@@ -1,17 +1,17 @@
 ---
-title: Educação de pais
+title: Parent education
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- modestia
-- familia
-- pai
-- mae
-- criancas
-- adolescentes
-- gentileza
-- crianca
-- mae
+- modesty
+- family
+- father
+- mother
+- childs
+- teens
+- kindness
+- child
+- mother
 ---
 
 Em uma revista de circulação internacional, lemos que uma senhora foi ao teatro

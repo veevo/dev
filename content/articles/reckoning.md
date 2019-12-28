@@ -1,14 +1,14 @@
 ---
-title: Acerto de contas
+title: Reckoning
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- egoismo
-- espiritismo
-- leis-divinas
-- desinteresse
-- etica
-- felicidade
+- selfishness
+- spiritism
+- divine-laws
+- disinterest
+- ethics
+- faithlicidade
 ---
 
 O Espiritismo ensina que as Leis Divinas encontram-se inscritas na Natureza e

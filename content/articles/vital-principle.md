@@ -1,5 +1,5 @@
 ---
-layout: default-md
+layout: Vital principle
 section: Questions
 title: Principle, Fluid or Energy?
 subtitle: Understand what's the difference between Principle, Fluid and Energy according to Spiritism

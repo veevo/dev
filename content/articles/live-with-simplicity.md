@@ -1,15 +1,15 @@
 ---
-title: Viver com simplicidade
+title: Live with simplicity
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- simplicidade
-- consumismo
-- materialismo
-- competitividade
-- serenidade
-- tranquilidade
-- familia
+- simplicity
+- consumerism
+- materialism
+- competitiveness
+- serenity
+- tranquility
+- family
 ---
 
 Uma vida simples, com prazeres singelos. Parece atraente? Para alguns, a poesia

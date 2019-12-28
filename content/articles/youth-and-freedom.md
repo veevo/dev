@@ -1,17 +1,16 @@
 ---
-title: Juventude e liberdade
+title: Youth and freedom
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- alcoolismo
-- transito
-- liberdade
-- juventude
-- vicios
-- drogas
-- amor
-- responsabilidade
-- mae
+- alcoholism
+- freedom
+- youth
+- addictions
+- drugs
+- love
+- responsibility
+- mother
 --- 
 
 Cresce o número de adolescentes grávidas...

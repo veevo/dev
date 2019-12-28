@@ -1,18 +1,18 @@
 ---
-title: O mais difícil
+title: Harder
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- casamento
-- vinganca
-- odio
-- respeito
-- liberdade
-- perdao
-- companheirismo
-- perdao
-- amor
-- respeito
+- wedding
+- revenge
+- hate
+- respect
+- freedom
+- forgiveness
+- companionship
+- forgiveness
+- love
+- respect
 ---
 
 O Terceiro Milênio, que nos chegou com tantas cores de alegria, avança. Os

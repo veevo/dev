@@ -1,17 +1,17 @@
 ---
-title: Limites do amor
+title: Limits of love
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- amor
-- traicao
-- abandono
-- familia
-- altruismo
-- generosidade
-- amor
-- sabedoria
+- revenge
+- love
+- betrayal
+- abandonment
+- family
+- altruism
+- generosity
+- love
+- wisdom
 ---
 
 Até onde o amor pode chegar? A pergunta é feita toda vez que algumas tragédias

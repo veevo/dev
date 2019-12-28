@@ -1,10 +1,10 @@
 ---
-title: Aprendizados da vida
+title: Life learnings
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- seriedade
-- oracao
+- seriousness
+- prayer
 ---
 
 As etapas de nossa vida sempre irão apresentar lições importantes para nosso

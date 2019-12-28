@@ -1,17 +1,17 @@
 ---
-title: Autoamor
+title: Self love
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- egoismo
-- autoamor
-- meditacao
-- auto-conhecimento
-- perdao
-- bondade
-- amor
+- vanity
+- humility
+- selfishness
+- self-love
+- meditation
+- self-knowledge
+- forgiveness
+- kindness
+- love
 ---
 
 Muito se tem falado, nestes tempos, sobre o autoamor.

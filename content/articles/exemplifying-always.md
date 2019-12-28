@@ -1,17 +1,17 @@
 ---
-title: Exemplificando sempre
+title: Exemplifying always
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
+- addictions
+- drugs
+- cigarette
 - gandhi
 - jesus
-- respeito
-- oracao
-- crianca
-- mae
+- respect
+- prayer
+- child
+- mother
 ---
  
 

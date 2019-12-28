@@ -1,24 +1,24 @@
 
-title: TV
+title: Tv
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- sensualismo
-- sexo
-- pornografia
-- violencia
-- criancas
-- adolescentes
-- etica
+- violence
+- sensualism
+- sex
+- pornography
+- violence
+- childs
+- teens
+- ethics
 - fielidade
-- amor
-- respeito
-- responsabilidade
-- seriedade
-- oracao
-- crianca
-- familia
+- love
+- respect
+- responsibility
+- seriousness
+- prayer
+- child
+- family
 ---
 
 Qual sua opinião sobre os programas da nossa televisão? A pergunta dirigida a

@@ -1,15 +1,15 @@
 ---
-title: Mães engajadas
+title: Engaged mothers
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- familia
-- maes
-- adolescentes
-- companheirismo
-- amor
-- crianca
-- mae
+- family
+- mothers
+- teens
+- companionship
+- love
+- child
+- mother
 ---
 
 As bandeiras que elas levantam são diferentes. As causas que abraçam são as

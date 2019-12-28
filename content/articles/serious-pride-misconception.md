@@ -1,16 +1,16 @@
 ---
-title: O grave equívoco do orgulho
+title: Serious pride misconception
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- rebeldia
-- renuncia
-- sabedoria
-- oracao
-- familia
-- mae
+- pride
+- humility
+- rebellion
+- waiver
+- wisdom
+- prayer
+- family
+- mother
 ---
 
 Raul era oftalmologista. Seus anos de clínica e cirurgia lhe haviam granjeado

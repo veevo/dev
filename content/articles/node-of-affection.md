@@ -1,16 +1,16 @@
 ---
-title: O nó do afeto
+title: Node of affection
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ciume
-- afeto
-- familia
-- amor
-- oracao
-- crianca
-- familia
-- mae
+- jealousy
+- affection
+- family
+- love
+- prayer
+- child
+- family
+- mother
 ---
 
 Em uma reunião de pais, numa escola da periferia, a diretora incentivava o

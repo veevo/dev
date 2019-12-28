@@ -1,20 +1,20 @@
 ---
-title: Perdoar aos inimigos
+title: Forgive enemies
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- perdao
-- calma
-- caridade
-- justica
-- perdao
-- felicidade
-- amor
-- respeito
-- oracao
-- mae
+- impatience
+- patience
+- forgiveness
+- calm
+- charity
+- justice
+- forgiveness
+- faithlicidade
+- love
+- respect
+- prayer
+- mother
 ---
 
 Nada consolava aquele coração materno. Quem a visitava podia lhe descobrir, de

@@ -1,17 +1,17 @@
 ---
-title: Nas leis do destino
+title: Laws of fate
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- negligencia
-- deus
-- leis-divinas
-- indisciplina
-- disciplina
-- disciplina
-- justica
-- felicidade
-- amor
+- negligence
+- god
+- divine-laws
+- indiscipline
+- discipline
+- discipline
+- justice
+- faithlicidade
+- love
 ---
 
 

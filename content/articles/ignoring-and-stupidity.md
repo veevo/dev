@@ -1,17 +1,17 @@
 ---
-title: Ignorância e estupidez
+title: Ignoring and stupidity
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
+- pride
+- humility
 - ignorancia
-- estupidez
-- caridade
-- perdao
-- felicidade
-- amor
-- solidariedade
+- stupidity
+- charity
+- forgiveness
+- faithlicidade
+- love
+- solidarity
 ---
  
 

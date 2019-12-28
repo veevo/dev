@@ -1,13 +1,13 @@
 ---
-title: Generosidade e superação
+title: Generosity and overcoming
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- generosidade
-- gentileza
-- crianca
-- familia
-- mae
+- generosity
+- kindness
+- child
+- family
+- mother
 ---
 
 Ele é reconhecido como um dos dez melhores contadores de histórias do mundo.

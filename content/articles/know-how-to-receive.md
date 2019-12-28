@@ -1,19 +1,19 @@
 ---
-title: A sabedoria de receber
+title: Know how to receive
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- caridade
-- gratidao
-- felicidade
-- auxilio
-- amor
+- charity
+- gratitude
+- faithlicidade
+- help
+- love
 - tolerancia
-- sabedoria
-- oracao
-- crianca
+- wisdom
+- prayer
+- child
 ---
 
 

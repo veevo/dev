@@ -1,17 +1,17 @@
 ---
-title: Our Justice
+title: Our justice
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - spiritism
 - justice
-- mateus
-- justica
-- amor
-- respeito
-- responsabilidade
-- crianca
+- matthew
+- justice
+- love
+- respect
+- responsibility
+- child
 ---
 
 One day, the Man of Nazareth warned us and the Evangelist Matthew recorded, with

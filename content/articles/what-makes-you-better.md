@@ -1,19 +1,19 @@
 ---
-title: O que te faz melhor
+title: What makes you better
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
+- violence
 - intolerancia
 - tolerancia
-- religiao
+- religion
 - dalai-lama
 - gandhi
-- esforco
-- amor
+- effort
+- love
 - tolerancia
-- oracao
-- crianca
+- prayer
+- child
 ---
 
 

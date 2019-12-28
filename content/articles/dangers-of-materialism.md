@@ -1,12 +1,12 @@
 ---
-title: Os perigos do materialismo
+title: Dangers of materialism
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- materialismo
-- apego
-- felicidade
-- respeito
+- materialism
+- attachment
+- faithlicidade
+- respect
 ---
 
 

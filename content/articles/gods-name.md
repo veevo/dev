@@ -1,16 +1,16 @@
 ---
-title: O nome de Deus
+title: Gods name
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- sensualismo
-- pornografia
-- amor
-- familia
-- gratidao
-- amor
-- respeito
-- mae
+- sensualism
+- pornography
+- love
+- family
+- gratitude
+- love
+- respect
+- mother
 ---
 
 Entre os povos que nos afirmamos deístas, é comum se ouvir expressões que se

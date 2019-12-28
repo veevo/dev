@@ -1,14 +1,14 @@
 ---
-title: Três atitudes
+title: Three attitudes
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- egoismo
-- orgulho
-- humildade
-- caridade
-- felicidade
-- responsabilidade
+- selfishness
+- pride
+- humility
+- charity
+- faithlicidade
+- responsibility
 ---
 
  Você se considera uma pessoa egoísta, orgulhosa ou é alguém que sempre busca

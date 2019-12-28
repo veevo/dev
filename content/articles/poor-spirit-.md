@@ -1,18 +1,18 @@
 ---
-title: Bem aventurados os pobres de espírito
+title: Poor spirit 
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
+- pride
+- humility
 - jesus
-- evangelho
-- caridade
-- justica
-- felicidade
-- amor
-- modestia
-- respeito
+- gospel
+- charity
+- justice
+- faithlicidade
+- love
+- modesty
+- respect
 ---
 
 

@@ -1,23 +1,23 @@
 ---
-title: Confiança
+title: Trust
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- confianca
-- gula
-- egoismo
-- preguica
-- violencia
-- aprendiz
-- compaixao
-- confianca
-- coragem
-- disciplina
-- esforco
-- etica
-- amor
-- responsabilidade
-- sabedoria
+- trust
+- gluttony
+- selfishness
+- laziness
+- violence
+- apprentice
+- compassion
+- trust
+- courage
+- discipline
+- effort
+- ethics
+- love
+- responsibility
+- wisdom
 ---
 
 A confiança nas próprias forças enche o homem de coragem e disposição para

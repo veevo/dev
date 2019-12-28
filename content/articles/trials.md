@@ -1,21 +1,21 @@
 ---
-title: Provações
+title: Trials
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- provas
-- calunia
-- difamacao
-- injuria
-- resignacao
-- coragem
-- esforco
-- justica
-- felicidade
-- amor
-- resignacao
-- sensibilidade
-- oracao
+- evidence
+- slander
+- defamation
+- injury
+- resignation
+- courage
+- effort
+- justice
+- faithlicidade
+- love
+- resignation
+- sensitivity
+- prayer
 ---
  
 

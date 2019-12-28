@@ -1,10 +1,10 @@
 ---
-title: À procura de virtudes
+title: Demand for virtues
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discricao
-- virtudes
+- discretion
+- virtues
 ---
  
 

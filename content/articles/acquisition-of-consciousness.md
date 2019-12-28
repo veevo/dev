@@ -1,15 +1,15 @@
 ---
-title: Aquisição da consciência
+title: Acquisition of consciousness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- alcoolismo
-- tabagismo
-- vicios
-- drogas
-- confianca
-- esforco
-- responsabilidade
+- alcoholism
+- smoking
+- addictions
+- drugs
+- trust
+- effort
+- responsibility
 ---
 
 

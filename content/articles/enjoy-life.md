@@ -1,17 +1,17 @@
 ---
-title: Aproveitar a vida
+title: Enjoy life
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
-- saude
-- aprendiz
-- esforco
-- serenidade
-- responsabilidade
-- seriedade
+- addictions
+- drugs
+- cigarette
+- health
+- apprentice
+- effort
+- serenity
+- responsibility
+- seriousness
 ---
  
 

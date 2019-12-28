@@ -1,23 +1,23 @@
 ---
-title: Tolerância é caminho de paz
+title: Tolerance path of peace
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- abnegacao
-- impaciencia
-- paciencia
+- abnegation
+- impatience
+- patience
 - tolerancia
-- rebeldia
-- abnegacao
-- calma
-- companheirismo
-- humildade
-- amor
-- respeito
+- rebellion
+- abnegation
+- calm
+- companionship
+- humility
+- love
+- respect
 - tolerancia
-- tranquilidade
-- crianca
-- familia
+- tranquility
+- child
+- family
 ---
 
 Como anda nossa tolerância?

@@ -1,15 +1,15 @@
 ---
-title: As drogas e a família
+title: Drugs and family
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
-- familia
-- violencia
-- crianca
-- familia
+- addictions
+- drugs
+- cigarette
+- family
+- violence
+- child
+- family
 ---
  
 O uso de drogas é um problema de grandes dimensões em todo o mundo. Atinge

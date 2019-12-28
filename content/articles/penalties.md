@@ -1,10 +1,10 @@
 ---
-title: As penas
+title: Penalties
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- modestia
-- mae
+- modesty
+- mother
 ---
 
 Quando pequenas, minha irmã e eu éramos muito sonhadoras. O sonho e a

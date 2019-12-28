@@ -1,18 +1,18 @@
 ---
-title: Caridade para com os inimigos
+title: Charity to enemies
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- amor
-- perdao
-- caridade
-- benevolencia
-- confianca
-- perdao
-- felicidade
-- amor
-- oracao
+- revenge
+- love
+- forgiveness
+- charity
+- benevolence
+- trust
+- forgiveness
+- faithlicidade
+- love
+- prayer
 ---
 
 Por que caridade para com alguém que agiu tão mal? Que despedaçou vidas, que

@@ -1,16 +1,16 @@
 ---
-title: Drama de um apaixonado
+title: Passionate drama
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- alcoolismo
-- cigarro
-- adolescentes
-- coragem
-- oracao
-- familia
+- addictions
+- drugs
+- alcoholism
+- cigarette
+- teens
+- courage
+- prayer
+- family
 ---
  
 Quando a conheci eu tinha apenas 16 anos. Ela, eu não sei. Fomos apresentados

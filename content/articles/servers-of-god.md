@@ -1,17 +1,17 @@
 ---
-title: Os servidores de Deus
+title: Servers of god
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- deus
+- vanity
+- humility
+- god
 - cancer
-- caridade
-- coragem
-- esforco
-- amor
-- oracao
+- charity
+- courage
+- effort
+- love
+- prayer
 ---
 
 De um modo geral, a expressão servo de Deus nos remete a religiosos, encerrados

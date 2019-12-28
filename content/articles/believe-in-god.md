@@ -1,10 +1,10 @@
 ---
-title: Crer em Deus
+title: Believe in god
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- deus
-- felicidade
+- god
+- faithlicidade
 ---
 
 Alguns de nós cremos em Deus, por simples atavismo religioso. Assim nos

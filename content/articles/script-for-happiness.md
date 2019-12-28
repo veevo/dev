@@ -1,17 +1,17 @@
 ---
-title: Roteiro infalível para a felicidade
+title: Script for happiness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- felicidade
-- caridade
-- etica
-- justica
-- felicidade
-- sabedoria
-- oracao
+- pride
+- humility
+- faithlicidade
+- charity
+- ethics
+- justice
+- faithlicidade
+- wisdom
+- prayer
 ---
 
 O ser humano nunca sentiu tanta necessidade de encontrar paz íntima, como nos

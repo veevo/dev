@@ -1,17 +1,17 @@
 ---
-title: O maior impedimento
+title: Greater impediment
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- avareza
-- ira
-- gula
-- inveja
-- preguica
-- ociosidade
-- humildade
-- felicidade
+- pride
+- avarice
+- rage
+- gluttony
+- envy
+- laziness
+- idleness
+- humility
+- faithlicidade
 ---
 
 Diz antiga narrativa, que um sacerdote sábio, desejando ensinar o caminho do

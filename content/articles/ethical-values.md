@@ -1,14 +1,14 @@
 ---
-title: Valores éticos
+title: Ethical values
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
-- etica
-- felicidade
-- respeito
-- responsabilidade
-- crianca
+- ethics
+- faithlicidade
+- respect
+- responsibility
+- child
 ---
 
 Hoje em dia pode-se perceber a luta inglória travada pelos valores éticos

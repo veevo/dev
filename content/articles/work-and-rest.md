@@ -1,5 +1,5 @@
 ---
-title: Trabalho e Repouso
+title: Work and rest
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
@@ -7,11 +7,11 @@ topics:
 - spiritism
 - divine-laws
 - moral-laws
-- aprendiz
-- disciplina
-- etica
-- sabedoria
-- crianca
+- apprentice
+- discipline
+- ethics
+- wisdom
+- child
 ---
 
 

@@ -1,9 +1,9 @@
 ---
-title: Escândalos
+title: Scandals
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- generosidade
+- generosity
 ---
 
 Em determinada passagem do Evangelho, Jesus afirma serem os escândalos

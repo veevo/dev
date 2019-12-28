@@ -1,10 +1,10 @@
 ---
-title: Vítimas do hábito
+title: Victims of habit
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- seriedade
-- crianca
+- seriousness
+- child
 ---
 
 Existem pessoas que encontram muita dificuldade em fazer pequenas mudanças em

@@ -1,13 +1,13 @@
 ---
-title: As lições do Mestre
+title: Master lessons
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discricao
+- discretion
 - jesus
-- oracao
-- familia
-- mae
+- prayer
+- family
+- mother
 ---
 
 Ele estabeleceu as mais belas lições desde o berço. Jamais alguém foi Mestre

@@ -1,24 +1,24 @@
 ---
-title: Façamos a travessia
+title: Lets make the crossing
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- egoismo
-- orgulho
-- vaidade
-- humildade
-- avareza
-- vaidade
+- selfishness
+- pride
+- vanity
+- humility
+- avarice
+- vanity
 - arrogancia
-- caridade
-- compreensao
-- coragem
-- esforco
-- perdao
-- amor
-- gentileza
-- oracao
-- mae
+- charity
+- comprehension
+- courage
+- effort
+- forgiveness
+- love
+- kindness
+- prayer
+- mother
 ---
 
 O cárcere fora construído em pedra nua, nos arredores de Jerusalém. Nele, os

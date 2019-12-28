@@ -7,6 +7,7 @@ topics:
 - spiritism
 - paradise
 - heaven
+- happiness
 ---
 
 All religious schools bring in their teachings deep relationships with the understanding of life after life.

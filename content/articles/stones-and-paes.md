@@ -1,15 +1,15 @@
 ---
-title: Transformando pedras em pães
+title: Stones and paes
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- evangelho
-- caridade
-- felicidade
-- respeito
-- familia
+- pride
+- humility
+- gospel
+- charity
+- faithlicidade
+- respect
+- family
 ---
 
 Conta-se que Frei Bartolomeu dos Mártires viveu para servir. Era português, da

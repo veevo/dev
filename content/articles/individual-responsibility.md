@@ -1,12 +1,12 @@
 ---
-title: A responsabilidade de cada um
+title: Individual responsibility
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- negligencia
-- responsabilidade
-- respeito
-- responsabilidade
+- negligence
+- responsibility
+- respect
+- responsibility
 ---
 
 

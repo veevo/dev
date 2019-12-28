@@ -4,11 +4,11 @@ date: 2019-05-14T14:46:10+06:00
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 image: "images/masonary-post/post-2.jpg"
 topics:
-- vinganca
-- perdao
-- paulo-de-tarso
-- respeito
-- oracao
+- revenge
+- forgiveness
+- paul-of-tarsus
+- respect
+- prayer
 ---
 
 The Apostle Paul, in one of his epistles, wrote that we are surrounded by

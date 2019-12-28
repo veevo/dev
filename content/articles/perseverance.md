@@ -1,11 +1,11 @@
 ---
-title: Perseverança
+title: Perseverance
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- perseveranca
-- oracao
-- crianca
+- perseverance
+- prayer
+- child
 ---
 
 Quem quer que tenha parado para observar uma criança tentando descobrir como

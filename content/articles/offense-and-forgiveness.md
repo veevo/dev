@@ -1,22 +1,22 @@
 ---
-title: Ofensa e perdão
+title: Offense and forgiveness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- injuria
-- calunia
-- ofensa
-- perdao
-- revolta
-- vinganca
-- agressividade
-- ciume
-- compaixao
-- compreensao
-- perdao
-- felicidade
-- pureza
-- oracao
+- injury
+- slander
+- offense
+- forgiveness
+- revolt
+- revenge
+- aggressiveness
+- jealousy
+- compassion
+- comprehension
+- forgiveness
+- faithlicidade
+- purity
+- prayer
 ---
 
 Ofensa e perdão

@@ -1,17 +1,17 @@
 ---
-title: Amar os inimigos
+title: Love enemies
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- amor
+- revenge
+- love
 - jesus
-- caridade
-- compaixao
-- compreensao
-- justica
-- felicidade
-- amor
+- charity
+- compassion
+- comprehension
+- justice
+- faithlicidade
+- love
 ---
 
 Será possível estender o amor até mesmo aos inimigos? Este sentimento sublime,

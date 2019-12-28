@@ -1,11 +1,11 @@
 ---
-title: Renascendo das cinzas
+title: Reborn from the ashes
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- persistencia
-- familia
-- mae
+- persistence
+- family
+- mother
 ---
 
 O termo resiliência se deslocou do mundo da física para o comportamental. Em

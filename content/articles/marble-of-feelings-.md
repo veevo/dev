@@ -1,11 +1,11 @@
 ---
-title: O mármore do sentimento e o cinzel da boa vontade
+title: Marble of feelings 
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- persistencia
-- seriedade
-- oracao
+- persistence
+- seriousness
+- prayer
 ---
 
 Conta-se que, nos primeiros dias do ano trinta, após algum tempo de meditação

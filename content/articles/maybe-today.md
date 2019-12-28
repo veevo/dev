@@ -1,21 +1,21 @@
 ---
-title: Talvez hoje...
+title: Maybe today
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- paciencia
-- indulgencia
-- pessimismo
-- doenca
+- vanity
+- humility
+- patience
+- indulgence
+- pessimism
+- disease
 - desanimo
-- paz
-- compreensao
-- indulgencia
-- respeito
-- sabedoria
-- oracao
+- peace
+- comprehension
+- indulgence
+- respect
+- wisdom
+- prayer
 ---
 
 Talvez hoje... tenhamos despertado pela manhã com o coração oprimido, com uma

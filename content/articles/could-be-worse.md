@@ -1,16 +1,16 @@
 ---
-title: Poderia ser pior...
+title: Could be worse
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- calunia
-- difamacao
-- trabalho
-- traicao
-- companheirismo
-- gratidao
-- respeito
-- oracao
+- slander
+- defamation
+- work
+- betrayal
+- companionship
+- gratitude
+- respect
+- prayer
 ---
 
 O dia apenas amanhecera e Jorge já se achava a meio caminho da empresa em que

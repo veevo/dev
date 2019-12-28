@@ -1,14 +1,14 @@
 ---
-title: O mais rico do mundo
+title: Richest in the world
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- riqueza
-- brandura
-- humildade
-- respeito
-- oracao
+- pride
+- wealth
+- softness
+- humility
+- respect
+- prayer
 ---
 
 É comum ouvirmos histórias envolvendo pessoas ilustres da nossa atualidade.

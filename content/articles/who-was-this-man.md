@@ -1,11 +1,11 @@
 ---
-title: Quem era Esse Homem?
+title: Who was this man
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- devocao
+- devotion
 - jesus
-- mae
+- mother
 ---
 
 Quem era Esse Homem? Desceu das estrelas e aninhou-Se no seio de uma jovem

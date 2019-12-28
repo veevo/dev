@@ -1,9 +1,9 @@
 ---
-title: Líderes-modelo
+title: Model leaders
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- perseveranca
+- perseverance
 ---
 
 Toda vez que modelos de líderes, de pessoas extraordinárias são apresentados, é

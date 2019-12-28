@@ -1,20 +1,20 @@
 ---
-title: O céu está na alma
+title: Heaven in the soul
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- gula
-- preguica
-- sensualidade
-- compaixao
-- dignidade
-- esforco
-- auxilio
-- amor
-- solidariedade
-- sabedoria
-- oracao
+- addictions
+- gluttony
+- laziness
+- sensuality
+- compassion
+- dignity
+- effort
+- help
+- love
+- solidarity
+- wisdom
+- prayer
 ---
 
 A crença mais difundida entre os homens identifica o céu como um local

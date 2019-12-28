@@ -1,23 +1,23 @@
 ---
-title: Meu pai, meu herói
+title: My father my hero
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- violencia
-- familia
-- amor
-- aprendiz
-- companheirismo
-- coragem
+- revenge
+- violence
+- family
+- love
+- apprentice
+- companionship
+- courage
 - fielidade
-- perdao
-- felicidade
-- amor
-- resignacao
-- respeito
-- responsabilidade
-- sinceridade
+- forgiveness
+- faithlicidade
+- love
+- resignation
+- respect
+- responsibility
+- sincerity
 ---
 
 Quando eu cheguei a este mundo, não sabia ao certo o que estava fazendo aqui,

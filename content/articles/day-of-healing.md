@@ -1,19 +1,19 @@
 ---
-title: Uma jornada de cura
+title: Day of healing
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- perdao
-- raiva
-- odio
-- agressividade
-- raiva
-- calma
-- perdao
-- amor
-- respeito
-- oracao
-- mae
+- forgiveness
+- anger
+- hate
+- aggressiveness
+- anger
+- calm
+- forgiveness
+- love
+- respect
+- prayer
+- mother
 ---
 
 Debbie tinha apenas dezesseis anos quando seu professor de inglês a sequestrou

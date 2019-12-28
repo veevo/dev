@@ -1,17 +1,17 @@
 ---
-title: As cruzes do caminho
+title: Paths of the way
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
+- vanity
+- humility
 - lucas
-- caridade
-- justica
-- felicidade
-- amor
-- respeito
-- mae
+- charity
+- justice
+- faithlicidade
+- love
+- respect
+- mother
 ---
 
 Você já deve ter reparado, no curso das rodovias federais e estaduais, um sem

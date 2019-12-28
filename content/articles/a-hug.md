@@ -1,14 +1,14 @@
 ---
-title: Um abraço
+title: A hug
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- paz
-- amor
-- perdao
-- amor
+- pride
+- humility
+- peace
+- love
+- forgiveness
+- love
 ---
 
 O que você faz quando está com dor de cabeça, ou quando está chateado?

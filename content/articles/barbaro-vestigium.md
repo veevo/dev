@@ -1,17 +1,17 @@
 ---
-title: Vestígio bárbaro
+title: Barbaro vestigium
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- justica
+- revenge
+- justice
 - jesus
-- coragem
-- justica
-- humildade
+- courage
+- justice
+- humility
 ---
 
-"Se alguém vos bater na face direita, apresentai-lhe também a outra.”–Jesus.
+> "Se alguém vos bater na face direita, apresentai-lhe também a outra.”–Jesus.
 
 Os preconceitos do mundo sobre o que se convencionou chamar "ponto de honra”
 produzem essa necessidade sombria, nascida do orgulho e da exaltação da

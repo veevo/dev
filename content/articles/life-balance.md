@@ -1,12 +1,12 @@
 ---
-title: Balanço de vida
+title: Life balance
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- redes-sociais
-- felicidade
-- respeito
-- oracao
+- social networks
+- faithlicidade
+- respect
+- prayer
 ---
 
 Como anda você? Está sempre on-line, conectado às redes sociais, sabendo de

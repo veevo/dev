@@ -1,20 +1,20 @@
 ---
-title: O mancebo rico
+title: Rich mancebo
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- luxuria
-- riqueza
-- infelicidade
+- vanity
+- humility
+- lust
+- wealth
+- unhappiness
 - jesus
-- renuncia
-- esforco
-- felicidade
-- respeito
-- oracao
-- familia
+- waiver
+- effort
+- faithlicidade
+- respect
+- prayer
+- family
 ---
 
 Ele era um jovem rapaz. Sua casa era luxuosa e seus pertences valiosos.

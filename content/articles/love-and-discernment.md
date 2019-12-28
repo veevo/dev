@@ -1,12 +1,12 @@
 ---
-title: Amor e discernimento
+title: Love and discernment
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- amor
-- discernimento
-- oracao
-- mae
+- love
+- discernment
+- prayer
+- mother
 ---
 
 A mensagem de Jesus revela ao mundo um Deus amoroso e cheio de compaixão.

@@ -1,17 +1,17 @@
 ---
-title: Consumismo
+title: Consumerism
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- consumismo
-- materialismo
+- consumerism
+- materialism
 - india
 - krishna
 - buda
-- etica
-- pureza
-- oracao
-- crianca
+- ethics
+- purity
+- prayer
+- child
 ---
 
 Você já notou que, nos dias de hoje, os apelos são imensos para nos

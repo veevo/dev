@@ -1,14 +1,14 @@
 ---
-title: A opção da simplicidade
+title: Simplicity option
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- simplicidade
-- consumismo
-- materialismo
-- felicidade
-- amor
-- serenidade
+- simplicity
+- consumerism
+- materialism
+- faithlicidade
+- love
+- serenity
 ---
 
 Muitas pessoas reclamam da correria de suas vidas.

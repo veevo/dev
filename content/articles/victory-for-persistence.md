@@ -1,12 +1,12 @@
 ---
-title: Vitória pela persistência
+title: Victory for persistence
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- persistencia
-- oracao
-- familia
-- mae
+- persistence
+- prayer
+- family
+- mother
 ---
 
 Neide nasceu numa cidadezinha do Interior. Era a mais velha de oito irmãos e,

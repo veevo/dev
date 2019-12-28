@@ -1,14 +1,14 @@
 ---
-title: O jovem e o fumo
+title: Young smoking
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
-- adolescentes
-- amor
-- oracao
+- addictions
+- drugs
+- cigarette
+- teens
+- love
+- prayer
 ---
 
 “Jovem fumante tem cinco vezes mais risco de infarto, diz estudo.

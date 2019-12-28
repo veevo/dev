@@ -1,20 +1,20 @@
 ---
-title: Momento de Transicao
+title: Transition moment
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- calunia
-- difamacao
-- transicao-planetaria
-- animosidade
+- slander
+- defamation
+- transition-planet
+- animosity
 - difamação
-- deslealdade
-- desonestidade
-- dignidade
-- livre-arbitrio
-- dignidade
-- lealdade
-- sensibilidade
+- disloyalty
+- dishonesty
+- dignity
+- free-will
+- dignity
+- loyalty
+- sensitivity
 ---
 
 A Espiritualidade Superior noticia que a Terra se encontra em fase de

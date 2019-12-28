@@ -1,20 +1,20 @@
 ---
-title: Liberdade e opções
+title: Freedom and options
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- luxuria
-- liberdade
-- paulo-de-tarso
-- compreensao
+- lust
+- freedom
+- paul-of-tarsus
+- comprehension
 - fielidade
-- felicidade
-- amor
-- pureza
-- renuncia
-- responsabilidade
-- sensibilidade
-- familia
+- faithlicidade
+- love
+- purity
+- waiver
+- responsibility
+- sensitivity
+- family
 ---
 
 

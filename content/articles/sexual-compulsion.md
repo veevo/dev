@@ -1,16 +1,16 @@
 ---
-title: Compulsão Sexual e o Espiritismo
+title: Sexual compulsion
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- espiritismo
-- sensualismo
-- sexo
+- spiritism
+- sensualism
+- sex
 - vices
-- companheirismo
-- responsabilidade
-- mae
+- companionship
+- responsibility
+- mother
 ---
 
 Certamente, na quase totalidade dos distúrbios na área da sexualidade, a

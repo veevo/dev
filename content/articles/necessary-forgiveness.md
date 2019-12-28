@@ -1,11 +1,11 @@
 ---
-title: Perdão necessário
+title: Necessary forgiveness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discricao
-- perdao
-- gentileza
+- discretion
+- forgiveness
+- kindness
 ---
 
 O perdão é uma necessidade na vida de qualquer pessoa.

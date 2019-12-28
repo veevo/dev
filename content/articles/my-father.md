@@ -1,12 +1,12 @@
 ---
-title: Meu pai
+title: My father
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- generosidade
-- oracao
-- crianca
-- familia
+- generosity
+- prayer
+- child
+- family
 ---
 
 Todos os que fomos acalentados pelo amor paterno, com certeza, recordamos nosso

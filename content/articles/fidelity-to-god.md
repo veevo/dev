@@ -1,19 +1,19 @@
 ---
-title: Fidelidade a Deus
+title: Fidelity to god
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- fidelidade
+- fidelity
 - ganancia
-- avareza
-- deus
-- compaixao
-- dignidade
-- justica
+- avarice
+- god
+- compassion
+- dignity
+- justice
 - fielidade
-- amor
-- lealdade
-- pureza
+- love
+- loyalty
+- purity
 ---
 
 

@@ -1,16 +1,16 @@
 ---
-title: O preço do orgulho
+title: Pride price
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- raiva
-- esforco
-- amor
-- oracao
-- familia
-- mae
+- pride
+- humility
+- anger
+- effort
+- love
+- prayer
+- family
+- mother
 ---
 
 Os afazeres nas manhãs de sábado, naquela família, eram rotineiros, quase

@@ -1,16 +1,16 @@
 ---
-title: Incompreensões
+title: Misunderstandings
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- perdao
-- incompreensao
-- agressividade
-- compreensao
-- confianca
-- humildade
-- amor
-- oracao
+- forgiveness
+- misunderstanding
+- aggressiveness
+- comprehension
+- trust
+- humility
+- love
+- prayer
 ---
 
 Incompreensões

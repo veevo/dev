@@ -1,16 +1,16 @@
 ---
-title: Conhecimento de si mesmo
+title: Knowledge of yourself
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- avareza
-- orgulho
-- ciume
-- dignidade
-- esforco
-- justica
-- felicidade
-- amor
+- avarice
+- pride
+- jealousy
+- dignity
+- effort
+- justice
+- faithlicidade
+- love
 ---
  
 

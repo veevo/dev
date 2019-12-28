@@ -1,15 +1,15 @@
 ---
-title: O que passa e o que permanece
+title: What passes and what stays
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- compreensao
-- felicidade
-- amor
-- solidariedade
-- familia
+- impatience
+- patience
+- comprehension
+- faithlicidade
+- love
+- solidarity
+- family
 ---
 
 Há poucos dias eu me mudara para minha nova casa.

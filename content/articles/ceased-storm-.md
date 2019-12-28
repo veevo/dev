@@ -1,19 +1,19 @@
 ---
-title: E a tormenta cessou ...
+title: Ceased storm 
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- gula
-- vaidade
-- egoismo
-- crueldade
-- desonestidade
-- dignidade
-- amor
-- perseveranca
-- pureza
-- temperanca
+- addictions
+- gluttony
+- vanity
+- selfishness
+- cruelty
+- dishonesty
+- dignity
+- love
+- perseverance
+- purity
+- temperance
 ---
  
 

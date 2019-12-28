@@ -1,16 +1,16 @@
 ---
-title: Agressões anônimas
+title: Anonymous aggressions
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- redes-sociais
-- tecnologia
-- agressividade
-- raiva
-- amor
-- respeito
+- social networks
+- technology
+- aggressiveness
+- anger
+- love
+- respect
 - tolerancia
-- mae
+- mother
 ---
 
 Expressar nossos pensamentos e sentimentos é um direito. No entanto, se ao

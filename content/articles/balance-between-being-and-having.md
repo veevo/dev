@@ -1,17 +1,17 @@
 ---
-title: O equilíbrio entre o ser e o ter
+title: Balance between being and having
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- materialismo
-- consumismo
-- avareza
-- inveja
-- dignidade
-- felicidade
-- amor
-- crianca
-- familia
+- materialism
+- consumerism
+- avarice
+- envy
+- dignity
+- faithlicidade
+- love
+- child
+- family
 --- 
 
 Vivemos em um mundo que valoriza extremamente os bens materiais. Em sua

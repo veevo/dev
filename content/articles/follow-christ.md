@@ -1,16 +1,16 @@
 ---
-title: Seguir o Cristo
+title: Follow christ
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- gula
-- preguica
-- paulo-de-tarso
+- addictions
+- gluttony
+- laziness
+- paul-of-tarsus
 - jesus
-- esforco
-- amor
-- responsabilidade
+- effort
+- love
+- responsibility
 ---
 
 Em todos os recantos onde Jesus deixou o sinal de sua passagem, houve sempre

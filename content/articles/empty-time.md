@@ -1,15 +1,15 @@
 ---
-title: Hora vazia
+title: Empty time
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ociosidade
-- vaidade
-- humildade
-- disciplina
-- esforco
-- felicidade
-- oracao
+- idleness
+- vanity
+- humility
+- discipline
+- effort
+- faithlicidade
+- prayer
 ---
 
 Sob pretexto algum se permita a “hora vazia”.

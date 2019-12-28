@@ -1,17 +1,17 @@
 ---
-title: A técnica do grito
+title: Scream technique
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
+- impatience
+- patience
 - gritos
-- brigas
-- caridade
-- amor
-- respeito
-- gentileza
-- crianca
+- fights
+- charity
+- love
+- respect
+- kindness
+- child
 ---
 
 Conta-se que nas Ilhas Salomão, no Pacífico Sul, os nativos descobriram um

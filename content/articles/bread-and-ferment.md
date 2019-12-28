@@ -1,12 +1,12 @@
 ---
-title: O pão e o fermento
+title: Bread and ferment
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- paulo-de-tarso
-- sinceridade
+- pride
+- humility
+- paul-of-tarsus
+- sincerity
 ---
 
 O pão é um dos alimentos mais antigos produzido pelo homem. Faz parte da

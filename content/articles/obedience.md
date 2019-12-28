@@ -1,22 +1,22 @@
 ---
-title: Obediência
+title: Obedience
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- obediencia
-- paulo-de-tarso
+- vanity
+- humility
+- obedience
+- paul-of-tarsus
 - jesus
-- leis-divinas
-- dignidade
-- esforco
-- bondade
-- felicidade
-- amor
-- pureza
-- respeito
-- oracao
+- divine-laws
+- dignity
+- effort
+- kindness
+- faithlicidade
+- love
+- purity
+- respect
+- prayer
 ---
 
 Em sua Carta aos Hebreus, o Apóstolo Paulo de Tarso escreveu sobre a obediência

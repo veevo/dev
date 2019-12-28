@@ -1,9 +1,9 @@
 ---
-title: O Valor de um sorriso
+title: Smile value
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- seriedade
+- seriousness
 ---
 
 Não custa nada e rende muito.

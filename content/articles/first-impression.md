@@ -1,10 +1,10 @@
 ---
-title: A primeira impressão
+title: First impression
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discernimento
-- oracao
+- discernment
+- prayer
 ---
 
 Sempre que conhecemos alguém, imaginamos coisas a seu respeito.

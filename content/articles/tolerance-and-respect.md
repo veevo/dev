@@ -1,15 +1,15 @@
 ---
-title: Tolerância e respeito
+title: Tolerance and respect
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- redes-sociais
-- tecnologia
-- agressividade
+- social networks
+- technology
+- aggressiveness
 - tolerancia
-- respeito
+- respect
 - tolerancia
-- familia
+- family
 ---
 
 A tecnologia vem permitindo que nos comuniquemos cada vez mais, com uma

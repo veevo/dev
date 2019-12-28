@@ -1,15 +1,15 @@
 ---
-title: Virtude celeste
+title: Celestial virtue
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- caridade
-- virtudes
-- coragem
-- justica
-- paciencia
-- sabedoria
-- oracao
+- charity
+- virtues
+- courage
+- justice
+- patience
+- wisdom
+- prayer
 ---
 
 

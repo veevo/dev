@@ -1,16 +1,16 @@
 ---
-title: Lazer
+title: Leisure
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ociosidade
-- lazer
-- calma
-- dignidade
-- disciplina
-- responsabilidade
-- tranquilidade
-- familia
+- idleness
+- leisure
+- calm
+- dignity
+- discipline
+- responsibility
+- tranquility
+- family
 ---
 
 Comenta-se, excessivamente, quanto à necessidade do lazer, como medida de

@@ -1,16 +1,16 @@
 ---
-title: O paralítico de Cafarnaum
+title: Capernaum paralytic
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- negligencia
+- negligence
 - jesus
-- companheirismo
-- compreensao
-- disciplina
-- felicidade
-- amor
-- respeito
+- companionship
+- comprehension
+- discipline
+- faithlicidade
+- love
+- respect
 ---
 
 afarnaum era uma cidadezinha que se situava no lado setentrional do lago de

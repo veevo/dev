@@ -1,10 +1,10 @@
 ---
-title: A dor de cada um
+title: Pain of each
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discricao
-- oracao
+- discretion
+- prayer
 ---
 
 Do canto onde se encontrava, o médico admirava a jovem, com discrição.

@@ -1,16 +1,16 @@
 ---
-title: Tolerância
+title: Tolerance
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- caridade
-- amor
-- paciencia
+- charity
+- love
+- patience
 - tolerancia
-- gentileza
-- familia
+- kindness
+- family
 ---
 
 Muitas vezes, no nosso dia-a-dia, costumamos reclamar de algumas pessoas que

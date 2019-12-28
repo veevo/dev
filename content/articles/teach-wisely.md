@@ -1,10 +1,10 @@
 ---
-title: Ensinar com sabedoria
+title: Teach wisely
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- persistencia
-- sabedoria
+- persistence
+- wisdom
 ---
 
         Você já teve alguma dificuldade para convencer seu filho a fazer alguma

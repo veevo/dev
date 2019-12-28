@@ -1,16 +1,16 @@
 ---
-title: Ferramentas e instrumentos
+title: Tools and instruments
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
+- addictions
+- drugs
 - internet
 - intolerancia
 - tolerancia
-- companheirismo
-- esforco
-- amor
+- companionship
+- effort
+- love
 - tolerancia
 ---
 

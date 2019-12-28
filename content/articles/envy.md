@@ -1,16 +1,16 @@
 ---
-title: Inveja
+title: Envy
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- inveja
-- vaidade
-- humildade
-- caridade
-- companheirismo
-- felicidade
-- auxilio
-- respeito
+- envy
+- vanity
+- humility
+- charity
+- companionship
+- faithlicidade
+- help
+- respect
 ---
 
 Os homens são Espíritos destinados à angelitude.

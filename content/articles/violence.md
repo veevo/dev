@@ -1,19 +1,19 @@
 ---
-title: A violência
+title: Violence
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- impaciencia
-- paciencia
+- violence
+- impatience
+- patience
 - intolerancia
-- mentira
-- indiferenca
-- serenidade
-- respeito
+- lie
+- indifference
+- serenity
+- respect
 - tolerancia
-- tranquilidade
-- oracao
+- tranquility
+- prayer
 ---
 
 Um tema muito debatido nos dias atuais, é a violência.

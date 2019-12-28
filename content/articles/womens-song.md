@@ -1,10 +1,10 @@
 ---
-title: Canção das mulheres
+title: Womens song
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- empatia
-- mulher
+- empathy
+- woman
 ---
 
 “Que o outro saiba quando estou com medo, e me tome nos braços sem fazer

@@ -1,18 +1,18 @@
 ---
-title: Conforto
+title: Comfort
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- sensualismo
-- sexo
-- pornografia
-- suicidio
-- materialismo
-- traicao
-- abandono
-- liberdade
-- paulo-de-tarso
-- responsabilidade
+- sensualism
+- sex
+- pornography
+- suicide
+- materialism
+- betrayal
+- abandonment
+- freedom
+- paul-of-tarsus
+- responsibility
 ---
 
 Nos dias atuais, a ciência progride vertiginosamente no planeta.

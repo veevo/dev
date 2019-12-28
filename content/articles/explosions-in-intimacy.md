@@ -1,19 +1,19 @@
 ---
-title: Explosões na intimidade
+title: Explosions in intimacy
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- luxuria
-- depressao
-- desespero
-- rebeldia
-- violencia
-- compreensao
-- etica
-- amor
-- respeito
+- lust
+- fast
+- despair
+- rebellion
+- violence
+- comprehension
+- ethics
+- love
+- respect
 - tolerancia
-- oracao
+- prayer
 ---
 
 Na agitação dos dias atuais, as criaturas se assoberbam e angustiam,

@@ -1,15 +1,15 @@
 ---
-title: Lei do Universo
+title: Law of the universe
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ociosidade
-- leis-divinas
-- universo
-- aprendiz
-- amor
-- sabedoria
-- familia
+- idleness
+- divine-laws
+- universe
+- apprentice
+- love
+- wisdom
+- family
 ---
 
 Nada fica onde está para sempre. Tudo se renova. Tudo se modifica, mudam suas

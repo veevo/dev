@@ -1,13 +1,13 @@
 ---
-title: Arquivo mental
+title: Mental file
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
-- violencia
-- justica
-- tranquilidade
-- crianca
+- violence
+- justice
+- tranquility
+- child
 ---
  
 

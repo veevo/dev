@@ -1,22 +1,22 @@
 ---
-title: Gentilezas salvadoras
+title: Saving kindness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- negligencia
-- gentileza
-- violencia
-- afabilidade
-- benevolencia
-- caridade
-- compaixao
-- coragem
-- felicidade
-- auxilio
-- amor
-- sinceridade
-- oracao
-- crianca
+- negligence
+- kindness
+- violence
+- affability
+- benevolence
+- charity
+- compassion
+- courage
+- faithlicidade
+- help
+- love
+- sincerity
+- prayer
+- child
 ---
 
 

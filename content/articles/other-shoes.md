@@ -1,10 +1,10 @@
 ---
-title: Os sapatos dos outros – sobre a empatia
+title: Other shoes
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- empatia
-- crianca
+- empathy
+- child
 ---
 
 Os países de língua inglesa usam um termo muito interessante para explicar a

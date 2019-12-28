@@ -1,17 +1,17 @@
 ---
-title: Paciência antes da crise
+title: Patience before the crisis
 Poema do perdão
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- paciencia
-- insultos
-- calma
-- justica
-- perdao
-- amor
-- serenidade
-- respeito
+- patience
+- insult
+- calm
+- justice
+- forgiveness
+- love
+- serenity
+- respect
 ---
 
 Paciência antes da crise

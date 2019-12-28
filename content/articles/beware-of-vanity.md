@@ -1,16 +1,16 @@
 ---
-title: Tome cuidado com a vaidade
+title: Beware of vanity
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- perdao
-- auto-conhecimento
-- confianca
-- dignidade
-- discernimento
-- responsabilidade
+- vanity
+- humility
+- forgiveness
+- self-knowledge
+- trust
+- dignity
+- discernment
+- responsibility
 ---
 
 A vaidade é uma brecha moral que infelicita bastante a humanidade.

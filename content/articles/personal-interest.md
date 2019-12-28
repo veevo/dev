@@ -1,20 +1,20 @@
 ---
-title: Interesse pessoal e dever
+title: Personal interest
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- preguica
-- ociosidade
-- egoismo
-- vaidade
-- humildade
-- compaixao
-- compreensao
-- disciplina
-- esforco
-- lealdade
-- renuncia
-- sabedoria
+- laziness
+- idleness
+- selfishness
+- vanity
+- humility
+- compassion
+- comprehension
+- discipline
+- effort
+- loyalty
+- waiver
+- wisdom
 ---
 
 

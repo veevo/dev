@@ -1,20 +1,20 @@
 ---
-title: A verdadeira coragem
+title: True courage
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- vinganca
-- coragem
-- raiva
-- disciplina
+- violence
+- revenge
+- courage
+- anger
+- discipline
 - jesus
-- confianca
-- coragem
-- dignidade
-- disciplina
-- resignacao
-- familia
+- trust
+- courage
+- dignity
+- discipline
+- resignation
+- family
 ---
 
 Você saberia definir, com exatidão, o que é coragem?

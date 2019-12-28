@@ -1,10 +1,10 @@
 ---
-title: Dando o melhor
+title: Giving the best
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- discricao
-- oracao
+- discretion
+- prayer
 ---
 
 Muitas coisas se falam a respeito de Beethoven. O fato de ter composto

@@ -1,17 +1,17 @@
 ---
-title: Inimigos
+title: Enemies
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
+- revenge
 - jesus
-- amor
-- felicidade
-- amor
-- serenidade
-- sabedoria
-- oracao
-- familia
+- love
+- faithlicidade
+- love
+- serenity
+- wisdom
+- prayer
+- family
 ---
 
 Inimigo. A palavra traz uma carga negativa impressionante! O inimigo é

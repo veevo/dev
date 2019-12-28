@@ -1,10 +1,10 @@
 ---
-title: Fala-nos da dádiva
+title: Talking about gifts
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- generosidade
-- mae
+- generosity
+- mother
 ---
 
 Tratando sobre o ato de dar, assim escreveu Gibran Khalil Gibran:

@@ -1,9 +1,9 @@
 ---
-title: Os desafios da vida
+title: Challenges of life
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- perseveranca
+- perseverance
 ---
 
 Abrir a caixa de um quebra-cabeças pela primeira vez, desses de milhares de

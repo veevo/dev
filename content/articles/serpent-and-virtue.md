@@ -1,15 +1,15 @@
 ---
-title: A serpente e a virtude
+title: Serpent and virtue
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- dignidade
-- bondade
-- mansidao
-- pureza
-- respeito
+- dignity
+- kindness
+- meekness
+- purity
+- respect
 - tolerancia
 ---
 

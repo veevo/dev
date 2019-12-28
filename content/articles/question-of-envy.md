@@ -1,14 +1,14 @@
 ---
-title: Uma questão de inveja
+title: Question of envy
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- inveja
-- maledicencia
-- raiva
-- esforco
-- felicidade
-- amor
+- envy
+- badedicencia
+- anger
+- effort
+- faithlicidade
+- love
 ---
 
 Conta-se que um vaga-lume estava no afã de acender seu facho e apagá-lo.

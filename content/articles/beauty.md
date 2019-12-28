@@ -1,21 +1,21 @@
 ---
-title: Beleza
+title: Beauty
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- humildade
-- inveja
-- cobica
-- orgulho
-- morte
-- saude
-- materialismo
-- disciplina
-- disciplina
-- amor
-- paciencia
-- serenidade
+- vanity
+- humility
+- envy
+- greed
+- pride
+- death
+- health
+- materialism
+- discipline
+- discipline
+- love
+- patience
+- serenity
 ---
 
 Aspiração humana, a beleza física atinge em cheio nosso senso estético. Enche

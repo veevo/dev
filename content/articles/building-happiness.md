@@ -1,20 +1,20 @@
 ---
-title: Construindo a felicidade
+title: Building happiness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- humildade
-- compreensao
-- aprendiz
-- compreensao
-- esforco
-- felicidade
-- paciencia
+- humility
+- comprehension
+- apprentice
+- comprehension
+- effort
+- faithlicidade
+- patience
 - tolerancia
-- tranquilidade
-- oracao
+- tranquility
+- prayer
 ---
 
 O desânimo lhe pesava aos ombros, como nunca antes.

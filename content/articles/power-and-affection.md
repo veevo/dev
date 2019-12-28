@@ -1,17 +1,17 @@
 ---
-title: O poder do afeto
+title: Power and affection
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
+- violence
 - intolerancia
 - tolerancia
-- poder
-- afeto
-- aprendiz
-- confianca
+- power
+- affection
+- apprentice
+- trust
 - tolerancia
-- sabedoria
+- wisdom
 --- 
 
 A falta de tato para resolver conflitos e tratar de assuntos com pessoas que

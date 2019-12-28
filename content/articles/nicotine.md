@@ -1,16 +1,16 @@
 ---
-title: Nicotina: morte aos poucos
+title: Nicotine
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
-- familia
-- adolescentes
+- addictions
+- drugs
+- cigarette
+- family
+- teens
 - vigilancia
-- oracao
-- mae
+- prayer
+- mother
 ---
 
 Ainda ontem aquela mãe brincava com as duas filhas. Mas isso foi ontem.

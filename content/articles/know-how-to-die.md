@@ -1,20 +1,20 @@
 ---
-title: Saber morrer
+title: Know how to die
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- apego
-- morte
-- tristeza
-- aprendiz
-- etica
-- bondade
-- amor
-- paciencia
-- solidariedade
+- attachment
+- death
+- sadness
+- apprentice
+- ethics
+- kindness
+- love
+- patience
+- solidarity
 - tolerancia
-- oracao
-- familia
+- prayer
+- family
 ---
 
 Morrer. Desse destino, nenhum ser humano escapará. E, no entanto, como tememos

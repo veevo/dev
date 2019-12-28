@@ -1,16 +1,16 @@
 ---
-title: O mau momento
+title: Bad time
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- aprendiz
-- calma
-- compreensao
-- humildade
-- sensibilidade
-- oracao
+- impatience
+- patience
+- apprentice
+- calm
+- comprehension
+- humility
+- sensitivity
+- prayer
 ---
 
 

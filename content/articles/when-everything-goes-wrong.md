@@ -1,15 +1,15 @@
 ---
-title: Quando tudo dá errado
+title: When everything goes wrong
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- estresse
-- irritacao
-- violencia
-- calma
-- felicidade
+- impatience
+- patience
+- stress
+- irritation
+- violence
+- calm
+- faithlicidade
 ---
 
 O que se faz naquele dia em que tudo parece dar errado?

@@ -1,15 +1,15 @@
 ---
-title: Traição de Judas
+title: Betrayal of judas
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
+- revenge
 - judas
 - jesus
-- compaixao
-- compaixao
-- justica
-- amor
+- compassion
+- compassion
+- justice
+- love
 ---
 
 Um ouvinte nos escreveu perguntando se Judas, ao nascer, trouxe a missão de

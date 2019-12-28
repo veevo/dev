@@ -1,15 +1,15 @@
 ---
-title: As drogas em nossa vida
+title: Drugs in our life
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- inveja
-- drogas
-- raiva
-- renuncia
+- envy
+- drugs
+- anger
+- waiver
 - vigilancia
-- oracao
-- crianca
+- prayer
+- child
 ---
 
 Drogas são substâncias entorpecentes, excitantes, alucinógenas utilizadas com a

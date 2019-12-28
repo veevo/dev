@@ -1,12 +1,12 @@
 ---
-title: A lição do trigal
+title: Trigal lesson
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- amor
-- familia
+- pride
+- humility
+- love
+- family
 ---
 
 O trigal maduro parecia um mar imenso a ondular ao sabor do vento que brincava

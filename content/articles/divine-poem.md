@@ -1,22 +1,22 @@
 ---
-title: Poema Divino
+title: Divine poem
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- orgulho
-- humildade
-- perdao
-- caridade
-- compaixao
-- coragem
-- justica
-- perdao
-- gratidao
-- amor
-- mansidao
-- paciencia
-- oracao
+- violence
+- pride
+- humility
+- forgiveness
+- charity
+- compassion
+- courage
+- justice
+- forgiveness
+- gratitude
+- love
+- meekness
+- patience
+- prayer
 ---
 
 Pai nosso, que estás no céu, na terra, no fogo, na água e no ar. Pai nosso,

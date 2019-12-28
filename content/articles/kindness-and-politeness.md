@@ -1,11 +1,11 @@
 ---
-title: Gentileza e polidez
+title: Kindness and politeness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- seriedade
-- gentileza
-- crianca
+- seriousness
+- kindness
+- child
 ---
  
 

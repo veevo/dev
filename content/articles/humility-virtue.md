@@ -1,14 +1,14 @@
 ---
-title: A virtude da humildade
+title: Humility virtue
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- respeito
-- solidariedade
+- pride
+- humility
+- respect
+- solidarity
 - tolerancia
-- oracao
+- prayer
 ---
 
 Um homem pode ser humilde sem se tornar alvo de humilhações? A humildade deixa

@@ -1,14 +1,14 @@
 ---
-title: A César o que é de César
+title: To cesar
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
-- mateus
-- evangelho
+- matthew
+- gospel
 - jesus
-- mateus
-- esforco
+- matthew
+- effort
 ---
 
 O Apóstolo Mateus, no capítulo vinte e dois de seu Evangelho, relata o momento

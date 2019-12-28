@@ -1,21 +1,21 @@
 ---
-title: Pai, perdoa-lhes
+title: Father forgive them
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- drogas
-- violencia
-- sexo
-- sensualismo
-- vicios
+- drugs
+- violence
+- sex
+- sensualism
+- addictions
 - jesus
-- perdao
-- amor
-- confianca
-- perdao
-- amor
-- oracao
-- crianca
+- forgiveness
+- love
+- trust
+- forgiveness
+- love
+- prayer
+- child
 ---
 
 Quando ouvimos falar das derradeiras palavras proferidas por Jesus, no topo da

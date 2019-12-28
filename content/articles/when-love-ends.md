@@ -1,17 +1,17 @@
 ---
-title: Quando o amor acaba
+title: When love ends
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- negligencia
-- amor
-- desamor
-- companheirismo
-- felicidade
-- amor
-- oracao
-- familia
-- mae
+- negligence
+- love
+- disaffection
+- companionship
+- faithlicidade
+- love
+- prayer
+- family
+- mother
 ---
 
 

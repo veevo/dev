@@ -1,15 +1,15 @@
 ---
-title: Drogas lícitas
+title: Legal drugs
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
-- leis-divinas
-- esforco
-- sinceridade
-- crianca
+- addictions
+- drugs
+- cigarette
+- divine-laws
+- effort
+- sincerity
+- child
 ---
 
 São alarmantes as notícias que chegam, diariamente, sobre os altos índices de

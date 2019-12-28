@@ -1,13 +1,13 @@
 ---
-title: A inabalável certeza de Deus
+title: Sure about god
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- deus
-- respeito
-- sabedoria
+- pride
+- humility
+- god
+- respect
+- wisdom
 ---
 
 O jovem acreditava ser uma mente brilhante. Elaborava ideias, imergia o

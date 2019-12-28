@@ -1,19 +1,19 @@
 ---
-title: Um terrível mal
+title: Terrible evil
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- sexo
-- sensualismo
-- drogas
-- vicios
-- alcoolismo
-- saude
-- familia
-- adolescentes
-- coragem
-- respeito
+- violence
+- sex
+- sensualism
+- drugs
+- addictions
+- alcoholism
+- health
+- family
+- teens
+- courage
+- respect
 ---
  
 Desde que a bebida alcoólica foi descoberta, o beber passou a ser um ato

@@ -1,17 +1,17 @@
 ---
-title: Ciúme sem razão
+title: Jealousy without reason
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ciume
-- calunia
-- difamacao
-- confianca
-- esforco
-- felicidade
-- integridade
-- oracao
-- crianca
+- jealousy
+- slander
+- defamation
+- trust
+- effort
+- faithlicidade
+- integrity
+- prayer
+- child
 ---
 
 Ao deixar a roupa suja no lugar apropriado, tropecei no diário da minha irmã

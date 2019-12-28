@@ -1,10 +1,10 @@
 ---
-title: O bambu chinês
+title: Chinese bamboo
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- perseveranca
-- familia
+- perseverance
+- family
 ---
 
 O bambu chinês (bambusa mitis) é uma planta da família das gramíneas, nativa do

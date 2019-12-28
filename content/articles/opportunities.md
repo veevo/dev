@@ -1,15 +1,15 @@
 ---
-title: Oportunidades
+title: Opportunities
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
-- alcoolismo
-- leis-divinas
-- confianca
-- crianca
+- addictions
+- drugs
+- cigarette
+- alcoholism
+- divine-laws
+- trust
+- child
 ---
 
 Você já pensou no que significam as oportunidades em sua vida?

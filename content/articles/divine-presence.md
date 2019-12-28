@@ -1,21 +1,21 @@
 ---
-title: Divina Presença
+title: Divine presence
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- calunia
-- difamacao
-- amor
-- familia
-- deus
-- saude
-- oracao
-- provas
-- libertacao
-- compreensao
-- justica
-- amor
-- oracao
+- slander
+- defamation
+- love
+- family
+- god
+- health
+- prayer
+- evidence
+- liberation
+- comprehension
+- justice
+- love
+- prayer
 ---
 
 Quando você nasceu na Terra, parecia um pássaro semimorto que a tempestade

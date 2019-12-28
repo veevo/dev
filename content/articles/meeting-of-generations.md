@@ -1,24 +1,24 @@
 ---
-title: Encontro de gerações
+title: Meeting of generations
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- opressao
-- familia
-- lar
-- adolescencia
-- educacao
-- aprendiz
-- esforco
-- etica
-- amor
-- respeito
+- oppression
+- family
+- home
+- adolescence
+- education
+- apprentice
+- effort
+- ethics
+- love
+- respect
 - tolerancia
-- crianca
-- familia
-- mae
+- child
+- family
+- mother
 ---
 
 

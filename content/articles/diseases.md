@@ -1,21 +1,21 @@
 ---
-title: Enfermidades
+title: Diseases
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- calunia
-- difamacao
-- enfermidades
-- odio
-- paz
-- doencas
-- familia
-- raiva
-- gratidao
-- felicidade
-- amor
-- respeito
-- crianca
+- slander
+- defamation
+- diseases
+- hate
+- peace
+- diseases
+- family
+- anger
+- gratitude
+- faithlicidade
+- love
+- respect
+- child
 ---
  
 Quando o assunto é doença, todos temos uma história para relatar. Não existe

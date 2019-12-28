@@ -1,14 +1,14 @@
 ---
-title: A progressista lei do trabalho
+title: The progressive law of labor 
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ociosidade
-- leis-divinas
-- trabalho
-- calma
-- dignidade
-- esforco
+- idleness
+- divine-laws
+- work
+- calm
+- dignity
+- effort
 ---
 
         O trabalho é uma lei para todas as humanidades planetárias.

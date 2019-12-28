@@ -1,13 +1,13 @@
 ---
-title: Aborrecimentos
+title: Hassles
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- impaciencia
-- paciencia
-- rebeldia
-- aprendiz
-- esforco
+- impatience
+- patience
+- rebellion
+- apprentice
+- effort
 ---
 
 Nada mais comum, nas atividades terrenas, do que o hábito enraizado das

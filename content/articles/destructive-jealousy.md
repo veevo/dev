@@ -1,18 +1,18 @@
 ---
-title: Ciúme destruidor
+title: Destructive jealousy
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- casamento
-- ciume
-- desconfianca
-- inseguranca
-- infelicidade
-- confianca
-- desinteresse
-- felicidade
-- amor
-- respeito
+- wedding
+- jealousy
+- mistrust
+- insecurity
+- unhappiness
+- trust
+- disinterest
+- faithlicidade
+- love
+- respect
 ---
 
 A vida de Ana se tornara muito ruim, desde o momento em que começara a

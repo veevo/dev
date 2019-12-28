@@ -1,20 +1,20 @@
 ---
-title: Salvação
+title: Salvation
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- preguica
-- ociosidade
-- maledicencia
-- pornografia
-- desonestidade
-- compaixao
-- disciplina
-- esforco
-- amor
-- lealdade
-- responsabilidade
-- oracao
+- laziness
+- idleness
+- badedicencia
+- pornography
+- dishonesty
+- compassion
+- discipline
+- effort
+- love
+- loyalty
+- responsibility
+- prayer
 ---
 
 

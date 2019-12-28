@@ -1,5 +1,5 @@
 ---
-title: A powerful remedy
+title: Powerful medicine
 date: 2019-05-14T14:46:10+06:00
 description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
 image: "images/masonary-post/post-2.jpg"

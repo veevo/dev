@@ -1,16 +1,16 @@
 ---
-title: Perdoar é libertar-se
+title: Forgive and free yourself
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- perdao
-- liberdade
-- esforco
-- justica
-- perdao
-- sabedoria
-- oracao
+- revenge
+- forgiveness
+- freedom
+- effort
+- justice
+- forgiveness
+- wisdom
+- prayer
 ---
 
 Se alguém lhe atirasse uma pedra, o que você faria com ela?

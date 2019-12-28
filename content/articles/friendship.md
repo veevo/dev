@@ -1,15 +1,15 @@
 ---
-title: Amizade
+title: Friendship
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- negligencia
-- amizade
-- afabilidade
-- caridade
-- companheirismo
-- pureza
-- familia
+- negligence
+- friendship
+- affability
+- charity
+- companionship
+- purity
+- family
 ---
 
 

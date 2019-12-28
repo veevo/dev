@@ -1,14 +1,14 @@
 ---
-title: Vencendo o egoísmo
+title: Overcoming selfishness
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- caridade
-- respeito
-- crianca
-- mae
+- pride
+- humility
+- charity
+- respect
+- child
+- mother
 ---
 
 Os benfeitores espirituais nos ensinam que o egoísmo é a chaga que deve

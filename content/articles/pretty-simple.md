@@ -1,22 +1,22 @@
 ---
-title: O bem é muito simples
+title: Pretty simple
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- sensualismo
-- pornografia
-- violencia
-- intimidade
-- trabalho
-- rebeldia
-- caridade
-- compreensao
-- confianca
-- esforco
-- bondade
-- amor
-- gentileza
-- oracao
+- sensualism
+- pornography
+- violence
+- intimacy
+- work
+- rebellion
+- charity
+- comprehension
+- trust
+- effort
+- kindness
+- love
+- kindness
+- prayer
 ---
 
 Você já sorriu hoje?

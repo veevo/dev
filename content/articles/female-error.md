@@ -1,14 +1,14 @@
 ---
-title: Erro feminino
+title: Female error
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- cigarro
-- integridade
-- crianca
-- mae
+- addictions
+- drugs
+- cigarette
+- integrity
+- child
+- mother
 ---
  
 

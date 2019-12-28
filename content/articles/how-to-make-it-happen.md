@@ -1,18 +1,18 @@
 ---
-title: Como fazer acontecer
+title: How to make it happen
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- preguica
-- ociosidade
-- depressao
-- tristeza
-- acomodacao
-- confianca
-- esforco
-- justica
-- generosidade
-- tranquilidade
+- laziness
+- idleness
+- fast
+- sadness
+- accommodation
+- trust
+- effort
+- justice
+- generosity
+- tranquility
 ---
 
 

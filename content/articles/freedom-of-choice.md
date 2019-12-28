@@ -1,13 +1,13 @@
 ---
-title: Liberdade de escolha
+title: Freedom of choice
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- ociosidade
-- liberdade
-- tristeza
-- felicidade
-- familia
+- idleness
+- freedom
+- sadness
+- faithlicidade
+- family
 ---
 
 

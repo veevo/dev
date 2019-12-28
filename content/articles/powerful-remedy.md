@@ -1,18 +1,18 @@
 ---
-title: Um poderoso remédio
+title: Powerful remedy
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- religiao
-- depressao
-- suicidio
-- alcoolismo
-- vicios
-- confianca
-- coragem
-- resignacao
-- oracao
-- familia
+- religion
+- fast
+- suicide
+- alcoholism
+- addictions
+- trust
+- courage
+- resignation
+- prayer
+- family
 ---
 
 > "A fé é um remédio poderoso."

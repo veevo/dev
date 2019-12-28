@@ -1,16 +1,16 @@
 ---
-title: A maior dor
+title: Increased pain
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- negligencia
-- dor
-- morte
-- confianca
-- oracao
-- crianca
-- familia
-- mae
+- negligence
+- fathern
+- death
+- trust
+- prayer
+- child
+- family
+- mother
 ---
  
 

@@ -1,18 +1,18 @@
 ---
-title: Moral cristã
+title: Christian moral
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- avareza
+- avarice
 - moral
-- vicios
-- esforco
-- justica
-- felicidade
-- pureza
-- responsabilidade
-- sabedoria
-- oracao
+- addictions
+- effort
+- justice
+- faithlicidade
+- purity
+- responsibility
+- wisdom
+- prayer
 ---
 
 Quando se fala em moral cristã, é possível que alguém alegue ser ela tão velha

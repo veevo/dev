@@ -1,17 +1,17 @@
 ---
-title: Intolerância religiosa
+title: Religious intolerance
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - intolerancia
 - tolerancia
-- religiao
-- liberdade
-- bondade
-- amor
-- respeito
+- religion
+- freedom
+- kindness
+- love
+- respect
 - tolerancia
-- oracao
+- prayer
 ---
 
 A liberdade de expressão é conquista recente na história da Humanidade.

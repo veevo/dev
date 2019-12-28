@@ -1,19 +1,19 @@
 ---
-title: Amar a família ou comprar uma família?
+title: Love or buy family
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- drogas
-- amor
-- familia
-- consumismo
-- materialismo
-- felicidade
-- amor
-- responsabilidade
-- crianca
-- familia
-- mae
+- drugs
+- love
+- family
+- consumerism
+- materialism
+- faithlicidade
+- love
+- responsibility
+- child
+- family
+- mother
 ---
 
 Desde pequenos, um hábito se instala em nós: resolver problemas comprando

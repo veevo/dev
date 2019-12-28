@@ -1,10 +1,10 @@
 ---
-title: Ando devagar porque já tive pressa
+title: Walk slowly
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- devocao
-- oracao
+- devotion
+- prayer
 ---
 
 Ando devagar porque já tive pressa... Pressa de ter tantas coisas, de chegar a

@@ -1,16 +1,16 @@
 ---
-title: Assumindo o que nos compete
+title: Assuming what competes us
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
-- responsabilidade
+- pride
+- humility
+- responsibility
 - desanimo
-- violencia
-- responsabilidade
-- crianca
-- mae
+- violence
+- responsibility
+- child
+- mother
 ---
 
 Embora o desânimo que toma conta de alguns corações, sempre haverá razão para

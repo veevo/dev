@@ -1,22 +1,22 @@
 ---
-title: Sofrimento maior
+title: Greater suffering 
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- calunia
-- difamacao
-- amor
-- trabalho
+- slander
+- defamation
+- love
+- work
 - jesus
-- benevolencia
-- caridade
-- companheirismo
-- confianca
-- perdao
-- indulgencia
-- amor
-- respeito
-- crianca
+- benevolence
+- charity
+- companionship
+- trust
+- forgiveness
+- indulgence
+- love
+- respect
+- child
 ---
 
 Conta-se que quando Inácio de Antioquia foi preso, foi levado a Roma e colocado

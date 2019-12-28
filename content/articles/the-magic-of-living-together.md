@@ -1,13 +1,13 @@
 ---
-title: A magia do convívio
+title: The magic of living together
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
-- criancas
-- respeito
-- crianca
-- mae
+- childs
+- respect
+- child
+- mother
 ---
 
 Na atualidade, vivemos um tanto distantes uns dos outros. Pode soar paradoxal,

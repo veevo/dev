@@ -1,15 +1,15 @@
 ---
-title: Ser normal
+title: Be normal
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- sensualismo
-- sexo
-- pornografia
-- coragem
-- esforco
-- pureza
-- oracao
+- sensualism
+- sex
+- pornography
+- courage
+- effort
+- purity
+- prayer
 ---
 
 O homem é gregário por natureza.

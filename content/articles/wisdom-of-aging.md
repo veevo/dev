@@ -1,16 +1,16 @@
 ---
-title: A sabedoria de envelhecer
+title: Wisdom of aging
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- seriedade
-- velhice
-- amor
-- pai
-- mae
-- familia
-- filhos
-- crianca
+- seriousness
+- old-age
+- love
+- father
+- mother
+- family
+- children
+- child
 ---
 
 Ele é um homem com mais de oitenta anos. Forte. Daqueles bons italianos.

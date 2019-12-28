@@ -1,15 +1,15 @@
 ---
-title: Considerações sobre a vingança
+title: About revenge
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vinganca
-- perdao
-- odio
-- justica
-- perdao
-- responsabilidade
-- familia
+- revenge
+- forgiveness
+- hate
+- justice
+- forgiveness
+- responsibility
+- family
 ---
 
 A vingança é uma espécie de justiça bárbara, de tal maneira que quanto mais a

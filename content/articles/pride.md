@@ -1,20 +1,20 @@
 ---
-title: Orgulho
+title: Pride
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- orgulho
-- humildade
+- pride
+- humility
 - arrogancia
-- amor
-- brandura
-- altruismo
-- coragem
-- perdao
-- felicidade
-- amor
+- love
+- softness
+- altruism
+- courage
+- forgiveness
+- faithlicidade
+- love
 - tolerancia
-- oracao
+- prayer
 ---
 
 Uma das maiores dificuldades com que se debate a Humanidade é o orgulho.

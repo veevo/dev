@@ -1,22 +1,22 @@
 ---
-title: Nossos piores inimigos
+title: Worst enemies
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- violencia
-- avareza
-- inveja
-- odio
-- ciume
-- ambicao
+- violence
+- avarice
+- envy
+- hate
+- jealousy
+- ambition
 - jesus
-- compaixao
-- caridade
-- compaixao
-- felicidade
-- amor
-- oracao
-- familia
+- compassion
+- charity
+- compassion
+- faithlicidade
+- love
+- prayer
+- family
 ---
  
 Jesus havia proferido o maravilhoso Sermão da Montanha há apenas um dia. As

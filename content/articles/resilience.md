@@ -1,9 +1,9 @@
 ---
-title: Resiliência
+title: Resilience
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- resiliencia
+- resilience
 ---
 
 Resiliência é a capacidade da pessoa se recobrar facilmente ou se adaptar às

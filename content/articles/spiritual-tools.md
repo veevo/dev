@@ -1,13 +1,13 @@
 ---
-title: Ferramentas espirituais
+title: Spiritual tools
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vicios
-- drogas
-- coragem
-- felicidade
-- amor
+- addictions
+- drugs
+- courage
+- faithlicidade
+- love
 ---
 
 Uma das graves problemáticas da humanidade é a utilização de drogas.

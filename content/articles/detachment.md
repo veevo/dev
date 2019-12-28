@@ -1,16 +1,16 @@
 ---
-title: Desapego
+title: Detachment
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
-- vaidade
-- apego
-- desapego
-- riqueza
-- consumismo
-- materialismo
-- humildade
-- felicidade
+- vanity
+- attachment
+- detachment
+- wealth
+- consumerism
+- materialism
+- humility
+- faithlicidade
 ---
 
 Vivemos uma época de celebridades, apelos fáceis à riqueza, ao consumismo, às
