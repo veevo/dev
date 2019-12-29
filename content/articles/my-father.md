@@ -9,75 +9,75 @@ topics:
 - family
 ---
 
-Todos os que fomos acalentados pelo amor paterno, com certeza, recordamos nosso
-velho com saudade. Particularmente, quando nós mesmos nos tornamos pais, as
-lembranças acodem aos atropelos.
+All who have been cherished by paternal love, for sure, we remember our
+old man with longing. Particularly when we become parents ourselves,
+memories acode to the trampling.
 
-Na acústica da alma, ainda ouvimos os passos firmes nas noites de trovoadas, a
-conferir em sua ronda, janelas, trancas, cortinas, o sono da criançada.
+In the acoustics of the soul, we still hear the firm steps on the nights of thunderstorms, the
+check on your round, windows, locks, curtains, children's sleep.
 
-Se fechamos os olhos, podemos sentir o deslizar da sua mão levemente pelo nosso
-rosto e o puxar cuidadoso do cobertor.
+If we close our eyes, we can feel the slide of your hand lightly by our
+face and careful pull of the blanket.
 
-Vemos sua silhueta se perdendo na penumbra e ouvimos o último abrir e fechar da
-geladeira.
+We see his silhouette getting lost in the darkness and we hear the last open and close of the
+Fridge.
 
-Recordamos da criança que fomos e que ficava à espera da sua volta do trabalho.
-Aqueles que tivemos pais cujo trabalho exigia muitos dias fora do lar, podemos
-sentir outra vez o coração aos atropelos, lembrando o som do carro dele,
-chegando, na madrugada.
+We remembered the child we went to and who was waiting for his return from work.
+Those who had parents whose work required many days outside the home, we can
+feel the heart again to the trampled, remembering the sound of his car,
+arriving in the early hours of the morning.
 
-Será que lembrou de trazer um presente? Será que a sua barba está por fazer e
-vai espetar o nosso rosto?
+Did you remember to bring a gift? Is your beard undone and
+Are you going to stick our face?
 
-Recordamos o passeio dos fins de semana, do presente de aniversário, da ceia de
-Natal. Até das broncas após as nossas malandragens.
+We recall the weekend, birthday gift, supper of
+Christmas. Even the scolding after our rascals.
 
-Igualmente lembramos dos carinhos à chegada de nosso boletim, a alegria após
-passar de ano. A comemoração em família pelas nossas vitórias: Fundamental,
-Ensino Médio, Vestibular, Faculdade.
+We also remember the affections upon the arrival of our newsletter, the joy after
+pass the year. The family celebration for our victories: Fundamental,
+High School, Entrance Exam, College.
 
-E quando chegamos à adolescência? Quantos cuidados! Quem são os seus
-companheiros? Com quem você vai sair? Aonde vai?
+And when did we get to adolescence? How much care! Who are your
+Companions? Who are you going out with? Where are you going?
 
-Não fume. Não beba. Não exceda a velocidade. Respeite os sinais de trânsito.
+Don't smoke. Don't drink. It doesn't exceed speed. Respect traffic signs.
 
-É hora de chegar? Não falei para chegar antes da meia-noite?
+Is it time to arrive? Didn't I tell you to get here before midnight?
 
-Filho, respeite os mais velhos. Faça um carinho nos seus avós. Quando, afinal,
-vai se decidir a trabalhar?
+Son, respect your elders. Give your grandparents a cuddle. When, after all,
+Will you decide to work?
 
-Garoto, vou lhe cortar a mesada.
+Kid, I'm going to cut your allowance.
 
-Olhando as rugas estampadas no rosto de nosso pai, somos tomados de carinho e
-nos curvamos diante dele. Quantos anos vividos no calor do lar paterno. Quantas
-lições!
+Looking at the wrinkles emblazoned on our father's face, we are taken with affection and
+we bow before him. How many years lived in the warmth of the paternal home. How
+Lessons!
 
-Lições que hoje repassamos para os nossos próprios filhos e, sem nos darmos
-conta, vamos repetindo os mesmos gestos dele. Daquele que há sessenta, setenta
-anos renasceu e um dia se tornou nosso pai.
+Lessons we have passed on to our own children today and, without giving ourselves
+account, we repeat the same gestures of it. Of the one who is sixty, seventy
+years was reborn and one day became our father.
 
-Olhamos nossos filhos e lembrando de como a generosidade de nosso pai, os seus
-cuidados nos fizeram bem ao caráter, nos esmeramos no atendimento aos nossos
-próprios rebentos.
+We look at our children and remind you of how our father's generosity, their
+care has done us good to character, we are so sorry to care for our
+own shoots.
 
-Por tudo isso, outra vez, é que a nossa gratidão cresce no peito e explode em
-uma grande manifestação de afeto. E, como se nosso pai fosse uma criança
-pequena, abraçamos o velho e o embalamos em nossos braços, com a mesma canção
-de ninar que um dia ele embalou a nossa infância.
+For all this, again, is that our gratitude grows on the chest and explodes in
+a great manifestation of affection. And, as if our father were a child
+little, we embrace dwelled the old man and packed him in our arms, with the same song
+of lullaby that one day he cradled our childhood.
 
                                    *   *   *
 
-As mensagens repassadas às crianças calam profundamente em suas almas. Embora o
-tempo, a distância, as circunstâncias mais adversas, tudo o que as aninhou e
-animou nos anos infantis repercute pela vida afora.
+The messages passed on to children shut down deeply in their souls. Although the
+time, distance, the most adverse circumstances, all that has snared them and
+encouraged in the children's years to resonate with life.
 
-Eis porque a infância tem um caráter de primordial importância ao ser humano. É
-nesse período de repouso para o Espírito, que se prepara para as lutas do
-mundo, que o ser se abastece de energias, vigor, valores reais que são, em
-verdade, as únicas heranças autênticas que os pais legam aos filhos.
+This is why childhood has a character of paramount importance to the human being. Right
+in this rest period for the Spirit, which prepares for the struggles of the
+world, that being is supplied with energies, vigor, real values that are, in
+truth, the only authentic inheritances that parents bequeathe to their children.
 
- 
+
 ## Source
 Redação do Momento Espírita, a partir do texto Pai,
 que circula pela Internet, sem menção a autor.

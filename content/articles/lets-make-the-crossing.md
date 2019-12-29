@@ -21,79 +21,79 @@ topics:
 - mother
 ---
 
-O cárcere fora construído em pedra nua, nos arredores de Jerusalém. Nele, os
-soldados O aprisionaram.
+The prison was built in bare stone on the outskirts of Jerusalem. In it, the
+soldiers imprisoned Him.
 
-Ela passara a noite nas proximidades, aguardando o desenrolar dos trágicos
-acontecimentos.
+She had spent the night nearby, awaiting the unfolding of the tragic
+Events.
 
-Na madrugada sem fim, lembrou-se das palavras ouvidas, em casa de Simão, após
-banhar os pés do Mestre com suas lágrimas: Mulher, porque muito amaste, todos
-os teus pecados foram perdoados.
+In the endless dawn, he remembered the words heard, at Simon's house, after
+bathe the Master's feet with his tears: Woman, for much loved, all
+your sins have been forgiven.
 
-O alvorecer dirimiu suas recordações, com a movimentação inusitada dos
-legionários.
+Dawn has resolved his memories, with the unusual movement of
+Legionnaires.
 
-Depois, ela O viu ser conduzido ao palácio do procurador romano, Pôncio
-Pilatos, onde o julgamento se consumou, arbitrário e sem nexo algum. Para o
-Rabi, foi destinada a morte na cruz.
+Then she saw Him be taken to the palace of the Roman prosecutor, Pontius
+Pilate, where the trial was consumed, arbitrary and without any connection. For the
+Rabbi, he was destined for death on the cross.
 
-Quando o pesado madeiro assentou-se nas costas laceradas de Jesus, uma dor
-aguda tomou o coração de Maria, a arrependida de Magdala.
+When the heavy logger sat on Jesus' lacerated back, a pain
+the heart of Mary, magdala's repentant.
 
-Ela, junto de Maria de Nazaré, O acompanhou ao longo da distância que separa a
-cidade de Jerusalém do Gólgota, o monte da crucificação.
+She, near Mary of Nazareth, accompanied Him along the distance separating the
+city of Jerusalem of Golgotha, the hill of crucifixion.
 
-Seguiam-nO ainda, João, o discípulo mais jovem, algumas mulheres e transeuntes
-curiosos.
+They followed him yet, John, the youngest disciple, some women and passers-by
+Curious.
 
-Mas, em Sua lenta agonia, Ele marchava só. E Maria Madalena pôs-se a refletir:
+But in His slow agony, He marched alone. And Mary Magdalene began to reflect:
 
-Há menos de uma semana, recebido com alegria por inúmeras pessoas que lançavam
-flores e palmas em Seu caminho, o Mestre entrara pela porta principal de
-Jerusalém.
+Less than a week ago, greeted with joy by countless people who launched
+flowers and palms on His way, the Master had entered through the main door of
+Jerusalem.
 
-Os homens retiravam seus mantos e os estendiam no chão, à guisa de tapetes para
-que Jesus passasse. As mães mostravam seus filhos para que Ele os abençoasse.
+The men removed their robes and stretched them on the floor, in the guise of carpets to
+jesus to pass. The mothers showed their children so that He would bless them.
 
-As vozes se erguiam cantando hosanas ao Filho de Davi.
+Voices rose by singing hostess to the Son of David.
 
-Onde estavam essas pessoas agora? Onde estavam Pedro, Thiago, André, Filipe?
-Onde estavam os amigos?
+Where were these people now? Where were Pedro, Thiago, André, Filipe?
+Where were the friends?
 
-Onde estavam os cegos aos quais Ele restaurara a visão? Os surdos para os quais
-Ele devolvera a audição dos sons da natureza? Os endemoniados que Ele libertara
-da loucura?
+Where were the blind to whom He had restored his vision? The deaf for whom
+Did he return the hearing of the sounds of nature? The monies He had unleashed
+of madness?
 
-Acompanhando os dolorosos passos de Jesus, Maria teve uma súbita compreensão:
+Following Jesus' painful steps, Mary had a sudden understanding:
 
-Ao entrar em Jerusalém, não fora Ele quem pisara nas flores, nas palmas, nos
-mantos estendidos. Fora o animal no qual Ele estava montado naquela ocasião.
+As he entered Jerusalem, he had not been the one who had set foot on flowers, in the palms, in the
+extended mantles. Apart from the animal on which He was riding at that time.
 
-Ela compreendeu que, naquele instante, Jesus revelava-se verdadeira ponte entre
-a criatura humana, ainda imperfeita, e o Criador, Pai de todos nós.
+She understood that, at that moment, Jesus proved to be a true bridge between
+the human creature, still imperfect, and the Creator, Father of all of us.
 
-Com lágrimas lhe umedecendo os olhos, lembrou-se das palavras dEle, que nunca
-antes lhe haviam soado tão significativas e reveladoras: Eu sou o Caminho, a
-Verdade e a Vida. Ninguém vai ao Pai, senão por mim.
+With tears dampening his eyes, he remembered his words, which never
+before they had sounded so significant and revealing: I am the Way, the
+Truth and Life. No one goes to Dad but for me.
 
                                    *   *  *
 
-Por um instante, silenciemos nossas emoções e pensamentos. Voltemos os olhos a
+For a moment, we silence our emotions and thoughts. Let us turn our eyes back to
 Jesus.
 
-Sintamos as Suas mãos envolvendo as nossas. Como Bom Pastor, Ele nos chama pelo
-nome.
+Let us feel His hands involving ours. As a Good Shepherd, He calls us for the
+Name.
 
-Guiados pelas pegadas que Ele registrou em nossos caminhos, tornemos seguros os
-nossos passos. Realizemos o esforço para iniciar o abandono do egoísmo, do
-orgulho, da vaidade, da arrogância, da avareza.
+Guided by the footprints he recorded in our ways, let us make sure the
+our steps. Let us make an effort to initiate the abandonment of selfishness,
+pride, vanity, arrogance, avarice.
 
-Envoltos pela luz do Mestre, que nosso caminhar nos conduza ao amor, ao perdão,
-à caridade, à gentileza, à fraternidade, à fé.
+Enveloped by the light of the Master, that our journey leads us to love, forgiveness,
+to charity, kindness, fraternity, faith.
 
-Jesus é a ponte, o caminho e o guia. Tenhamos coragem! Façamos a travessia da
-nossa pobre condição humana para a angelitude!
+Jesus is the bridge, the way and the guide. Let's have the guts! Let us cross the
+our poor human condition for angelitude!
 
 ## Source
 Redação do Momento Espírita.

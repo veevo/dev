@@ -11,69 +11,69 @@ topics:
 - tolerancia
 ---
 
-Em termos de psicologia profunda, a questão do julgamento das faltas alheias
-constitui um grave cometimento de desumanidade em relação àquele que erra.
-O problema do pecado pertence a quem o pratica, que se encontra, a partir daí,
-incurso em doloroso processo de auto-flagelação, buscando, mesmo que
-inconscientemente, liberar-se da falta que lhe pesa como culpa na economia da
-consciência.
+In terms of deep psychology, the issue of the judgment of other people's faults
+constitutes a serious beginning of inhumanity in relation to the one who misses.
+The problem of sin belongs to those who practice it, which is, from there,
+in the painful process of self-flogging, seeking, even if
+unconsciously, free up the lack that weighs him as guilt in the economy of the
+Consciousness.
 
-A culpa é sombra perturbadora na personalidade, responsável por enfermidades
-desprezíveis, causadoras de desgraças de vária ordem.
+Guilt is disturbing shadow in personality, responsible for illnesses
+causing misfortunes of various order.
 
-Insculpida nos painéis profundos da individualidade, programa, por
-automatismos, os processos reparadores para si mesma.
+Insculpide in the deep panels of individuality, program, for
+automatisms, the repairing processes for itself.
 
-Toda contribuição de impiedade, mediante os julgamentos arbitrários, gera, por
-sua vez, mecanismos de futura aflição para o acusador.
+Every contribution of wickedness, through arbitrary judgments, generates, for
+mechanisms of future distress for the accuser.
 
-Julgando as ações que considera incorretas no seu próximo, realiza um fenômeno
-de projeção da sua sombra em forma de auto-justificação, que não consegue
-libertá-lo do impositivo das suas próprias mazelas.
+Judging by the actions he considers incorrect in his neighbor, he performs a phenomenon
+projection of its shadow in the form of self-justification, which cannot
+free him from the imposition of his own ills.
 
-A tolerância, em razão disso, a todos se impõe como terapia pessoal e
-fraternal, compreendendo as dificuldades do caído, enquanto lhe distende mãos
-generosas para o soerguer.
+Tolerance, because of this, is imposed on all as personal therapy and
+fraternal, understanding the difficulties of the fallen, while distending his hands
+generous for the sun-erecting.
 
-Na acusação, no julgamento dos erros alheios, deparamos com propósitos ocultos
-de vingança-prazer em constatar a fraqueza dos outros indivíduos, que sempre
-merecem a misericórdia que todos esperamos encontrar quando em circunstâncias
-equivalentes.
+In the prosecution, in the judgment of other people's mistakes, we face hidden purposes
+revenge-pleasure in verifying the weakness of other individuals, who always
+deserve the mercy that we all hope to find when in circumstances
+Equivalent.
 
-Jesus sempre foi severo na educação dos julgadores da conduta alheia.
-Certamente, há tribunais e autoridades credenciadas para o ministério de
-saneamento moral da sociedade, encarregadas dos processos que envolvem os
-delituosos.
+Jesus has always been severe in the education of the judges of other people's conduct.
+Certainly, there are courts and authorities accredited to the ministry of
+moral sanitation of society, in charge of the processes involving the
+delituous.
 
-E os julgam, estabelecendo os instrumentos reeducativos, jamais punitivos, pois
-que, se o fizessem, incidiriam em erros idênticos, se não mais graves.
-O julgamento pessoal, que ignora as causas geradoras dos problemas, demonstra o
-primitivismo moral do homem ainda "lobo" do seu irmão.
+And they judge them, establishing reeducational instruments, never punitive, for
+that, if they did, they would focus on identical errors, if not more serious.
+Personal judgment, which ignores the causes of problems, demonstrates the
+moral primitivism of man still "wolf" of his brother.
 
-O Mestre estabeleceu a formosa imagem do homem que tem uma trave
-dificultando-lhe a visão, e no entanto vê o cisco no olho do seu próximo.
-A proposta é rigorosa, portadora de claridade evidente, que não concede pauta a
-qualquer fuga de responsabilidade.
+Master established the beautiful image of man having a beam
+making it difficult to view, and yet he sees the cisco in the eye of his neighbor.
+The proposal is rigorous, with evident clarity, which does not grant the agenda to
+any flight of responsibility.
 
-Ele próprio, diante da multidão aflita, equivocada, perversa, insana, ao invés
-de a julgar, "tomou-se de compaixão" e ajudou-a.
+Himself, before the angry, mistaken, wicked, insane crowd, rather
+to judge her, "took herself with compassion" and helped her.
 
-Naturalmente não solucionou todos os problemas, nem atendeu a todos, como eles
-o desejavam.
+Of course did not solve all the problems, nor did he address everyone, as they
+desired it.
 
-Apesar de tudo, compadecido, os amou, envolvendo-os em ternura e ensinando-lhes
-as técnicas de libertação para adquirirem a paz.
+After all, compadeted, loved them, wrapping them in tenderness and teaching them
+liberation techniques to acquire peace.
 
-Pensamento
+Thought
 
-Tem compaixão de quem cai. A consciência dele será o seu juiz.
-Ajuda aquele que tomba. Sua fraqueza já lhe constitui punição.
-Tolera o infrator. Ele é o teu futuro, caso não disponhas de forças para
-prosseguir bem.
+You have compassion on those who fall. His conscience will be your judge.
+Help the one who falls. Your weakness already constitutes punishment to you.
+Tolerates the offender. He is your future if you do not have the strength to
+continue well.
 
-A tolerância que utilizares para com os infelizes se transformará na medida
-emocional de compaixão que receberás, quando chegar a tua vez, já que ninguém é
-perfeito.
+The tolerance you use towards the unfortunate will become to the extent that
+emotional compassion you will receive, when your turn comes, since no one is
+Perfect.
 
 ## Source
 Equipe de Redação do Momento Espírita, adaptação do cap. 

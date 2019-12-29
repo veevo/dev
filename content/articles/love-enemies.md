@@ -14,77 +14,77 @@ topics:
 - love
 ---
 
-Será possível estender o amor até mesmo aos inimigos? Este sentimento sublime,
-que nos torna doces para com o amigo, que nos permite sentirmos felicidade com
-sua simples presença, será possível de ser direcionado aos inimigos?
+Is it possible to extend love even to enemies? This sublime feeling,
+that makes us sweet towards the friend, which allows us to feel happiness with
+your mere presence, is it possible to be directed to enemies?
 
-O amor é uma atitude interior que se expande como acontece com o ar, que a tudo
-e a todos vitaliza.
+Love is an inner attitude that expands as with air, which at all
+and everyone vitalizes.
 
-Em se falando dos criminosos, a Lei de caridade diz que devemos ter para com
-eles compaixão.
+Speaking of criminals, the Charity Act says we should have to
+they compassion.
 
-Será possível nos compadecermos por alguém que nos tirou a paz, retirando do
-nosso lado o esposo amado, matando-o em um momento de loucura?
+It will be possible to commend ourselves for someone who took away our peace, removing from the
+our side the beloved husband, killing him in a moment of madness?
 
-Será possível amar alguém que nos usurpou os bens, enganando-nos e nos deixando
-na quase miséria?
+It will be possible to love someone who usurped our goods, deceiving us and leaving us
+in almost misery?
 
-Analisando a questão dos que nos fazem mal, é sempre oportuno recordar que o
-criminoso é um doente e em si mesmo já muito infeliz.
+Looking at the question of those who harm us, it is always appropriate to remember that the
+criminal is a sick and in himself already very unhappy.
 
-Além disso, temos que considerar fatores sociais, econômicos e emocionais que
-conduzem à alucinação, ao crime e a delinquência.
+In addition, we have to consider social, economic and emotional factors that
+lead to hallucination, crime and delinquency.
 
-Punir tais criaturas é reagir com ódio. Cobrar o erro com a vingança é ser pior
-do que o criminoso. O juiz, que dita sentenças em nome da sociedade, graças aos
-conhecimentos que possui, deve ser sadio emocionalmente e equilibrado nas suas
-decisões, a fim de ser melhor do que o criminoso.
+Punishing such creatures is to react with hatred. Charging the mistake with revenge is to be worse
+than the criminal. The judge, who dictates judgments on behalf of the company, thanks to the
+knowledge you have, must be emotionally sound and balanced in your
+decisions in order to be better than the criminal.
 
-O ódio é vingador e a vingança expressa primitivismo do homem. Portanto, não é
-justiça.
+Hatred is avenger and revenge expresses the primitivism of man. Therefore, it is not
+Justice.
 
-A técnica do amor receita para o delinquente a terapia do afastamento
-temporário da sociedade, exatamente como um enfermo portador de doença
-contagiosa.
+The recipe love technique for delinquent removal therapy
+society, just like a sick person with disease
+Contagious.
 
-Precisa ser tratado, para se reintegrar à sociedade dos sadios, depois.
+It needs to be treated to reintegrate into the society of the healthy, then.
 
-O amor reabilita moralmente o caído, oferecendo-lhe recursos para a
-recuperação. Permitir que o criminoso repare os males praticados com ações
-dignas e compensadoras, eis a chave mestra da renovação do mundo.
+Love morally rehabilitates the fallen, offering him resources for the
+Recovery. Allow the criminal to notice the evils committed with actions
+worthy and rewarding, this is the master key to the renewal of the world.
 
-Matar o assassino não devolve a vida à vítima, nem diminui a saudade de quem
-lamenta a ausência do amado. Amputar os dedos ou as mãos do ladrão não devolve
-o furto ao seu dono, que continua lesado.
+Killing the killer does not return life to the victim, nor does it diminish the longing of those who
+regrets the absence of the beloved. Amputating the thief's fingers or hands does not return
+theft to its owner, who remains injured.
 
-Arrancar a língua do caluniador não repara os males que a acusação falsa já
-espalhou pelo mundo...
+Plucking the slander's tongue does not notice the evils that the false accusation has already
+spread throughout the world...
 
-Quando o amor penetrar o íntimo dos homens, o ódio, que é doença do egoísmo,
-cederá lugar à fraternidade e à compreensão.
+When love penetrates the intimate of men, hatred, which is a disease of selfishness,
+will give way to fraternity and understanding.
 
-Por isso mesmo é que Jesus alertou: Ouvistes o que foi dito aos antigos: amarás
-o teu próximo e aborrecerás o teu inimigo. Eu porém vos digo: amai os vossos
-inimigos, orai pelos que vos perseguem e caluniam para que vos torneis filhos
-de Deus sobre a Terra.
+That is why Jesus warned: You have heard what has been said to the ancients: you will love
+your neighbor and you will bore your enemy. I, however, say unto you, love your
+enemies, pray for those who persecute you and slander you so that you may become children
+of God upon the earth.
 
-Se amardes somente aos que vos amam, que recompensa tereis? Não fazem assim
-também os criminosos entre si e todos os homens de má vida?
+If you love only those who love you, what reward will you have? They don't do it like that.
+criminals among themselves and all men of bad life?
 
 *   *   *
 
-O amor, em qualquer expressão, é a presença do Pai Criador sustentando a vida e
-dignificando as Suas criaturas.
+Love, in any expression, is the presence of the Creator Father sustaining life and
+dignifying His creatures.
 
-Um dia, Ele haverá de triunfar sobre todas as circunstâncias e regerá todas as
-vidas.
+One day, He shall triumph over all circumstances and govern all
+Lives.
 
-Ao estabelecer a Lei de amor aos adversários, Jesus instaurou a era da
-misericórdia, que haveria de preceder a do amor real.
+In establishing the Law of Love for adversaries, Jesus established the era of
+mercy, which would precede that of real love.
 
-Ele mesmo viveu durante todo o Seu ministério a Lei do amor e por ela deu a
-vida.
+He himself lived throughout His ministry the Law of Love and for her gave the
+Life.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 4 do livro Luz do mundo e

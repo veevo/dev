@@ -7,108 +7,108 @@ topics:
 ---
  
 
-Quem já desenvolveu algum tipo de trabalho voluntário sabe o quanto é difícil
-conseguir que os companheiros   persistam na tarefa e não a abandonem.
+Anyone who has already developed some kind of volunteer work knows how difficult it is
+to get the companions to persist in the task and not abandon it.
 
-Existem as desculpas mais frequentes para se desistir de qualquer empreitada.
+There are the most frequent excuses for giving up any endeave.
 
-Poderíamos relacionar as cinco mais comuns:
+We could relate the five most common:
 
-Primeira:
+First:
 
-Não tenho tempo.
+I don't have time.
 
-Essa é uma das frases mais ouvidas nos dias atuais.
+This is one of the most heard phrases today.
 
-As pessoas correm de um lado para o outro, todos os dias.
+People run back and forth every day.
 
-Dividem seu tempo entre o trabalho, o estudo, o lazer e mais uma infinidade de
-atividades.
+They divide their time between work, study, leisure and a multitude of
+Activities.
 
-Porém, há coisas que não valem a pena.
+However, there are things that are not worth it.
 
-Muitas vezes desperdiçamos minutos valiosos em atividades ou em programas que
-se revelam, mais tarde, lamentáveis equívocos.
+We often waste valuable minutes on activities or programs that
+later, regrettable misconceptions are revealed.
 
-Então, na verdade, o que sofremos não é a falta de tempo, mas sim a dificuldade
-de priorizar tarefas e de utilizar de modo razoável e útil as horas de que
-dispomos.
+So actually what we suffer is not the lack of time, but rather the difficulty
+prioritizing tasks and of using reasonably and usefully the hours of which
+we have it.
 
-Segunda:
+Second:
 
-Não sei fazer.
+I can't do it.
 
-Há pessoas que não sabem realizar determinadas tarefas e não têm o menor
-interesse em aprendê-las.
+There are people who do not know how to perform certain tasks and do not have the least
+interest in learning them.
 
-Há quem diga: Não sei e tenho raiva de quem sabe.
+Some people say, I don't know, and I'm mad at who knows.
 
-Em outras palavras, não querem a responsabilidade de saber para se esconder na
-ignorância e na incapacidade voluntária de realizar qualquer atividade
-diferente.
+In other words, they don't want the responsibility to know to hide in the
+ignorance and voluntary inability to carry out any activity
+Different.
 
-Trata-se de uma omissão deliberada, negando-se a buscar um objetivo nobre.
+This is a deliberate omission, refusing to seek a noble goal.
 
-Na visão evangélica, são pessoas que enterram seus talentos e que nada produzem
-de bom.
+In the Gospel view, they are people who bury their talents and who produce nothing
+good.
 
-Terceira:
+Third:
 
-Não tenho saúde.
+I'm not healthy.
 
-Pequenas indisposições costumam servir de desculpas para o afastamento das mais
-singelas atividades.
+Minor indispositions often serve as excuses for the removal of the most
+simple activities.
 
-Porém, não são suficientemente graves para impedir que a mesma pessoa deixe de
-buscar prazeres e lazeres dos mais variados, na mesma ocasião.
+However, they are not serious enough to prevent the same person from no longer
+seek pleasures and leisure of the most varied, on the same occasion.
 
-Ou seja: só não se está bem o suficiente para trabalhar porque não há motivos
-reais para recusar as ofertas fúteis e vazias do mundo.
+That is: just not well enough to work because there is no reason
+to refuse the world's futile and empty offerings.
 
-Quarta:
+Fourth:
 
-Tenho medo.
+I'm scared.
 
-Nessa situação, a frase mais comum é: Quem sou eu para fazer isso?
+In this situation, the most common phrase is: Who am I to do this?
 
-Mais do que falsa modéstia, a pessoa que costuma valer-se de tal argumento, na
-verdade, quer eximir-se de novas atribuições.
+More than false modesty, the person who is often worth such an argument, in the
+truth, wants to exempt itself from new attributions.
 
-É muito cômodo alegar o receio de errar.
+It's very comfortable to plead for fear of wrong.
 
-Ora, não podemos esquecer que só erra quem faz.
+Now, we can't forget that only mistakes who does.
 
-Aquele que nada realiza equivoca-se apenas por omitir-se, por deixar de
-realizar.
+He who accomplishes nothing is wrong only by omitting himself, for failing to
+Make.
 
-No entanto, é melhor correr o risco de errar, produzindo algo de bom, do que
-simplesmente lavar as mãos e não errar nunca, mas também nada fazer.
+However, it is better to run the risk of wrong, producing something good, than
+simply wash your hands and never err, but also do nothing.
 
-Quinta:
+Fifth:
 
-Outra pessoa vai fazer isso.
+Someone else is going to do that.
 
-Muitos cruzam os braços na certeza de que a tarefa será levada a cabo por
-outras pessoas.
+Many cross their arms in the certainty that the task will be carried out by
+other people.
 
-Na verdade, boa parte das tarefas efetivamente poderá ser realizada sem o
-auxílio, sem a participação daqueles.
+In fact, most tasks can effectively be performed without the
+without the participation of those.
 
-No entanto, sendo cada pessoa única, o resultado que se obtém em cada obra pode
-ser diferente.
+However, being each person, the result that is obtained in each work can be
+be different.
 
-Além disso, na maioria das vezes, a tarefa não precisa deles, mas são eles
-próprios que precisam dessa oportunidade para aprender e para se  desenvolver.
+Moreover, most of the time, the task does not need them, but they are
+need this opportunity to learn and develop.
 
                                    *   *   *
 
-O trabalho no bem é uma oportunidade abençoada que não deve jamais ser
-retardada ou abandonada, sob pena de prejudicar a evolução do próprio
-trabalhador envolvido.
+Work in good is a blessed opportunity that should never be
+delayed or abandoned, otherwise it harms the evolution of the
+worker involved.
 
-Evite desculpas vãs.
+Avoid vain excuses.
 
-Busque o trabalho, realize e cresça.
+Seek the work, perform and grow.
 
 ## Source
 Redação do Momento Espírita, com base no Boletim Al-non - Informativo Nacional

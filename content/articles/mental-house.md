@@ -12,90 +12,90 @@ topics:
 ---
  
 
-Nossa mente é como uma casa. Pode ser grandiosa ou pequenina, suja ou
-cuidadosamente limpa. Depende de nós.
+Our mind is like a house. It can be grand or small, dirty or
+carefully clean. It's up to us.
 
-Você já observou como agimos com relação aos pensamentos que cultivamos?
+Have you ever seen how we act on the thoughts we cultivate?
 
-Em geral, não temos com a mente o cuidado que costumamos dispensar aos
-ambientes em que vivemos ou trabalhamos.
+In general, we do not have with our minds the care that we usually dispense with the
+environments in which we live or work.
 
-Quem pensaria em deixar sua casa ou escritório cheio de sujeira, acumulando
-lixo ou tomado por ratos e insetos?
+Who would think of leaving their house or office full of dirt, accumulating
+garbage or taken by rats and insects?
 
-Certamente ninguém.
+Certainly no one.
 
-No entanto, com a casa mental somos menos atenciosos. É que permitimos que
-pensamentos infelizes e maus sentimentos encontrem morada em nosso coração.
+However, with the mental home we are less considerate. It's just that we allow
+unhappy thoughts and bad feelings find abode in our hearts.
 
-E como fazemos isso?
+And how do we do that?
 
-Agimos assim quando permitimos que tenham livre acesso às nossas mentes os
-pensamentos de revolta, inveja, ciúme, ódio.
+We act like this when we allow them to have free access to our minds the
+thoughts of revolt, envy, jealousy, hatred.
 
-Ou quando cultivamos desejo de vingança, rancor e infelicidade.
+Or when we cultivate a desire for revenge, grudge and unhappiness.
 
-Nesses momentos, é como se enchêssemos de sujeira a mente. Uma pesada camada de
-pó cobre a alegria e impede que estejamos em paz.
+In these moments, it's like we fill our minds with dirt. A heavy layer of
+powder covers joy and prevents us from being at peace.
 
-Além da angústia que traz, a mente atormentada influencia diretamente o corpo,
-acarretando doenças e sofrimentos desnecessários.
+In addition to the anguish it brings, the tormented mind directly influences the body,
+causing unnecessary illness and suffering.
 
-E pior: contribui para o isolamento.
+Worse, it contributes to isolation.
 
-Sim, porque as pessoas percebem quando não estamos bem espiritualmente.
+Yes, because people realize when we are not well spiritually.
 
-O azedume de nossas palavras, o rosto contraído, tudo faz com que os outros
-desejem se afastar de nós, agravando nossa infelicidade.
+The sourness of our words, the face contracted, everything causes others to
+wish to turn away from us, aggravating our unhappiness.
 
-E o que fazer para impedir que isso aconteça?
+And what to do to keep that from happening?
 
-A resposta foi dada por Jesus: Orar e vigiar.
+The answer was given by Jesus: Pray and watch over.
 
-A vigilância é essencial para quem deseja a mente saudável.
+Vigilance is essential for those who want a healthy mind.
 
-Nossa tarefa é observar cada pensamento que se infiltra, analisar a natureza
-dos sentimentos que surgem.
+Our task is to observe every thought that infiltrates, analyze nature
+of the feelings that arise.
 
-E, principalmente, estar alerta para arrancar como erva daninha tudo o que
-possa nos prejudicar.
+And mostly be alert to pluck like weed everything that
+can harm us.
 
-Dado esse primeiro passo que é a vigilância, é importantíssimo estar atento
-para a segunda recomendação de Jesus: a oração.
+Given this first step that is surveillance, it is very important to be aware
+for Jesus' second recommendation: prayer.
 
-Quando identificamos dentro de nós os feios sentimentos, as más palavras e os
-pensamentos desequilibrados, sempre podemos recorrer à oração.
+When we identify within us the ugly feelings, bad words and
+unbalanced thoughts, we can always resort to prayer.
 
-A prece é um pedido de socorro que dirigimos ao Divino Pai. Quando nos sentimos
-frágeis para combater os pensamentos infelizes, é hora de pedir auxílio a Deus.
+Prayer is a cry for help that we address to the Divine Father. When we feel
+to combat unhappy thoughts, it is time to ask God for help.
 
-É tempo de falar a Ele sobre a fraqueza que carregamos ou a tristeza que nos
-abate. É o momento de pedir força moral.
+It is time to speak to Him about the weakness we carry or the sadness that we
+Slaughter. It's time to ask for moral force.
 
-E o Pai dos Céus nos enviará o auxílio necessário.
+And the Father of Heaven will send us the necessary help.
 
-Mas... de nossa parte, é importante não haver acomodação. É preciso trabalhar
-para ser merecedor da ajuda que Deus nos manda.
+But... on our part, it is important that there is no accommodation. You have to work
+to be worthy of the help God sends us.
 
-Como fazer isso? Contrapondo a cada mau pensamento os vários antídotos que
-temos à nossa disposição: as boas atitudes, o sorriso, a alegria, as boas
-leituras.
+How to do that? Opposing every bad thought the various antidotes that
+we have at our disposal: good attitudes, smile, joy, good
+Readings.
 
-Em vez da maledicência, a boa palavra, as conversas saudáveis.
+Instead of malevolence, the good word, healthy conversations.
 
-No lugar da crítica ácida, optar pelo elogio ou pela observação construtiva.
+In place of acid criticism, opt for praise or constructive observation.
 
-Se surgir um pensamento infeliz, combatê-lo com firmeza.
+If an unfortunate thought arises, fight it firmly.
 
 *   *   *
 
-Não se deixe escravizar.
+Don't be enslaved.
 
-Se alguém o ofender ou fizer mal, procure perdoar, esquecer. E peça a Deus a
-oportunidade de ser útil a essa pessoa.
+If anyone offends you or harms you, try to forgive, forget it. And ask God to
+opportunity to be useful to that person.
 
-Não esqueça: todo dia é excelente oportunidade para iniciar a limpeza da casa
-mental. Comece agora mesmo.
+Don't forget: every day is excellent opportunity to start cleaning the house
+Mental. Start right now.
 
 
 

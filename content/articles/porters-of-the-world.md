@@ -9,82 +9,82 @@ topics:
 ---
  
 
-Você já se deu conta da importância daqueles que recebem os Espíritos
-recém-chegados à Terra pelas portas da reencarnação?
+You have already realized the importance of those who receive the Spirits
+newcomers to earth through the gates of reincarnation?
 
-Sim, falamos dos profissionais que realizam partos e seguram o bebê antes mesmo
-do que a própria mãe.
+Yes, we talk about the professionals who deliver and hold the baby first
+than her own mother.
 
-Há casos belíssimos e emocionantes contados por esses missionários que
-poderíamos chamar de porteiros do mundo.
+There are beautiful and exciting cases told by these missionaries who
+we could call it the doormen of the world.
 
-Um deles é do Dr. Eliezer Berenstein.
+One of them is Dr. Eliezer Berenstein's.
 
-Conta ele que, quando era apenas estudante de medicina e preparava-se para
-fazer psiquiatria, foi encarregado de atender a uma paciente.
+He says that when he was just a medical student and was preparing to
+psychiatry, was tasked with serving a patient.
 
-Assim que entrou na enfermaria e se apresentou, ela o surpreendeu com uma
-pergunta:
+As soon as she entered the infirmary and introduced herself, she surprised him with a
+Question:
 
-O senhor nunca sorri?
+Don't you ever smile?
 
-Essa cara amarrada é sinal de algum problema, disse com ar descontraído.
+That tied face is a sign of some trouble, said with relaxed air.
 
-Estou bem, obrigado. A senhora é que deve estar com algum problema e, por isso,
-vim examiná-la, disse o futuro psiquiatra, já levantando o lençol e o avental
-que a cobriam.
+I'm fine, thank you. You must be in some trouble, so
+I came to examine her, said the future psychiatrist, already lifting the sheet and the apron
+that covered her.
 
-É recém-formado?, insistiu a enferma.
+Are you newly formed?
 
-Por quê? Perguntou preocupado.
+Why is that? He asked worried.
 
-É que estou nua, a porta está aberta e eu sou uma freira.
+It's just that I'm naked, the door is open and I'm a nun.
 
-Bem, mas não se preocupe com isso, insistiu a Irmã Madalena. Já fui parteira
-aqui neste hospital. Convivi com muitos médicos e sei reconhecer um bom
-profissional.
+Well, don't worry about it, Sister Magdalene insisted. I used to be a midwife
+here in this hospital. I have lived with many doctors and know how to recognize a good
+Professional.
 
-O senhor será um ótimo parteiro.
+You're going to be a great midwife.
 
-O jovem médico corrigiu-a:
+The young doctor corrected her:
 
-Eu não vou fazer partos, serei psiquiatra e, agora, vou lhe dar um remedinho.
+I'm not going to deliver, I'm going to be a psychiatrist, and now I'm going to give you a little snack.
 
-O senhor tem mesmo um remédio para mim? Os médicos já me desenganaram, meu
-tumor cresceu demais...
+Do you really have a remedy for me? The doctors have already deceived me, my
+tumor has grown too much...
 
-Diz o doutor Berenstein que as palavras e o comportamento daquela freira o
-viraram do avesso.
+Doctor Berenstein says that the words and behavior of that nun the
+turned inside out.
 
-No dia seguinte, tirou a barba, que o deixava parecido com Freud, e decidiu que
-seria parteiro.
+The next day, he took his beard, which made him look like Freud, and decided that
+would be a midwife.
 
-Quando foi contar a novidade à Irmã Madalena, ela, com simplicidade e
-sabedoria, continuou a lhe dar grandes lições.
+When she went to tell Sister Magdalene the news, she, with simplicity and
+wisdom, continued to give him great lessons.
 
-O senhor tem mãos tanto para dar adeus quanto para dizer olá.
+You have hands as much to say goodbye and to say hello.
 
-E tenha muito carinho com o primeiro parto que fizer, porque serei eu que
-estarei voltando.
+And be very fond of the first delivery you do, because I will be the one who
+I'll be coming back.
 
-Conta o doutor Berenstein que algum tempo depois de formado fez seu primeiro
-parto. Irmã Madalena já havia morrido.
+Doctor Berenstein says that some time after graduation made his first
+Birth. Sister Magdalene had already died.
 
-Diz ele que chorou mais do que a criança, que era uma menina e acabou recebendo
-o nome de Madalena.
+He says he cried more than the child, who was a girl and ended up getting
+the name of Magdalene.
 
-Daquele dia em diante ele não teve mais dúvida de que sua missão era ser
-parteiro. Um porteiro do mundo, como dizia a Irmã Madalena.
+From that day forward he had no doubt that his mission was to be
+parteiro. A doorman from the world, as Sister Magdalene said.
 
 *   *   *
 
-Todo profissional que desempenha seu trabalho, com seriedade e dedicação, é um
-colaborador de Deus.
+Every professional who performs his work, with seriousness and dedication, is a
+collaborator of God.
 
-Seja calejando as mãos na lavoura ou criando sistemas sofisticados de
-informática; limpando feridas ou construindo edifícios; fazendo a higiene das
-ruas ou cultivando jardins, todos somos peças importantes dessa grande nave que
-chamamos Terra, e cujo administrador é Deus.
+Whether you're heating your hands on the crop or creating sophisticated systems of
+computer science; cleaning wounds or building buildings; making the hygiene of the
+streets or cultivating gardens, we are all important pieces of this great ship that
+we call Earth, and whose administrator is God.
 
 
 ## Source

@@ -18,75 +18,75 @@ topics:
 - prayer
 ---
 
-Talvez hoje... tenhamos despertado pela manhã com o coração oprimido, com uma
-sensação estranha e o dia cinza mais tenha reforçado o nosso sentir desanimado.
+Maybe today... we have awakened in the morning with an oppressed heart, with a
+strange feeling and the gray day more have reinforced our discouraged feeling.
 
-Recordemos, porém, que é apenas mais uma manhã. Tudo que lá fora está sob as
-nuvens cinzentas, mantém as mesmas cores de ontem.
+Let us remember, however, that it's just another morning. Everything out there is under the
+gray clouds, maintains the same colors as yesterday.
 
-E não precisamos nos obrigar a estar sempre radiantes e ensolarados por dentro.
+And we don't have to make ourselves always radiant and sunny inside.
 
-Podemos aceitar os dias chuvosos e os ensolarados como parte das estações, sem
-grandes choques emocionais.
+We can accept rainy and sunny days as part of the seasons without
+great emotional shocks.
 
-Talvez hoje... tenhamos esperado algo de alguém e essa pessoa não nos tenha
-correspondido.
+Maybe today... we've waited for something from someone and that person hasn't had us
+Corresponded.
 
-Pensemos que talvez exista outro ser pensando o mesmo a nosso respeito. Assim,
-ofereçamos novas chances, sabendo que as pessoas são diferentes, que não sentem
-como nós, que não pensam com nosso pensamento.
+Let us think that there may be another being thinking the same about us. Like this
+offer new chances, knowing that people are different, that they do not feel
+like us, who don't think with our thoughts.
 
-Talvez hoje... nosso corpo tenha nos dado algum sinal de desequilíbrio através
-de dor ou desconforto.
+Maybe today... our body has given us some sign of imbalance through
+pain or discomfort.
 
-Antes de qualquer atitude imediata de busca por medicação que tire o sofrimento
-ou resolva a questão rapidamente, reflitamos sobre as causas da instabilidade
-física, pois elas sempre estarão na alma.
+Before any immediate attitude of searching for medication that takes away suffering
+or resolve the issue quickly, let us reflect on the causes of instability
+physical, for they will always be in the soul.
 
-Não adiantará resolver o efeito se a causa persistir. Atendamos a um e a outra.
+It will be no use resolving the effect if the cause persists. Let's pick up one and the other.
 
-Talvez hoje... alguém vá nos testar a paciência, a compreensão ou a
-indulgência. Não nos coloquemos em posição de vítima.
+Maybe today... someone will test us patience, understanding or
+Indulgence. Let's not put ourselves in a victim position.
 
-Imaginemo-nos como o aluno na escola, que deve estar sempre preparado para as
-provas surpresa, aquelas que os professores nunca avisam que farão.
+Let us imagine ourselves as the student at school, who should always be prepared for the
+surprise evidence, those teachers never warn will do.
 
-Talvez hoje... apareça algum coração amigo impondo-nos quadros de pessimismo e
-perturbação, relativamente às dificuldades do mundo.
+Maybe today... some friend heart appears imposing us pictures of pessimism and
+disturbance, in relation to the difficulties of the world.
 
-Embora nos compadecendo da criatura que se entrega ao derrotismo e ao desânimo,
-poderemos ser aquele que aponta a renovação para o bem que a Sabedoria Divina
-promove em toda parte.
+Although we compress us from the creature that gives itself to defeatism and discouragement,
+we can be one who points to renewal for good that Divine Wisdom
+promotes everywhere.
 
-Talvez hoje... notícias menos agradáveis venham nos provocar inquietações e
-traçar-nos problemas. No entanto, conservemos a própria paz e não nos
-desliguemos das nossas orações e pensamentos de otimismo e esperança.
+Maybe today... less pleasant news may cause us unrest and
+we're in trouble. However, we retain our own peace and not
+let us disconnect from our prayers and thoughts of optimism and hope.
 
-Talvez hoje... tudo pareça contra nós. Mas prossigamos compreendendo e agindo,
-em apoio do bem, guardando a certeza de que Deus está conosco e de que amanhã
-será outro dia.
+Maybe today... everything seems against us. But let's continue to understand and act,
+in support of good, keeping the certainty that God is with us and that tomorrow
+it's going to be another day.
 
                                    *   *   *
 
-Este é o mundo das aflições. Hospital–escola, o planeta Terra propicia a todos
-os seus habitantes a oportunidade do tratamento, da cura e da educação.
+This is the world of afflictions. Hospital-school, planet Earth provides everyone
+its inhabitants the opportunity for treatment, healing and education.
 
-Interroguemos friamente nossas consciências todos os que somos feridos no
-coração pelas vicissitudes e decepções da vida.
+We coldly question our consciences all who are hurt in the
+heart by the vicissitudes and disappointments of life.
 
-Retornemos, passo a passo, à origem dos males que nos torturam e verifiquemos
-se, as mais das vezes, não poderemos dizer: se eu houvesse feito, ou deixado de
-fazer tal coisa, não estaria em semelhante condição.
+Let us return, step by step, to the origin of the evils that torture us and verify
+if, more often, we cannot say: if I had done, or left of
+do such a thing, would not be in such a condition.
 
-A quem, então, temos de responsabilizar por todas essas aflições, senão a nós
-mesmos?
+To whom, then, we have to hold accountable for all these afflictions, if not to us
+Same?
 
-Somos nós, pois, em grande número de casos, os causadores de nossos próprios
-infortúnios.
+It is therefore, in a large number of cases, the cause of our own
+Misfortunes.
 
-Mas, em vez de reconhecermos isso, achamos mais simples, menos humilhante para
-a nossa vaidade acusar a sorte, a Providência, a má fortuna, a má estrela, 
-quando a má estrela é apenas o nosso desleixo.
+But instead of recognizing this, we find it simpler, less humiliating to
+our vanity accuses luck, Providence, bad fortune, bad star, 
+when the bad star is just our slouch.
 
 # Source
 Redação do Momento Espírita, com base no cap. V, item 4,

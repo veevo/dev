@@ -14,111 +14,111 @@ topics:
 - prayer
 ---
 
-O ser humano nunca sentiu tanta necessidade de encontrar paz íntima, como nos
-dias atuais.
+The human being has never felt so much need to find intimate peace, as in the
+present days.
 
-Na tentativa de suprir essa necessidade, as livrarias estão abarrotadas de
-livros de autoajuda.
+In an attempt to meet this need, bookstores are crammed with
+self-help books.
 
-Existe a procura, oferece-se o produto.
+There is demand, the product is offered.
 
-Embora seja nobre a intenção de muitos escritores, não se pode dizer que todos
-têm como objetivo oferecer ajuda a quem dela necessita.
+Although the intention of many writers is noble, it cannot be said that all
+are intended to offer help to those who need it.
 
-O que boa parte desses autores visa é o lucro fácil, à custa das carências das
-criaturas.
+What most of these authors aim for is easy profit, at the expense of the needs of
+Creatures.
 
-No entanto, há um roteiro infalível para a felicidade, à disposição de quem
-queira segui-lo.
+However, there is a foolproof roadmap for happiness, available to those who
+please follow him.
 
-Trata-se de um código, uma regra de proceder que abrange todas as
-circunstâncias da vida privada e da vida pública, o princípio básico de todas
-as relações sociais que se fundam na mais rigorosa justiça.
+This is a code, a rule of proceeding spanning all
+circumstances of private life and public life, the basic principle of all
+social relations that are based on the strictest justice.
 
-Mas, que roteiro infalível é esse, afinal?
+But what foolproof script is that, anyway?
 
-Está ao alcance de todos?
+Are you within everyone's reach?
 
-Poderá ser entendido e seguido por toda gente?
+Can it be understood and followed by everyone?
 
-Podemos afirmar que esse roteiro infalível está ao alcance de todos e pode ser
-entendido e seguido por todos.
+We can say that this foolproof roadmap is within everyone's reach and can be
+understood and followed by all.
 
-Trata-se da Boa Nova, das boas notícias trazidas pelo Mestre mais sábio que a
-Terra conheceu.
+This is the Good News, the good news brought by the Master wiser than the
+Terra knew.
 
-Esse excelente código de ética e moral. que abrange todas as circunstâncias da
-vida humana e traz os princípios básicos que podem nortear todas as relações
-sociais, está fundamentado na mais pura justiça.
+This excellent code of ethics and morals. covering all the circumstances of the
+human life and brings the basic principles that can guide all relationships
+is based on the purest justice.
 
-Esse compêndio de sabedoria é conhecido como  Evangelho de Jesus.
+This compendium of wisdom is known as the Gospel of Jesus.
 
-Incontestavelmente, é um roteiro infalível para se alcançar a felicidade.
+Unquestionably, it is a foolproof script to achieve happiness.
 
-Mas, se o Evangelho está disponível há mais de dois milênios, por que a
-felicidade ainda não é uma realidade na Terra?
+But if the Gospel has been available for more than two millennia, why
+isn't happiness still a reality on Earth?
 
-O que ocorre é que toda a gente admira a moral cristã; todos lhe proclamam a
-sublimidade e a necessidade; muitos, porém, assim se pronunciam por fé,
-confiados no que ouviram dizer, ou baseados em certas máximas que se tornaram
-provérbios populares.
+What happens is that everyone admires Christian morals; everyone proclaims to you the
+sublimity and necessity; many, however, speak out of faith,
+entrusted with what they have heard, or based on certain maxims that have become
+popular proverbs.
 
-Poucos, no entanto, a conhecem a fundo e menos ainda são os que a compreendem e
-sabem deduzir suas consequências.
+Few, however, know her thoroughly and even less are those who understand it and
+know how to deduce their consequences.
 
-A causa disso está na dificuldade de entendimento que o Evangelho apresenta
-para o maior número dos seus leitores.
+The cause of this lies in the difficulty of understanding that the Gospel presents
+for the largest number of its readers.
 
-A forma alegórica e o intencional misticismo da linguagem fazem que a maioria o
-leia por desencargo de consciência e por dever.
+The allegorical form and intentional mysticism of language make most
+read by disposition of conscience and duty.
 
-Todavia, não percebem os preceitos morais, disseminados aqui e ali,
-intercalados na massa das narrativas. Impossível, então, compreender o conjunto
-e tomá-lo para objeto de leitura e meditações especiais.
+However, they do not perceive the moral precepts, disseminated here and there,
+interspersed in the mass of narratives. It is impossible, then, to understand the whole
+and take it for object reading and special meditations.
 
-No entanto, aqueles que têm olhos de ver percebem que toda a moral de Jesus se
-resume na caridade e na humildade, isto é, nas duas virtudes contrárias ao
-egoísmo e ao orgulho.
+However, those who have eyes of seeing perceive that all of Jesus' morals
+sums up in charity and humility, that is, in the two virtues contrary to the
+selfishness and pride.
 
-Em todos os Seus ensinos, Ele aponta essas duas virtudes como sendo as que
-conduzem à eterna felicidade: Bem-aventurados, disse, os pobres de espírito,
-isto é, os humildes, porque deles é o reino dos céus.
+In all His teachings, He points to these two virtues as the ones that
+lead to eternal happiness: Blessed, said, the poor of spirit,
+that is, the humble, because of them is the kingdom of heaven.
 
-Bem-aventurados os que têm puro o coração; bem-aventurados os que são brandos e
-pacíficos; bem-aventurados os que são misericordiosos; amai o vosso próximo
-como a vós mesmos; fazei aos outros o que quereríeis vos fizessem.
+Blessed are those who have pure hearts; blessed those who are bland and
+peaceful; blessed those who are merciful; love your next
+like yourselves; I will do to others what you would want to do to you.
 
-Amai os vossos inimigos; perdoai as ofensas, se quiserdes ser perdoados;
-praticai o bem sem ostentação; julgai-vos a vós mesmos, antes de julgardes os
-outros.
+Love your enemies; forgive the offenses if you want to be forgiven;
+practice good without ostentation; judge yourselves before judging the
+Other.
 
-Humildade e caridade, eis o que não cessa de recomendar e o de que dá, Ele
-próprio, o exemplo. Orgulho e egoísmo, eis o que não se cansa de combater.
+Humility and charity, this is what it never ceases to recommend and that which gives, He
+example. Pride and selfishness, here's what you don't get tired of fighting.
 
-E Jesus não se limita a recomendar a caridade; põe-na claramente e em termos
-explícitos como condição absoluta da felicidade futura.
+And Jesus is not limited to recommending charity; puts it clearly and in terms
+explicit as an absolute condition of future happiness.
 
-Eis aí o roteiro infalível. Mas só para quem deseja, sinceramente, investir na
-sua felicidade.
+Here's the foolproof script. But only for those who sincerely want to invest in
+your happiness.
 
-O próprio Cristo colocou a livre vontade como condição para alcançar esse
-objetivo, quando disse: Quem quiser vir após mim, tome a sua cruz, negue-se a
-si mesmo, e siga-me.
+Christ himself has placed his own free will as a condition for achieving this
+goal, when he said: Whoever wants to come after me, take his cross, denied the
+himself, and follow me.
 
                                    *   *   *
 
-Existe um livro intitulado  O Evangelho segundo o Espiritismo.
+There is a book entitled The Gospel according to Spiritism.
 
-Foi lançado em abril de 1864, em Paris, por Allan Kardec, Codificador da
-Doutrina Espírita e é o livro espírita mais vendido no Brasil.
+It was released in April 1864 in Paris by Allan Kardec, Encoder of the
+Spiritist Doctrine is the best-selling spiritist book in Brazil.
 
-Esse livro traz comentários dos Espíritos superiores sobre vários ensinos e
-parábolas de Jesus, de forma simples e de fácil entendimento.
+This book brings comments from the higher spirits about various teachings and
+parables of Jesus, in a simple way and easily understood.
 
-Eis uma boa razão para travar conhecimento com esse roteiro infalível de
-felicidade, conhecido como Evangelho de Jesus.
+This is a good reason to be aware of this infallible roadmap of
+happiness, known as the Gospel of Jesus.
 
- 
+
 ## Source
 Redação do Momento Espírita, com base no item 3, do cap. XV,
 do livro O Evangelho segundo o Espiritismo, de Allan Kardec, ed. Feb.

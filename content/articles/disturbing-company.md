@@ -12,74 +12,74 @@ topics:
 - respect
 ---
 
- 
-Nem sempre estamos bem acompanhados, e uma dessas companhias perturbadoras é a
-que nos faz infelizes ao perceber a felicidade do outro.
 
-A inveja não está na simples constatação do triunfo alheio. Ela se apresenta
-quando essa constatação nos faz mal, produz em nós sentimentos negativos de
-revolta, de indignação.
+We are not always well accompanied, and one of these disturbing companies is the
+that makes us unhappy to realize the happiness of the other.
 
-Essa filha do orgulho instala-se em nossa alma e nos leva aos precipícios
-morais do ódio sem razão.
+Envy is not in the simple realization of the triumph of others. She introduces herself
+when this finding harms us, produces in us negative feelings of
+revolt, of indignation.
 
-Muito mais fácil do que buscar nossa felicidade, nossas próprias conquistas é
-criticar, questionar, destruir a dos outros.
+This daughter of pride settles in our soul and takes us to the precipices
+morals of hatred for no reason.
 
-A inveja é preguiça moral, é acomodação do Espírito que ainda não está desperto
-e disposto a empreender a necessária luta pelo crescimento.
+Much easier than seeking our happiness, our own achievements are
+criticize, question, destroy that of others.
 
-Ao invés de se empenhar na autovalorização, o paciente da inveja lamenta o
-triunfo alheio e não luta pelo seu. Apela, muitas vezes, para a intriga e a
-maledicência, fica no aguardo do insucesso do suposto adversário,
-perseguindo-o, buscando satisfazer seu prazer mórbido.
+Envy is moral laziness, it is accommodation of the Spirit that is not yet unclose
+and willing to undertake the necessary fight for growth.
 
-Egocêntrico, não saiu da infância psicológica e pretende ser o único centro da
-atenção, credor de todos os cultos e referências.
+Instead of engaging in self-valorization, the patient of envy regrets the
+triumph of others and does not fight for his. It often calls for intrigue and
+malevolence, is awaiting the failure of the alleged adversary,
+chasing him, seeking to satisfy his morbid pleasure.
 
-Insidiosa, a inveja é resultado da indisciplina mental e moral, que não
-considera a vida como patrimônio divino para todos.
+Egocentric, did not leave psychological childhood and intends to be the only center of
+attention, creditor of all cults and references.
 
-Trabalha, por inveja, para competir, sobressair, destacar-se. Não tem ideal,
-nem respeito pelas pessoas e pelas suas árduas conquistas.
+Insidious, envy is the result of mental and moral indiscipline, which does not
+considers life as a divine heritage for all.
 
-Esse sentir doentio descarrega correntes mentais prejudiciais dirigidas às suas
-vítimas, que somente as alcançam se estiverem em sintonia. Porém, os danos
-ocorrem em quem gera esse sentir, perturbando-lhe a atividade, o comportamento.
+He works, out of envy, to compete, stand out, stand out.
+respect for people and their arduous achievements.
 
-Assim, o invejoso sempre sairá perdendo. Não apenas não resolverá seu problema
-- se é que ele existe - como sempre aumentará sua frustração, sua infelicidade.
+This sick feeling discharges harmful mental currents directed at its
+victims, who only catch up with them if they are in tune. However, the damage
+occur in those who generate this feeling, disturbing their activity, behavior.
 
-*   *   *
-
-A terapia para a inveja consiste, inicialmente, na cuidadosa reflexão do eu
-profundo em torno da sua destinação grandiosa, no futuro.
-
-Consiste em avaliar os recursos de que dispõe e considerar que a sua realidade
-é única, individual, não podendo ser medida nem comparada com outras em razão
-do processo da evolução de cada um.
-
-O cultivo da alegria, pelo que é e dos recursos para alcançar novos patamares,
-enseja o despertar do amor a si mesmo, ao próximo e a Deus.
-
-Esse despertar facultará à criatura a perfeita compreensão dos mecanismos da
-vida e as diferenças entre as pessoas, formando um todo holístico na grande
-unidade.
+So the envious will always lose. Not only will it not solve your problem
+- if it exists - as it will always increase your frustration, your unhappiness.
 
 *   *   *
 
-Fazei vossa felicidade e vosso verdadeiro tesouro sobre a Terra em obras de
-caridade e de submissão, as únicas que devem contribuir para serdes admitidos
-no seio de Deus.
+The therapy for envy consists initially of the careful reflection of the
+around its grand igrandiose destination in the future.
 
-Essas obras do bem farão vossa alegria e vossa felicidade eternas.
+It is to evaluate the resources available to you and to consider that your reality
+is unique, individual, and cannot be measured or compared with others on grounds of
+the process of the evolution of each one.
 
-A inveja é uma das mais feias e das mais tristes misérias do vosso globo.
+The cultivation of joy, for what it is and the resources to reach new heights,
+is the awakening of love to oneself, to others and to God.
 
-A caridade e a constante emissão da fé farão desaparecer todos esses males, à
-medida que os homens de boa vontade se multiplicarem.
+This awakening will give the creature the perfect understanding of the mechanisms of the
+life and differences between people, forming a holistic whole in the great
+Unit.
 
- 
+*   *   *
+
+Make your happiness and true treasure upon the earth in works of
+charity and submission, the only ones that must contribute to the admitted beings
+within God.
+
+These works of good will make your joy and your happiness eternal.
+
+Envy is one of the ugliest and saddest miseries of your globe.
+
+Charity and the constant emission of faith will make all these evils disappear,
+as men of good will multiply.
+
+
 
 ## Source
 Redação do Momento Espírita com base em texto da Revista Espírita, de Allan

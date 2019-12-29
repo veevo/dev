@@ -14,80 +14,80 @@ topics:
 - respect
 ---
 
-Paciência antes da crise
+Patience before the crisis
 
-O homem moderno tem urgente necessidade de cultivar a paciência, na condição de
-medicamento preventivo contra inúmeros males que o espreitam.
+Modern man urgently needs to cultivate patience, in the condition of
+preventive medicine against numerous evils that lurk.
 
-De certo modo, vitimado pelas circunstâncias da vida ativa em que se encontra,
-sofre desgaste contínuo que o leva, não raro, a estados neuróticos e agressivos
-ou a depressões que o aniquilam.
+In a way, victimized by the circumstances of the active life in which it is,
+undergoes continuous wear that often leads you to neurotic and aggressive states
+or the depressions that annihilate him.
 
-A paciência é-lhe reserva de ânimo para enfrentar as situações mais difíceis
-sem perder o equilíbrio.
+Patience is a reserve of courage to face the most difficult situations
+without losing balance.
 
-A paciência é uma virtude que deve ser cultivada e cuja força somente pode ser
-medida, quando submetida ao teste que a desafia, em forma de problema.
+Patience is a virtue that must be cultivated and whose strength can only be
+when submitted to the test that challenges it in the form of a problem.
 
-O atropelo do trânsito; a agitação geral; a competição desenfreada; o
-desrespeito aos espaços individuais; a compressão das horas...
+The traffic hitman; the general agitation; unbridled competition; The
+disrespect to individual spaces; the compression of the hours...
 
-Além disso, as limitações financeiras; os conflitos emocionais; as frustrações
-e outros fatores decorrentes do modo de vida dito moderno e do relacionamento
-social, levam o homem a desequilíbrios que a paciência pode evitar.
+In addition, financial limitations; emotional conflicts; the frustrations
+and other factors arising from the modern said way of life and the relationship
+social, lead man to imbalances that patience can avoid.
 
-Exercitando-a nas pequenas ocorrências, sem permitir-se a irritação ou o
-agastamento, adquirirá força e enfrentará com êxito as situações mais graves.
+Exercising it in small occurrences, without allowing irritation or
+will acquire strength and successfully face the most serious situations.
 
-Todas as criaturas em trânsito pelo mundo são vítimas de ciladas intencionais
-ou não.
+All creatures in transit around the world are victims of intentional traps
+or not.
 
-Manter-se atento e saber enfrentá-las com cuidado é a única forma de superá-las
-com êxito.
-
-                                   *   *   *
-
-Se te sentes provocado pelos insultos que te dirigem, atua com serenidade e
-segue adiante.
-
-Se erraste em alguma situação que te surpreendeu, retorna ao ponto inicial e
-corrige o equívoco.
-
-Se te sentes injustiçado, reexamina o motivo e disputa a honra de não
-desanimar.
-
-Se a agressão de alguma forma te ofende, guarda a calma e a verás
-desmoronar-se.
-
-A convivência com as criaturas é o grande desafio da evolução porque resulta,
-de um lado, da situação moral deles, e de outro, do seu estado emocional.
-
-O amor ao próximo, no entanto, só é legítimo quando não se desgasta nem se
-converte em motivo de censura ou queixa, em relação às pessoas com quem se
-convive.
-
-É fácil amar e respeitar aqueles que vivem fisicamente distantes.
-
-O verdadeiro amor é o que se relaciona sempre bem com as demais criaturas.
+Keeping an eye out and knowing how to face them carefully is the only way to overcome them
+successfully.
 
                                    *   *   *
 
-Você já se propôs a ser mais paciente? Já colocou isso como meta na vida,
-alguma vez?
+If you feel provoked by the insults that drive you, act serenely and
+move on.
 
-É importante ter metas claras. É importante dizer a si mesmo: Estou mais
-paciente agora. Não vou deixar que isto ou aquilo me abale com facilidade.
+If you missed in a situation that surprised you, return to the threshold and
+corrects the misconception.
 
-Começamos assim um processo de autopreservação, de automonitoramento e, toda
-vez que uma situação crítica se apresentar, poderemos voltar a dizer: Não vou
-deixar que isto me tire do sério.
+If you feel wronged, re-examine the motive and dispute the honor of not
+Discourage.
 
-Cada um poderá desenvolver seu método, sua forma de atuar, porém, a essência
-deste trabalho está em começar já, imediatamente.
+If the aggression somehow offends you, keep the calm and you'll see it
+fall apart.
 
-Quem antes inicia, antes colhe os benefícios.
+Living with creatures is the great challenge of evolution because it results,
+on the one hand, their moral situation, and on the other, of their emotional state.
 
- 
+Love for others, however, is only legitimate when it does not wear out or
+becomes a cause of censorship or complaint, in relation to the people with whom they are
+Lives.
+
+It is easy to love and respect those who live physically distant.
+
+True love is what always relates well to other creatures.
+
+                                   *   *   *
+
+Have you ever set out to be more patient? You've put that as a goal in life,
+Ever?
+
+It's important to have clear goals. It is important to say to yourself: I'm more
+patient now. I'm not going to let this or that shake me easily.
+
+Thus we begin a process of self-preservation, self-monitoring and, all
+once a critical situation presents itself, we can say again: I will not
+let this take me seriously.
+
+Each one will be able to develop his method, his way of acting, however, the essence of
+this work is on to begin right now, immediately.
+
+Who first starts, first reaping the benefits.
+
+
 ## Source
 Redação do Momento Espírita, com base no cap. 10,
 do livro Alegria de viver, pelo Espírito Joanna de Ângelis,

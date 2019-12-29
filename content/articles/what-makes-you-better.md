@@ -17,75 +17,75 @@ topics:
 ---
 
 
-Narra-se que Leonardo Boff, num intervalo de uma conversa de mesa-redonda sobre
-religião e paz entre os povos, perguntou ao Dalai Lama:
+It is narrated that Leonardo Boff, in an interval of a roundtable conversation about
+religion and peace among peoples, asked the Dalai Lama:
 
-Santidade, qual a melhor religião?
+Holiness, what is the best religion?
 
-O teólogo confessa que esperava que ele dissesse: É o budismo tibetano. Ou São
-as religiões orientais, muito mais antigas que o Cristianismo.
+The theologian confesses that he expected him to say: It is Tibetan Buddhism. Or Are
+eastern religions, much older than Christianity.
 
-O Dalai Lama fez uma pequena pausa, deu um sorriso, olhou seu inquiridor bem
-nos olhos, desconcertando-o um pouco, como se soubesse da certa dose de malícia
-na pergunta, e afirmou:
+The Dalai Lama paused a short break, smiled, looked his inquirer well
+in the eyes, disconcerting him a little, as if he knew of the certain dose of malice
+in the question, and stated:
 
-A melhor religião é a que mais te aproxima de Deus. É aquela que te faz melhor.
+The best religion is the one that brings you closer to God. It's the one that makes you better.
 
-Para quem sabe sair da perplexidade diante de tão sábia resposta, Boff voltou a
-perguntar: O que me faz melhor?
+For those who know how to come out of perplexity before such wise response, Boff returned to
+ask: What makes me better?
 
-Aquilo que te faz mais compassivo; aquilo que te faz mais sensível, mais
-desapegado, mais amoroso, mais humanitário, mais responsável...
+What makes you more compassionate; what makes you more sensitive, more
+detached, more loving, more humanitarian, more responsible...
 
-A religião que conseguir fazer isso de ti é a melhor religião...
+The religion that can do that about you is the best religion...
 
-Boff confessa que calou, maravilhado, e até os dias de hoje ainda rumina a
-resposta recebida, sábia e irrefutável.
+Boff confesses that he has silenced, amazed, and to this day still rumina to
+response received, wise and irrefutable.
 
-O Dalai Lama foi ao cerne da questão: a religião deve nos ser útil para a vida,
-como promotora de melhorias em nossa alma.
+The Dalai Lama went to the heart of the question: religion must be useful to us for life,
+as a promoter of improvements in our soul.
 
-Não haverá religião mais certa, mais errada, mas sim aquela que é mais adequada
-para as necessidades deste ou daquele povo, desta ou daquela pessoa.
+There will be no more certain religion, more wrong, but the one that is most appropriate
+for the needs of this or that people, this or that person.
 
-Se ela estiver promovendo o Espírito, impulsionando-o à evolução moral e
-estabelecendo este laço fundamental da criatura com o Criador –independente do
-nome que este leve ela será uma ótima religião.
+If it is promoting the Spirit, propelling it to moral evolution and
+establishing this fundamental bond of the creature with the Creator –regardless of the
+name that this takes it will be a great religion.
 
-Ao contrário, se ela prega o sectarismo, a intolerância e a violência, é óbvio
-que ainda não cumpre adequadamente sua missão como religião.
+On the contrary, if it preaches sectarianism, intolerance and violence, it is obvious
+that does not yet adequately fulfill its mission as a religion.
 
-O eminente Codificador do Espiritismo, Allan Kardec, quando analisou esta
-questão, recebeu a seguinte resposta dos Espíritos de luz:
+The eminent Spiritism Encoder, Allan Kardec, when he analyzed this
+question, received the following response from the Spirits of light:
 
-Toda crença é respeitável quando sincera, e conduz à prática do bem. As crenças
-censuráveis são as que conduzem ao mal.
+Every belief is respectable when sincere, and leads to the practice of good. Beliefs
+objectionable are those that lead to evil.
 
-Dessa forma, fica claro mais uma vez que a religião, por buscar nos aproximar
-de Deus, deve, da mesma forma, nos aproximar do bem, e da sua prática
-cotidiana.
+Thus, it is clear once again that religion, by seeking to approach us
+of God, must likewise bring us closer to good, and of his practice
+Daily.
 
-Nenhum ritual, sacrifício, nenhuma prática externa será proveitosa, se não nos
-fizer melhores.
+No ritual, sacrifice, no external practice will be fruitful if we do not
+do better.
 
-Deveríamos empreender nossos esforços na vida para nos tornarmos melhores.
+We should make our efforts in life to become better.
 
-Investir em tudo aquilo que nos faz mais compreensivos, mais sensíveis, mais
-amorosos, mais responsáveis.
+Investing in everything that makes us more understanding, more sensitive, more
+more responsible.
 
-A melhor doutrina é a que melhor satisfaz ao coração e à razão, e que mais
-elementos tem para conduzir o homem ao bem.
+The best doctrine is the one that best satisfies the heart and reason, and which most
+elements have to lead man to good.
 
                                    *   *   *
 
-Gandhi afirmava que uma vida sem religião é como um barco sem leme.
+Gandhi claimed that a life without religion is like a boat without a rudder.
 
-Certamente todos precisamos de um instrumento que nos dirija. Assim, procuremos
-aquela religião que nos fale à alma, que nos console e que nos promova como
-Espíritos imortais que somos.
+We certainly all need an instrument that addresses us. So let's look
+that religion that speaks to our souls, which consoles us and promotes us as
+Immortal spirits we are.
 
-Transmitamos às nossas crianças, desde cedo, esta importância de manter contato
-com o Criador, e de praticar o bem, acima de tudo.
+We transmit to our children from an early age this importance of keeping in touch
+with the Creator, and to practice good, above all.
 
 ## Source
 Redação do Momento Espírita, com base nos itens 302 e 838, de

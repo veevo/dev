@@ -16,70 +16,70 @@ topics:
 - child
 ---
 
-Está se tornando comum as pessoas reagirem com violência ao mal que lhes
-acontece, ou àquilo que está em desacordo com os seus desejos.
+It is becoming common for people to react with violence to the evil they
+happens, or to what is at odds with your wishes.
 
-Exatamente como a criança indisciplinada reage, gritando, jogando coisas quando
-suas vontades não são atendidas, as pessoas estão se permitindo agredir,
-revidar.
+Just like the unruly child reacts, screaming, throwing things when
+their wills are not met, people are allowing themselves to assault,
+Retaliate.
 
-Quando o trânsito está lento há os que xingam a administração pública que não
-planeja vias melhores para o escoamento rápido dos veículos.
+When traffic is slow there are those who curse public administration who do not
+plans better routes for rapid disposal of vehicles.
 
-Se a loja informa que o artigo em oferta acabou, há os que se acham no direito
-de agredir os funcionários, acusando-os de propaganda enganosa.
+If the store reports that the item on offer is over, there are those who are entitled
+to assault employees, accusing them of misleading propaganda.
 
-Se o caixa se engana no troco, logo se afirma que ele é um indivíduo desonesto,
-desejando engordar o próprio salário.
+If the box is wrong in return, it is soon stated that he is a dishonest individual,
+desiring to fatten his own salary.
 
-Se a empregada pede para sair um pouco mais cedo, dizendo que deve levar o
-filho ao médico, logo alguém diz que ela não deseja trabalhar, que está
-inventando mentiras.
+If the maid asks to leave a little earlier, saying she should take the
+son to the doctor, soon someone says that she does not wish to work, that is
+making up lies.
 
-Se alguém esbarra em outra pessoa na rua, de imediato gritam alguns que o
-sujeito é mal educado, malcriado. Um abuso!
+If someone bumps into someone else on the street, they immediately shout some that the
+subject is rude, rude. An abuse!
 
-Em síntese, estamos vivendo uma época de muita agressividade. E nos queixamos
-da violência que toma conta das ruas, sem atentarmos que nós mesmos, muitas
-vezes, também agimos com violência.
+In short, we are living a time of great aggression. And we complained
+of the violence that takes over the streets, without paying attention that ourselves, many
+times, we also act with violence.
 
-Talvez por isso, um grande militar, desejando se espiritualizar, escolheu um
-sábio religioso e lhe perguntou:
+Perhaps for this time, a great military man, desiring himself spiritualize, chose a
+religious sage and asked him:
 
-Onde começa o inferno?
+Where does hell start?
 
-O pensador experiente meditou e falou: Por que um homem sem escrúpulos deseja
-saber onde começa o inferno? Cheio de armas destruidoras de vida, acerca-se de
-mim para perguntas tolas. O que espera que lhe diga, eu, que sou um homem de
-paz e justiça?
+The experienced thinker meditated and said: Why an unscrupulous man desires
+know where hell begins? Full of life-destroying weapons, it comes to
+me to silly questions. What do you expect me to tell you, I, that I am a man of
+peace and justice?
 
-Antes que continuasse, o militar o interrompeu, levantando a espada e exigindo,
-cheio de raiva, que o sábio o respeitasse.
+Before he continued, the military interrupted him, lifting his sword and demanding,
+full of anger, may the wise respect him.
 
-Sem qualquer receio, o homem velho esclareceu:
+Without any fear, the old man clarified:
 
-Aqui começa o inferno: na raiva descontrolada.
+Here begins hell: in uncontrolled anger.
 
-O oficial compreendeu e, num gesto rápido, tornou a colocar na bainha a espada,
-pedindo desculpas.
+The officer understood and, in a quick gesture, again put the sword on the hem,
+Apologizing.
 
-O sábio então o esclareceu: Homem, neste seu gesto começa o céu.
+The wise then enlightened him: Man, in this gesture his begins heaven.
 
                                    *   *   *
 
-A raiva pode ser comparada a uma faísca portadora do poder de atear grandes
-incêndios. Basta uma palavra mal pensada, um gesto imprevisto para a gerar.
+Anger can be compared to a power-carrying spark of large triggering
+Fires. Just a bad ly thought out word, an unforeseen gesture to generate it.
 
-Quando solta, desencadeia conflitos inúteis e destruidores.
+When released, it triggers useless and destructive conflicts.
 
-O homem que alimenta a raiva e se deixa dominar por ela, se torna bruto e
-violento.
+The man who feeds anger and lets himself dominate for it, becomes crude and
+Violent.
 
-Os antídotos para a raiva são a humildade que leva o indivíduo a reconhecer a
-própria fragilidade; a paciência, que lhe permite acompanhar o desenvolvimento
-da questão; a tolerância que entende a dificuldade alheia; enfim, o amor que é
-abençoada luz em todas as circunstâncias.
- 
+The antidotes to anger are humility that leads the individual to recognize the
+fragility itself; patience, which allows it to monitor the development of
+of the question; tolerance that understands the difficulty of those of those of the world; at last, the love that is
+blessed light in all circumstances.
+
 
 ## Source
 Redação do Momento Espírita,com base no cap. 6, do livro Perfis

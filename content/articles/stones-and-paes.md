@@ -12,85 +12,85 @@ topics:
 - family
 ---
 
-Conta-se que Frei Bartolomeu dos Mártires viveu para servir. Era português, da
-cidade de Braga.
+It is said that Friar Bartholomew of the Martyrs lived to serve. It was Portuguese, from
+city of Braga.
 
-Certa feita, na comunidade em que oferecia do seu trabalho, resolveram
-construir uma catedral monumental. Um templo de grandes proporções, que pudesse
-abrigar multidões.
+A certain time, in the community in which he offered his work, resolved
+build a monumental cathedral. A temple of great proportions, which could
+shelter crowds.
 
-Para isso, os nobres se reuniram e acertaram de, anualmente, contribuírem com
-elevadas somas.
+To this end, the nobles gathered and agreed to contribute annually to
+high sums.
 
-Começou a construção. Ergueram-se as colunas, as paredes, chegou-se ao teto.
+Construction started. The columns, the walls, the walls, reached the ceiling.
 
-Foi então que Frei Bartolomeu percebeu que uma crise havia chegado ao país,
-atingindo o povo. Os menos favorecidos lutavam contra a fome, a miséria, as
-doenças.
+It was then that Friar Bartholomew realized that a crisis had reached the country,
+reaching the people. The less fortunate fought against hunger, misery,
+Diseases.
 
-Como chefe daquela comunidade religiosa, ele tinha à sua disposição todo aquele
-dinheiro arrecadado, cuja administração lhe competia. Especialmente, é claro,
-para a construção da catedral.
+As head of that religious community, he had at his disposal all that
+money raised, whose administration was competing with it. Especially, of course,
+for the construction of the cathedral.
 
-Naquele ano, ele deixou a catedral parada. Ela tinha teto, pensou. Podia
-esperar.
+That year, he left the cathedral standing still. She had a roof, she thought. Could
+Wait.
 
-Os nobres, no entanto, prosseguiram a entregar elevadas somas. No segundo ano,
-a construção continuou parada. Também no terceiro, no quarto, no quinto.
+The nobles, however, continued to deliver high sums. In the second year,
+construction continued to stop. Also in the third, in the fourth, in the fifth.
 
-Dez anos depois, a catedral estava do mesmo jeito. Nada de ficar pronta.
+Ten years later, the cathedral was the same way. No getting ready.
 
-Embora confiassem em Frei Bartolomeu, os nobres se reuniram, organizaram uma
-comissão e seis deles foram conversar com o Frei.
+Although they trusted Friar Bartholomew, the nobles gathered, organized a
+committee and six of them went to talk to Friar.
 
-Amigo de todos, ele os recebeu fraternalmente e os escutou. Por fim, respondeu:
+Friend of all, he received them fraternally and listened to them. Finally, he replied:
 
-De acordo com a minha contabilidade, há mais de duas mil famílias em
-necessidade. Como pai espiritual de todas elas, não posso permitir que meus
-filhos passem fome. Tudo tem sido gasto com a nossa própria gente.
+According to my accounting, there are more than 2,000 families in
+Need. As a spiritual father of all of them, I cannot allow my
+children starve. Everything has been spent on our own people.
 
-Um deles disse: Mas Frei, está certo que o senhor ajude essas criaturas.
-Poderia retirar uma pequena percentagem da soma que lhe entregamos.
+One of them said, But Friar, you're sure to help these creatures.
+I could take a small percentage of the sum we deliver.
 
-O velho Frei suspirou, ergueu os ombros, uniu as mãos e respondeu:
+The old Friar sighed, lifted his shoulders, joined his hands and replied:
 
-Os senhores me fazem uma proposta muito curiosa. Vejam bem. Lê-se no Evangelho
-que Jesus no deserto foi convidado a transformar pedras em pães.
+You make me a very curious offer. Take a good look. It reads in the Gospel
+that Jesus in the wilderness was invited to turn stones into breads.
 
-Os senhores, entretanto, estão me pedindo justamente o contrário: que eu
-transforme pães em pedras.
+You, however, are asking me precisely the opposite: that I
+turn bread into stones.
 
                                    *   *   *
 
-Tinha razão o pastor daquelas almas. A vida humana nos merece todo respeito.
+You were right for the pastor of those souls. Human life deserves us all respect.
 
-Em se falando sobre direito, o primeiro de toda criatura é o de viver.
+When talking about right, the first of every creature is to live.
 
-Portanto, alimentar corpos, prover as necessidades básicas dos nossos irmãos se
-constitui não em caridade mas em dever de irmão para com seu irmão.
+Therefore, feeding bodies, providing the basic needs of our brothers and sisters
+constitutes not in charity but in brother's duty to his brother.
 
                                    *   *   *
 
-Toda a moral de Jesus se resume na caridade e na humildade, isto é, nas duas
-virtudes contrárias ao egoísmo e ao orgulho.
+All of Jesus' morals is summarises in charity and humility, that is, in both
+virtues contrary to selfishness and pride.
 
-No que diz respeito à caridade, o Mestre de Nazaré não se limita a
-recomendá-la. Ele a coloca claramente como condição absoluta da felicidade:
+With regard to charity, the Master of Nazareth is not limited to
+recommend it. He clearly places it as an absolute condition of happiness:
 
-Vinde, benditos de meu pai, possuí por herança o reino que vos está preparado
-desde a fundação do mundo.
+Come, blessed of my father, possess by inheritance the kingdom that is prepared to you
+since the foundation of the world.
 
-Porque tive fome, e me destes de comer. Tive sede, e me destes de beber. Era
-estrangeiro, e me hospedastes.
+Because I was hungry, and you fed me to eat. I was thirsty, and you gave me to drink. Was
+foreign er, and you stayed me.
 
-Estava nu, e me vestistes. Adoeci, e me visitastes. Estive na prisão, e me
-fostes ver.
+I was naked, and you dressed me. I got hurt, and you visited me. I was in prison, and I was
+You went to see it.
 
-Em verdade vos digo que quando o fizestes a um desses meus pequeninos irmãos, a
-mim o fizestes.
+In fact I say unto you, when you did it to one of these little brothers of mine, the
+I did it myself.
 
-E sintetizando a lição, recomendou: Amai-vos uns aos outros. Praticai o bem sem
-ostentação. Fazei aos outros o que quereríeis que vos fizessem.
+And synthesizing the lesson, he recommended, Love each other. Practice good without
+Ostentation. I will do to others what you would want them to do to you.
 
 ## Source
 Redação do Momento Espírita, com transcrição do

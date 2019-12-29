@@ -12,78 +12,78 @@ topics:
 - child
 ---
 
-São alarmantes as notícias que chegam, diariamente, sobre os altos índices de
-mortes causadas pelas drogas, chamadas lícitas.
+There are alarming news that comes daily on the high rates of
+drug deaths, called lawful ones.
 
-Só no Brasil, as estatísticas mostram que cerca de oitenta mil pessoas morrem
-por ano, vitimadas por doenças relacionadas ao tabaco. Isso equivale a
-aproximadamente dez óbitos por hora.
+In Brazil alone, statistics show that about 80,000 people die
+victimized by tobacco-related diseases. This is equivalent to
+approximately ten deaths per hour.
 
-Outra droga que tem ceifado milhares de vidas é o álcool.
+Another drug that has claimed thousands of lives is alcohol.
 
-Face a tudo isso nós nos questionamos o que pode ser feito para deter ou, pelo
-menos, para diminuir essa trágica realidade.
+In the face of all this we wonder what can be done to stop or, by the
+less, to diminish this tragic reality.
 
-Todavia, antes de encetar qualquer campanha de erradicação desses males,
-precisamos localizar as suas nascentes.
+However, before initiating any campaign to eradicate these evils,
+we need to locate their springs.
 
-E para tanto é necessário que voltemos o olhar para dentro dos nossos lares.
+And for that, we need to turn our gaze into our homes.
 
-É de dentro de um lar que todos saímos. E é dentro do lar que recebemos as
-primeiras lições, de vida ou de morte.
+It's from inside a home we all left. And it is within the home that we receive the
+first lessons, life or death.
 
-Enquanto os pais não se conscientizarem de que são, a maioria das vezes, os
-responsáveis pelos hábitos infelizes dos seus filhos, não haverá campanha que
-resulte eficiente.
+As long as parents are not aware that they are most often
+responsible for the unhappy habits of their children, there will be no campaign that
+be efficient.
 
-Enquanto nós, pais, não deixarmos de jogar a culpa nos amigos, nas más
-companhias, nas indústrias de tabaco e de bebidas alcoólicas, não resolveremos
-o problema.
+As long as we parents do not stop blaming friends, in the bad
+companies, in the tobacco and alcohol industries, we will not solve
+the problem.
 
-Pesquisas mostram que grande parte dos adolescentes se iniciam nas chamadas
-drogas lícitas porque têm o exemplo dentro do próprio lar, levados pela
-curiosidade e provar o que os pais provam e aprovam.
+Research shows that most teens start on calls
+licit drugs because they have the example within their own home, taken by the
+curiosity and prove what parents prove and approve.
 
-Quantas vezes não observamos os filhos pequenos juntar o toco de cigarro que um
-dos pais joga no chão e levá-lo à boca tentando imitar os adultos?
+How many times do we not observe the small children joining the cigarette stump that a
+of the parents throws it on the floor and take it to the mouth trying to imitate the adults?
 
-A quem culpar, nesse caso?
+Who to blame in this case?
 
-À criança, que é imitadora por excelência, ou aos adultos, que sabem o que
-estão fazendo?
+To the child, who is a copycat par excellence, or to adults, who know what
+Are you doing it?
 
-Mais tarde, quando o filho já sabe falar e os pais tentam reprimi-lo, ele
-simplesmente responde: Se você faz, por que é que eu não posso?
+Later, when the son already knows how to speak and the parents try to repress him, he
+simply replies: If you do, why can't I?
 
-Nessa situação, os pais não têm autoridade moral para evitar que o filho fume
-ou beba, pois são lições vivas dos vícios.
+In this situation, parents do not have moral authority to prevent their child from smoking
+or drink, for they are living lessons from addictions.
 
-Todavia, há pais que não fumam nem bebem e os filhos, apesar disso, se iniciam
-nessas drogas.
+However, there are parents who do not smoke or drink and their children, despite this,
+in these drugs.
 
-Talvez seja porque percebem o vizinho ou os colegas que, por sua vez,
-exemplificam e despertam a curiosidade. Nesse caso, os pais podem e devem
-envidar esforços para esclarecer os filhos dos malefícios de tais hábitos,
-através do diálogo amigo e fraterno.
+Maybe it's because they perceive the neighbor or colleagues who, in turn,
+exemplify and arouse curiosity. In this case, parents may and should
+efforts to clarify the children of the harms of such habits,
+through friendly and fraternal dialogue.
 
-Devido aos alarmantes índices de desgraça que essas drogas lícitas têm
-proporcionado aos nossos corações, vale a pena meditarmos, com sinceridade,
-sobre a campanha de erradicação efetiva desses males, e iniciá-la desde agora,
-começando por nós mesmos.
+Due to the alarming rates of doom that these lawful drugs have
+provided to our hearts, it is worth meditating, sincerely,
+on the campaign of effective eradication of these evils, and to start it from now on,
+starting with ourselves.
 
                                    *   *   *
 
-Seu filho é um Espírito encarnado e, como tal, traz consigo hábitos adquiridos
-ao longo das existências.
+Your son is an incarnate Spirit and as such brings with him acquired habits
+throughout stocks.
 
-Hábitos felizes ou não, que você deverá perceber através do convívio e lutar
-por modificar os maus e fortalecer os bons. Isso é educação.
+Happy habits or not, which you should perceive through conviviality and fight
+by modifying the bad and strengthening the good. That's education.
 
-Não duvidemos! As Leis Divinas, que estão escritas em nossa consciência
-perguntarão: O que fizestes dos filhos confiados à vossa guarda?
+We don't doubt it! The Divine Laws, which are written in our consciousness
+ask, What have you done with your children entrusted to your guard?
 
-Preparemo-nos para responder o melhor: Fizemos tudo o que estava ao nosso
-alcance.
+Let us prepare to answer the best: We did everything that was to our
+Reach.
 
 ## Source
 Redação do Momento Espírita.

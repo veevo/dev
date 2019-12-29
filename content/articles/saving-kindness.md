@@ -20,73 +20,73 @@ topics:
 ---
 
 
-Quando você afasta do piso uma casca de fruta deixada pela negligência de
-alguém, não pratica apenas um ato de gentileza. Evita que algum desavisado
-escorregue, sofrendo tombo violento.
+When you move a fruit peel left by neglect of
+someone, does not practice only an act of kindness. Prevents any unsuspecting
+slip, suffering violent tumble.
 
-Ao ceder o lugar no transporte coletivo a um idoso, você não realiza um gesto
-de cortesia somente. Atende a um corpo cansado, poupando as energias de quem
-poderia ser seu avôou seu pai.
+By ceded the place in public transport to an elderly person, you do not make a gesture
+courtesy only. Meets a tired body, saving the energies of those who
+could be his grandfather or his father.
 
-Se você oferece auxílio na condução de um volume qualquer, poupando aquele que
-o carrega, não pratica unicamente uma delicadeza. Contribui fraternalmente para
-a alegria de alguém que, raras vezes, encontra ajuda.
+If you offer assistance in driving any volume, saving the one who
+carries it, does not practice only a delicacy. It contributes fraternally to
+the joy of someone who rarely finds help.
 
-Utilizando a boa palavra em qualquer situação, você não atende exclusivamente à
-finura do trato. Realiza entre os ouvintes o culto do verbo são, donde brotam
-proveitosos e salutares ensinamentos.
+Using the good word in any situation, you do not exclusively meet the
+fineness of the tract. It realizes among the listeners the cult of the verb are, from which they sprout
+fruitful and salutary teachings.
 
-Silenciando uma afronta em público, você não demonstra apenas refinamento
-social. Poupa-se ao diálogo violento, que dá margem a ódios irremediáveis.
+Silencing an affront in public, you don't just demonstrate refinement
+Social. It saves itself from violent dialogue, which gives rise to hopeless hatred.
 
-Se você oferece agasalho a quem necessita, não só atende à delicadeza humana,
-por filantropia. Amplia a cultura da caridade pura e simples.
+If you offer clothing to those in need, not only does it meet human delicacy,
+by philanthropy. It expands the culture of pure and simple charity.
 
-Ao sorrir, discretamente, dando oportunidade a um desafeto de refazer a
-amizade, você não age tão-somente em tributo à educação. Apaga mágoas e
-ressentimentos, enquanto "está a caminho com ele".
+By smiling discreetly, giving the opportunity to a disaffection to redo the
+friendship, you do not act so-only in tribute to education. Erases sorrows and
+resentments, while "you're on your way with him."
 
-Procurando ajudar um enfermo cansado a vencer um obstáculo, você não age apenas
-por uma questão de gentileza. Coopera para que a vida se dilate no debilitado,
-propiciando-lhe ensejos evolutivos.
+Trying to help a tired sick to overcome an obstacle, you don't just act
+for the sake of kindness. Cooperates that life is definite in the weakened,
+providing him with evolutionary opportunities.
 
-Atendendo uma criança impertinente que o incomoda, num grupo de amigos, você
-não se situa só na formosura da conduta externa. Liberta um homem futuro de uma
-decepção presente.
+Serving a naughty child who bothers you, in a group of friends, you
+is not just in the beauty of external conduct. Free a future man from a
+disappointment present.
 
-No exercício da gentileza, a alma dilata recursos evangélicos e vive o precioso
-ensino do Mestre ao enfático doutor da Lei, com afabilidade e doçura, quando
-Ele afirmou: “Vai e faze o mesmo!”
-
-                                   *   *   *
-
-No exercício da afabilidade e da doçura, que atrairá para você as correntes da
-simpatia, use a compaixão para com todos e guarde, acima de tudo, a boa vontade
-e a sinceridade no coração.
-
-Na alegria ou na dor, no verbo ou no silêncio, no estímulo ou no aviso, acenda
-a luz do amor no coração.
-
-A doçura é essa gentileza das maneiras, uma das formas de benevolência para com
-o nosso próximo, caracterizada pela disposição de acolher o outro como alguém a
-quem queremos bem.
-
-É uma coragem sem violência, uma força sem dureza, um amor sem cólera.
-
-A doçura, a afabilidade, atraem. A dureza, a cólera, afastam.
+In the exercise of kindness, the soul expands evangelical resources and lives the precious
+teaching the Master to the emphatic doctor of the Law, with affability and sweetness, when
+He said, "Go and do the same!"
 
                                    *   *   *
 
-Cultive a brandura sem afetação; e a sinceridade, sem espinhos. Somente o amor
-sabe ser doce e afável, para compreender e ajudar, usando situações e
-problemas, circunstâncias e experiências da vida, para elevar o Espírito eterno
-ao templo da luz Divina.
+In the exercise of affability and sweetness, which will attract for you the currents of the
+sympathy, use compassion for all and keep, above all, goodwill
+and sincerity in the heart.
 
-Se algo sobre a Terra merece o nome de felicidade, é aquela íntima satisfação,
-aquele íntimo sentimento moral que resulta do emprego das faculdades na
-pesquisa da verdade e na prática da virtude.
+In joy or pain, verb or silence, stimulus or warning, light
+the light of love in the heart.
 
-Pense nisso.
+Sweetness is this kindness of manners, one of the forms of benevolence towards
+our neighbor, characterized by the willingness to welcome the other as someone to
+who we want well.
+
+It's a courage without violence, a force without hardness, a love without anger.
+
+Sweetness, affability, attract. Hardness, cholera, push away.
+
+                                   *   *   *
+
+Cultivate softness without affectation; and sincerity, without thorns. Only love
+know how to be sweet and affable, to understand and help, using situations and
+problems, circumstances and experiences of life, to elevate the eternal Spirit
+to the temple of Divine light.
+
+If something about the Earth deserves the name of happiness, it's that intimate satisfaction,
+that intimate moral feeling that results from the employment of colleges in the
+research of truth and in the practice of virtue.
+
+Think about it.
 
 
 ## Source

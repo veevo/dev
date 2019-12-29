@@ -10,175 +10,175 @@ topics:
 - family
 ---
 
-Quando Jesus nos orientou sobre a ideia de que nossa mão direita não deve saber
-o que faz a esquerda, pretendia nos ensinar que não deveríamos fazer
-publicidade do bem que praticamos.
+When Jesus guided us on the idea that our right hand should not know
+what the left does, intended to teach us that we should not do
+publicity of the good we practice.
 
-Afinal, quando fazemos algo de bom a motivação por tal atitude não deve ser o
-orgulho ou o desejo de que sejamos notados ou reconhecidos publicamente por
-isso.
+After all, when we do something good the motivation for such an attitude should not be the
+pride or the desire for us to be publicly noticed or recognized by
+Right.
 
-Essa prática deve ser estimulada pela consciência de que podemos e devemos
-fazer algo pelos outros.
+This practice must be stimulated by the awareness that we can and should
+do something for others.
 
-Mas o que fazer?
+But what to do?
 
-Muitas pessoas lamentam não poder fazer todo o bem que desejariam por falta de
-recursos materiais.
+Many people regret not being able to do all the good they would want for lack of
+material resources.
 
-Porém, há muito a ser feito, que dispensa a aplicação de grande soma de
-recursos financeiros.
+However, much remains to be done, which dispenses with the application of a large sum of
+financial resources.
 
-Se não temos disponibilidade econômica para auxiliar os menos favorecidos na
-vida, quem sabe podemos doar nosso tempo em prol deles.
+If we do not have economic availability to assist the less favoured in the
+life, perhaps we can donate our time for them.
 
-Embora não haja muita divulgação na mídia a respeito, sabemos que existem
-muitos grupos organizados desenvolvendo diversos trabalhos voluntários.
+Although there is not much media disclosure about it, we know that there are
+many organized groups developing various volunteer work.
 
-Há grupos de senhoras que semanalmente costuram retalhos que arrecadam para
-fazer cobertores para famílias carentes.
+There are groups of ladies who weekly sew flaps that collect to
+make blankets for needy families.
 
-Há os que ensinam o que sabem para quem não teve as mesmas oportunidades,
-desenvolvendo potenciais adormecidos, descortinando-lhes novos horizontes.
+There are those who teach what they know for those who have not had the same opportunities,
+developing sleeping potentials, revealing new horizons.
 
-Isso é promoção humana.
+That's human promotion.
 
-Grupos de voluntários se dispõem a ensinar informática em núcleos carentes a
-fim de iniciar em tais conhecimentos pessoas que jamais teriam acesso a esses
-recursos pelos meios usuais.
+Groups of volunteers are willing to teach computer science in needy centers to
+in order to initiate in such knowledge people who would never have access to these
+resources by the usual means.
 
-Há professores de música formando corais e dando as primeiras noções sobre essa
-arte, para crianças que vivem em favelas, em situações de miséria.
+There are music teachers forming corals and giving the first notions about this
+art, for children living in slums, in situations of misery.
 
-Há profissionais da saúde que se organizam e oferecem seu tempo, atendendo
-gratuitamente em consultórios comunitários, instalados em bairros de extrema
-pobreza.
+There are health professionals who organize and offer their time, attending
+free of charge in community offices, installed in neighborhoods of extreme
+Poverty.
 
-Há ainda, aqueles que assumem auxiliar uma criança, ou uma família,
-oferecendo-lhes o apoio que lhes seja possível.
+There are also those who assume to assist a child, or a family,
+giving them the support they can be.
 
-Existem inúmeros bons samaritanos anônimos, espalhados pelo mundo.
+There are countless good anonymous Samaritans, all over the world.
 
-São pessoas que oferecem aos irmãos que sofrem, não apenas bens materiais, mas
-coisas muito mais valiosas: tempo e dedicação.
+They are people who offer to suffering brothers, not only material goods, but
+much more valuable things: time and dedication.
 
-Se realmente desejamos construir um mundo melhor, façamos a nossa parte.
+If we really want to build a better world, let's do our part.
 
-Há muito a ser feito. Tantos são os que sofrem.
+There's a lot to be done. So many sufferers.
 
-Idosos aguardam por anos a fio, em asilos, a visita de alguém que se disponha a
-ouvi-los.
+Elderly people wait for years in asylums to visit someone who is willing to
+listen to them.
 
-Crianças necessitam da orientação segura de alguém que possa ensiná-las e
-guiá-las por meio de exemplos nobres e dignos.
+Children need the safe guidance of someone who can teach them and
+guide them through noble and worthy examples.
 
-Muitas são as pessoas que não tiveram chances de aprender um ofício ou mesmo a
-ler e a escrever, esperando por uma oportunidade nesse sentido.
-
-                                   *   *   *
-
-Temos em nossas mãos talentos e recursos corroídos pela ociosidade e pelo
-egoísmo.
-
-Quantas horas passamos diante da TV sem nada fazer?
-
-Quantos finais de semana passamos dentro de carros, de um lado para o outro,
-sem irmos efetivamente a lugar algum?
-
-Quanta vida passamos sem que façamos nada de útil e proveitoso?
-
-Não há motivo, nem sentido, retardar nossa ação efetiva no bem.
-
-Façamos, a partir de agora, a nossa parte, seja ela qual for.
-
-Pensemos nisso.
-
-                                                                               
-
-Quando Jesus nos orientou sobre a ideia de que nossa mão direita não deve saber
-o que faz a esquerda, pretendia nos ensinar que não deveríamos fazer
-publicidade do bem que praticamos.
-
-Afinal, quando fazemos algo de bom a motivação por tal atitude não deve ser o
-orgulho ou o desejo de que sejamos notados ou reconhecidos publicamente por
-isso.
-
-Essa prática deve ser estimulada pela consciência de que podemos e devemos
-fazer algo pelos outros.
-
-Mas o que fazer?
-
-Muitas pessoas lamentam não poder fazer todo o bem que desejariam por falta de
-recursos materiais.
-
-Porém, há muito a ser feito, que dispensa a aplicação de grande soma de
-recursos financeiros.
-
-Se não temos disponibilidade econômica para auxiliar os menos favorecidos na
-vida, quem sabe podemos doar nosso tempo em prol deles.
-
-Embora não haja muita divulgação na mídia a respeito, sabemos que existem
-muitos grupos organizados desenvolvendo diversos trabalhos voluntários.
-
-Há grupos de senhoras que semanalmente costuram retalhos que arrecadam para
-fazer cobertores para famílias carentes.
-
-Há os que ensinam o que sabem para quem não teve as mesmas oportunidades,
-desenvolvendo potenciais adormecidos, descortinando-lhes novos horizontes.
-
-Isso é promoção humana.
-
-Grupos de voluntários se dispõem a ensinar informática em núcleos carentes a
-fim de iniciar em tais conhecimentos pessoas que jamais teriam acesso a esses
-recursos pelos meios usuais.
-
-Há professores de música formando corais e dando as primeiras noções sobre essa
-arte, para crianças que vivem em favelas, em situações de miséria.
-
-Há profissionais da saúde que se organizam e oferecem seu tempo, atendendo
-gratuitamente em consultórios comunitários, instalados em bairros de extrema
-pobreza.
-
-Há ainda, aqueles que assumem auxiliar uma criança, ou uma família,
-oferecendo-lhes o apoio que lhes seja possível.
-
-Existem inúmeros bons samaritanos anônimos, espalhados pelo mundo.
-
-São pessoas que oferecem aos irmãos que sofrem, não apenas bens materiais, mas
-coisas muito mais valiosas: tempo e dedicação.
-
-Se realmente desejamos construir um mundo melhor, façamos a nossa parte.
-
-Há muito a ser feito. Tantos são os que sofrem.
-
-Idosos aguardam por anos a fio, em asilos, a visita de alguém que se disponha a
-ouvi-los.
-
-Crianças necessitam da orientação segura de alguém que possa ensiná-las e
-guiá-las por meio de exemplos nobres e dignos.
-
-Muitas são as pessoas que não tiveram chances de aprender um ofício ou mesmo a
-ler e a escrever, esperando por uma oportunidade nesse sentido.
+Many are people who have not had a chance to learn a trade or even the
+read and write, waiting for an opportunity in this sense.
 
                                    *   *   *
 
-Temos em nossas mãos talentos e recursos corroídos pela ociosidade e pelo
-egoísmo.
+We have in our hands talents and resources eroded by idleness and
+Selfishness.
 
-Quantas horas passamos diante da TV sem nada fazer?
+How many hours do we spend on TV without anything?
 
-Quantos finais de semana passamos dentro de carros, de um lado para o outro,
-sem irmos efetivamente a lugar algum?
+How many weekends we spend in cars, from side to side,
+without actually going anywhere?
 
-Quanta vida passamos sem que façamos nada de útil e proveitoso?
+How much life do we go through without doing anything useful and profitable?
 
-Não há motivo, nem sentido, retardar nossa ação efetiva no bem.
+There is no reason, no sense, to delay our effective action in good.
 
-Façamos, a partir de agora, a nossa parte, seja ela qual for.
+Let's do our part from now on, whatever it is.
 
-Pensemos nisso.
+Let's think about it.
 
-                                                                               
+
+
+When Jesus guided us on the idea that our right hand should not know
+what the left does, intended to teach us that we should not do
+publicity of the good we practice.
+
+After all, when we do something good the motivation for such an attitude should not be the
+pride or the desire for us to be publicly noticed or recognized by
+Right.
+
+This practice must be stimulated by the awareness that we can and should
+do something for others.
+
+But what to do?
+
+Many people regret not being able to do all the good they would want for lack of
+material resources.
+
+However, much remains to be done, which dispenses with the application of a large sum of
+financial resources.
+
+If we do not have economic availability to assist the less favoured in the
+life, perhaps we can donate our time for them.
+
+Although there is not much media disclosure about it, we know that there are
+many organized groups developing various volunteer work.
+
+There are groups of ladies who weekly sew flaps that collect to
+make blankets for needy families.
+
+There are those who teach what they know for those who have not had the same opportunities,
+developing sleeping potentials, revealing new horizons.
+
+That's human promotion.
+
+Groups of volunteers are willing to teach computer science in needy centers to
+in order to initiate in such knowledge people who would never have access to these
+resources by the usual means.
+
+There are music teachers forming corals and giving the first notions about this
+art, for children living in slums, in situations of misery.
+
+There are health professionals who organize and offer their time, attending
+free of charge in community offices, installed in neighborhoods of extreme
+Poverty.
+
+There are also those who assume to assist a child, or a family,
+giving them the support they can be.
+
+There are countless good anonymous Samaritans, all over the world.
+
+They are people who offer to suffering brothers, not only material goods, but
+much more valuable things: time and dedication.
+
+If we really want to build a better world, let's do our part.
+
+There's a lot to be done. So many sufferers.
+
+Elderly people wait for years in asylums to visit someone who is willing to
+listen to them.
+
+Children need the safe guidance of someone who can teach them and
+guide them through noble and worthy examples.
+
+Many are people who have not had a chance to learn a trade or even the
+read and write, waiting for an opportunity in this sense.
+
+                                   *   *   *
+
+We have in our hands talents and resources eroded by idleness and
+Selfishness.
+
+How many hours do we spend on TV without anything?
+
+How many weekends we spend in cars, from side to side,
+without actually going anywhere?
+
+How much life do we go through without doing anything useful and profitable?
+
+There is no reason, no sense, to delay our effective action in good.
+
+Let's do our part from now on, whatever it is.
+
+Let's think about it.
+
+
 ## Source
 Redação do Momento Espírita.
 Em 28.9.2016.

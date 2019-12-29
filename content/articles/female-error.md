@@ -12,65 +12,65 @@ topics:
 ---
  
 
-Eram quatro mulheres. Conversavam, de forma distraída, enquanto aguardavam a
-consulta médica. Em certo momento, detalhando episódios de suas vidas, passaram
-a falar, cada qual, do maior erro cometido.
+There were four women. They talked, in a distracted manner, while waiting for the
+medical consultation. At one point, detailing episodes of their lives, they spent
+to speak, each of which, of the greatest mistake made.
 
-Surgiram situações diversas e antagônicas e cada uma delas acreditava ter sido
-o que estava apresentando o seu maior erro.
+There were diverse and antagonistic situations and each of them believed to have been
+which was presenting its biggest mistake.
 
-Contudo, o maior erro de suas vidas elas estavam realizando ali, naquele
-momento, em pleno consultório médico: todas fumavam.
+However, the biggest mistake of their lives they were making there, in that
+moment, in the heart of the doctor's office: they all smoked.
 
-Tragavam com volúpia e pareciam se deliciar ao formar arabescos com a fumaça,
-em pleno ar.
+They brought with voluptuousness and seemed to delight in forming arabesques with smoke,
+in mid-air.
 
-De uns tempos para cá, a mulher tem se exposto a doenças que, anteriormente,
-com menos frequência a alcançavam. Tal, por exemplo, a morte por enfarte e
-vários tipos de câncer.
+From time to time, the woman has exposed herself to diseases that, previously,
+less often reached it. Such, for example, death from a heart attack and
+various types of cancer.
 
-Quando a mulher está grávida, aumenta a dimensão do erro desde que, quando a
-gestante fuma, o feto também fuma, passando a receber substâncias tóxicas que,
-através da circulação materna, atravessam a placenta.
+When the woman is pregnant, the size of the error increases since, when the
+pregnant women smoke, the fetus also smokes, receiving toxic substances that,
+through maternal circulation, they cross the placenta.
 
-Com o uso do cigarro, ocorre aumento do risco de abortamento, sangramentos e
-outras complicações. Com mais frequência, o parto da mulher fumante complica,
-sofrendo ainda risco de apresentar descolamento prematuro da placenta e ruptura
-da bolsa.
+With the use of cigarettes, there is an increased risk of abortion, bleeding and
+other complications. More often, the delivery of the smoking woman complicates,
+still at risk of premature detachment from the placenta and rupture
+of the bag.
 
-O risco de morte súbita infantil também aumenta de acordo com o número de
-cigarros consumidos na gravidez.
+The risk of sudden infant death also increases according to the number of
+cigarettes consumed in pregnancy.
 
-Em geral, em maior proporção se dá o nascimento de crianças com menor peso e
-menos comprimento, nas mães fumantes, bem como o risco de o bebê nascer com
-defeitos congênitos.
+In general, in a greater proportion the birth of children with lower weight and
+less length, in smoking mothers, as well as the risk of the baby being born with
+birth defects.
 
-Além de a si mesmas agredirem, destruindo a maquinaria física, agridem e muito
-o bebê, com repercussão para a sua vida.
+In addition to assaulting themselves, destroying physical machinery, they are very
+the baby, with repercussion for his life.
 
-Fumar durante a gravidez compromete a inteligência da criança, sendo menor o
-rendimento intelectual dos filhos de mães fumantes.
+Smoking during pregnancy compromises the child's intelligence, with the child being less
+intellectual income of the children of smoking mothers.
 
-Erro grave ainda comete a mulher que amamenta e fuma, pois a nicotina passa
-pelo leite e é absorvida pela criança.
+Serious error still makes woman who breastfeeds and smokes, as nicotine passes
+milk and is absorbed by the child.
 
-E o que dizer do risco de crianças pequenas contraírem infecções respiratórias,
-como bronquite, pneumonia e complicações de asma, quando elas são obrigadas a
-viver em ambientes poluídos pela fumaça do cigarro?
+And what about the risk of young children contracting respiratory infections,
+such as bronchitis, pneumonia and asthma complications, when they are required to
+living in environments polluted by cigarette smoke?
 
-Com certeza, é grave o erro feminino de se entregar ao vício do tabaco,
-destruindo-se, e complicando, muitas vezes, a vida daqueles pelos quais é
-responsável.
+It is certainly serious that the female mistake of inturning to tobacco addiction,
+destroying themselves, and often complicating the lives of those for which it is
+Responsible.
 
 *   *   *
 
-O fumo é causa de redução da vida de um fumante de 5 a 8 anos. Isto, perante as
-Leis Divinas, pode ser considerado suicídio indireto.
+Smoking is a cause of a 5 to 8-year-old smoker's life reduction. This, in the face of
+Divine Laws can be considered indirect suicide.
 
-O tabagismo é um dos maiores problemas da saúde pública.
+Smoking is one of the biggest public health problems.
 
-A mulher fumante que engravida e abandona o vício, para preservar a integridade
-física do bebê em formação, afirma com sua atitude sua capacidade de amar.
+The smoking woman who gets pregnant and abandons addiction, to preserve integrity
+the baby's physical in formation, affirms with his attitude his ability to love.
 
 ## Source
 Redação do Momento Espírita, com base em informações do volant

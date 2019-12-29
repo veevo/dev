@@ -6,79 +6,79 @@ topics:
 - resilience
 ---
 
-Resiliência é a capacidade da pessoa se recobrar facilmente ou se adaptar às
-adversidades ou às mudanças.
+Resilience is the person's ability to easily recover or adapt to the
+adversity or change.
 
-Também pode ser entendida como a capacidade de vencer obstáculos, permitindo-se
-o aprendizado a partir dos problemas e até ajudar o próximo.
+It can also be understood as the ability to overcome obstacles, allowing
+learning from problems and even helping others.
 
-Perdas, traumas emocionais, sentimentos marcantes interferem, por vezes, de
-forma negativa, na vida de milhares de pessoas.
+Losses, emotional trauma, marked feelings sometimes interfere with
+negative ly, in the lives of thousands of people.
 
-Para algumas, problemas e desafios são apenas pequenas barreiras, logo
-transpostas. Contudo, para outras pessoas, se transformam em gigantescas
-muralhas.
+For some, problems and challenges are just small barriers, so
+Transposed. However, for other people, they turn into gigantic
+Walls.
 
-E é exatamente nesse momento que entra a resiliência, essa capacidade de o
-indivíduo lidar com problemas, de superar obstáculos, de transformar traumas em
-aprendizados ou de resistir à pressão de situações adversas sem entrar em surto
-psicológico.
+And that's exactly when resilience comes in, this ability to
+individual dealing with problems, overcoming obstacles, transforming trauma into
+learning or resisting the pressure of adverse situations without going into an outbreak
+Psychological.
 
-A advogada maranhense Marlene, com uma carreira bem sucedida na Procuradoria
-Pública, uma condição financeira invejável, se descobriu grávida pela terceira
-vez.
+The Maranhão lawyer Marlene, with a successful career in the Attorney's Office
+public, an enviable financial condition, found herself pregnant by the third
+Time.
 
-Aos quarenta anos, recebeu a notícia, dada pelo próprio médico, de que sua
-filha nasceria com Síndrome de Down e não viveria além dos doze anos.
+At the age of forty, he received the news, given by the doctor himself, that his
+daughter would be born with Down Syndrome and would not live beyond twelve years.
 
-Ela se sentiu precipitar em um buraco negro. Parecia ser o fim do mundo, do seu
-mundo. Ela não tinha conhecimento a respeito da Síndrome e os meses seguintes
-foram de luto, dor e muitos questionamentos.
+She felt rushed into a black hole. It seemed to be the end of the world, of his
+World. She was unaware of the Syndrome and the following months
+were mourning, pain and many questions.
 
-Por que comigo? O que foi que eu fiz de errado?
+Why me? What did I do wrong?
 
-Marlene sentiu raiva, ficou deprimida e, por último, resolveu ir à luta. No
-dizer de uma psicóloga clínica, ela começou a ver que podia tirar uma flor de
-uma pedra.
+Marlene felt angry, was depressed, and finally decided to go to the fight. In
+say of a clinical psychologist, she began to see that she could take a flower of
+a stone.
 
-O primeiro passo foi se esclarecer a respeito do que era a Síndrome de Down.
+The first step was to clarify what Down Syndrome was.
 
-E, para oferecer à filha melhores condições, saiu de sua terra natal,
-demandando localidade que oferecesse todas as oportunidades possíveis para que
-sua filha se pudesse desenvolver.
+And to offer her daughter better conditions, he left her homeland,
+requiring locality to offer every possible opportunity for
+your daughter could develop.
 
-E Mayara nasceu. Hoje, com vinte e oito anos, está feliz. Trabalha, namora. Tem
-uma vida normal.
+And Mayara was born. Today, at the age of twenty-eight, he's happy. It works, dating. Have
+a normal life.
 
-Mas, mais do que superar o trauma inicial e proporcionar à filha as melhores
-condições para seu desenvolvimento, amparando-a em todas as fases, Marlene
-optou por auxiliar ao próximo.
+But more than overcoming the initial trauma and providing the daughter with the best
+conditions for its development, by emparating it at all stages, Marlene
+chose to assist others.
 
-Hoje, ela é presidente da Associação Reviver Down, uma entidade sem fins
-lucrativos que reúne pais e pessoas com Síndrome de Down.
+Today, she is president of the Reviver Down Association, a non-profit entity
+that brings together parents and people with Down Syndrome.
 
-Ali, ela compartilha a sua experiência com pais de portadores de deficiência.
+There, she shares her experience with parents of disabled people.
 
-Superando a questão que a alcançou, um dia, Marlene demonstrou a importância da
-resiliência ante o desafio.
+Overcoming the issue that once reached her, Marlene demonstrated the importance of
+resilience to the challenge.
 
-E atendendo ao propósito de auxiliar a que outras pessoas não necessitem passar
-por seus mesmos traumas e pavores, se dedica a repassar a sua experiência,
-multiplicando benefícios.
+And given the purpose of helping other people not need to pass
+by his same traumas and pavors, he is dedicated to passing on his experience,
+multiplying benefits.
 
-Uma história de coragem. Uma história de superação e de amor que demonstra que
-o ser humano é sempre mais forte do que imagina.
+A story of courage. A story of overcoming and love that demonstrates that
+the human being is always stronger than you think.
 
-E que, afinal, ninguém recebe fardo maior do que possam suportar seus ombros.
-Deus é sábio e conhece a fortaleza de cada um dos seus filhos.
+And that, after all, no one receives greater burden than they can bear their shoulders.
+God is wise and knows the fortitude of each of his children.
 
-Por que nem sempre vencemos? Porque, por vezes, deixamos, exatamente, de
-acionar essas alavancas internas, nossa força moral.
+Why don't we always win? Because sometimes we exactly fail to
+trigger these internal levers, our moral strength.
 
-Porque nos permitimos influenciar por aqueles que nos dizem que não
-conseguiremos vencer.
+Because we allow ourselves to influence those who tell us that they do not
+we'll be able to win.
 
-Pensemos nisso e sigamos os exemplos de superação.
+Let's think about it and follow the examples of overcoming.
 
 ## Source
 Redação do Momento Espírita, com base no artigo

@@ -18,77 +18,77 @@ topics:
 ---
 
 
-A revista Circulation, da Associação Americana do Coração publicou um estudo,
-realizado por uma equipe da Universidade da Carolina do Norte, nos Estados
-Unidos.
+The Journal Circulation of the American Heart Association published a study,
+carried out by a team from the University of North Carolina in the United States
+United.
 
-O título era muito sugestivo: Verdade: raiva mata mesmo. E dizia do aumento
-significativo dos riscos de se ter um ataque cardíaco, devido ao mau humor.
+The title was very suggestive: Truth: anger kills even. And he said of the increase
+risks of having a heart attack due to bad mood.
 
-A equipe, durante seis anos, estudou nada menos do que o comportamento de
-13.000 homens e mulheres, com idade entre 45 e 64 anos.
+The team, for six years, studied nothing less than the behavior of
+13,000 men and women, aged between 45 and 64 years.
 
-Os pesquisadores descobriram que as pessoas que se irritam intensamente, e com
-frequência, têm três vezes mais probabilidades de sofrer um infarto do coração,
-do que aquelas que encaram os problemas com mais serenidade.
+The researchers found that people who get angry intensely, and with
+frequency, are three times more likely to suffer a heart attack,
+than those who face problems with more serenity.
 
-Segundo esses estudiosos, cada vez que a pessoa tem um episódio de raiva, o
-organismo joga no sangue uma carga extra de adrenalina.
+According to these scholars, every time the person has an episode of anger, the
+body throws in the blood an extra load of adrenaline.
 
-A concentração desse hormônio no corpo aumenta o número de batimentos cardíacos
-e estreita os vasos sanguíneos, o que faz com que a pressão arterial se eleve.
+Concentration of this hormone in the body increases the number of heartbeats
+and narrows the blood vessels, which causes blood pressure to be increased.
 
-A repetição dos momentos de raiva pode gerar dois problemas que se associam ao
-infarto. O primeiro é a arritmia cardíaca, o que quer dizer que o coração bate
-de forma descompassada.
+The repetition of moments of anger can generate two problems that are associated with the
+Infarction. The first is cardiac arrhythmia, which means that the heart beats
+unwisely.
 
-O segundo, é a dilatação das placas de gordura que, por acaso, existam nas
-artérias.
+The second is the dilation of fat plates that, by chance, exist in the
+Arteries.
 
-Por tudo isto, é bom analisarmos os nossos atos.
+For all this, it's good to look at our deeds.
 
-Por exemplo: o mau humor está se apresentando em nossas vidas de maneira quase
-constante?
+For example: bad mood is presenting itself in our lives in an almost way
+Constant?
 
-Procuremos examinar as suas origens, a fim de que o possamos liquidar o mais
-rápido possível.
+Let us try to examine its origins so that we can liquidate it as far as possible
+possible fast.
 
-Caso o problema seja de alguma dívida que esteja nos preocupando, recordemos
-que não será com mau humor que conseguiremos os recursos para pagá-la.
+If the problem is of any debt that is worrying us, we remember
+that it won't be in a bad mood that we're going to get the resources to pay for it.
 
-Se a dificuldade é uma doença que nos atormenta, tenhamos em mente que
-enfermidade precisa de remédio e não de intolerância, para se curar.
+If difficulty is a disease that torments us, keep in mind that
+disease needs medicine and not intolerance, to heal.
 
-Se estivermos precisando da cooperação de alguém para um empreendimento, uma
-tarefa, com certeza não será apresentando uma carranca que conseguiremos
-simpatia e ajuda.
+If we are in need of someone's cooperation for an enterprise, a
+task, it will certainly not be presenting a frown that we will be able to
+sympathy and help.
 
-Se estiverem se apresentando contratempos na família, não serão frases ásperas,
-cheias de amargura e má vontade que irão resolvê-los.
+If you're experiencing setbacks in the family, they won't be rough phrases,
+full of bitterness and ill will that will solve them.
 
-Tudo isto quer dizer que, em verdade, até hoje não se tem conhecimento de
-ninguém que o azedume e o mau humor tenham auxiliado.
+All this means that, in fact, to this day one is not aware of
+no one who sours and bad mood have aided him.
 
-Portanto, o melhor é tentar nos livrarmos dessa postura destruidora, cultivar a
-paciência e aprender a sorrir.
+Therefore, it is best to try to get rid of this destructive posture, cultivate the
+patience and learn to smile.
 
 *   *   *
 
-Ninguém consegue realizar alguma coisa sem os outros e os outros não são
-culpados por nossos insucessos.
+No one can accomplish anything without others and others are not
+guilty of our failures.
 
-Enfrentemos o novo dia, dispostos a vencer, conquistando o espaço bom que nos
-está reservado no mundo.
+Let us face the new day, willing to win, conquering the good space that
+is reserved not world.
 
-A boa vontade em relação aos outros retornará sempre para nós em clima de
-simpatia e camaradagem.
+Goodwill towards others will always return to us in a climate of
+sympathy and camaraderie.
 
-Assim, começando hoje, coloquemos beleza em nossos olhos, a fim de olharmos a
-vida com lentes mais claras, libertando-nos das impressões negativas da noite
-passada.
+So, starting today, put beauty in our eyes in order to look at the
+life with lighter lenses, freeing us from the negative impressions of the night
+Passed.
 
-Notaremos então que nosso estado íntimo se renovará e tudo tomará uma cor
-agradável ao nosso redor.
+We will then notice that our intimate state will renew itself and everything will take a color
+pleasant around us.
 
 ## Source
 Redação do Momento Espírita com base no artigo Mau humor? Nem pensar,

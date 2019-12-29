@@ -18,84 +18,84 @@ topics:
 - child
 ---
 
-Apresentaram a Jesus então umas criancinhas, a fim de que ele as tocasse. E
-como seus discípulos repelissem com palavras rudes aqueles que as apresentavam,
-Jesus vendo isso repreendeu-os e lhes disse:
+They then introduced Jesus to some little children so that he might touch them. And
+as his disciples repelled with rude words those who presented them,
+Jesus seeing this rebuked them and said to them:
 
-“Deixai vir a mim as criancinhas, não as impeçais; pois o reino dos céus é para
-aqueles que se lhes assemelham.
+"Let the little children come unto me, do not stop them; for the kingdom of heaven is for
+those who resemble them.
 
-Eu vos digo, em verdade, que todo aquele que não receber o reino de Deus como
-uma criança, nele não entrará.”
+I tell you, in truth, that whoever does not receive the kingdom of God as
+a child, he will not enter into him."
 
-E tendo-as abraçado, abençoou-as impondo-lhes as mãos.
+And having embraced them, he blessed them by laying their hands on them.
 
                                    *   *   *
 
-a passagem narrada por Marcos no seu Evangelho é de profunda beleza, e
-apresenta um dos pontos altos da lição do Cristo.
+the passage narrated by Mark in his Gospel is of profound beauty, and
+presents one of the highlights of Christ's lesson.
 
-Por que Jesus promete o reino dos céus para aqueles que se assemelharem a
-criancinhas?
+Why does Jesus promise the kingdom of heaven to those who resemble
+Children?
 
-Não identificava Ele, ali, naqueles corpos infantis, Espíritos reencarnados,
-voltando ao palco terrestre com seus desafios, suas mazelas, suas lutas, assim
-como qualquer outro ser?
+He did not identify, there, in those childish bodies, reincarnated spirits,
+returning to the earth stage with his challenges, his ills, his struggles, so
+like any other being?
 
-Obviamente que sim. Então, o que Jesus quis dizer com isso?
+Obviously i do. So, what did Jesus mean by that?
 
-O Mestre educador falava do ser criança em si, do período da infância, dessa
-época em que todos somos cândidos, humildes e moldáveis.
+The Master educator spoke of being a child himself, of the period of childhood, of this
+when we are all candid, humble and moldable.
 
-Ele falava da pureza dos pequenos, que ainda não tiveram tempo de se submeter
-aos vícios, que ainda não aprenderam a malícia nem a complexidade exagerada do
-comportamento adulto.
+He spoke of the purity of the little ones, who have not yet had time to submit
+vices, which have not yet learned malice or the exaggerated complexity of the
+adult behavior.
 
-Simplicidade. A vida da criança é simples, e Jesus estava ali exaltando a
-simplicidade na vida como mola propulsora para nos lançar a esse estado íntimo
-de felicidade, de reino dos céus no coração.
+Simplicity. The child's life is simple, and Jesus was there extolling the
+simplicity in life as a propellant spring to launch us into this intimate state
+of happiness, of kingdom of heaven in the heart.
 
-A criança se contenta com tão pouco... Valoriza as pequenas coisas, não tem
-vaidades, não é dissimulada e nem preconceituosa.
+The child settles for so little... It values the little things, has no
+vanity, is not covert or prejudiced.
 
-Assemelhar-se às crianças é também enxergar o mundo com alegria, com
-deslumbramento, sem ressalvas, sem mágoas...
+Resembling children is also seeing the world with joy, with
+dazzle, no caveats, no sorrows...
 
-É ser mais leve. Sim, as crianças pesam muito menos do que os adultos.
+It's being lighter. Yes, children weigh much less than adults.
 
-É ser mais leve nas atitudes, nas preocupações, no apego excessivo às coisas.
+It is to be lighter in attitudes, worries, excessive attachment to things.
 
-A ideia de criança de Jesus é o oposto da ideia de velho, não no sentido de
-idoso, mas daquele que não modifica suas opiniões, que não altera seu
-comportamento, que não cede por nada neste mundo.
+The idea of a child of Jesus is the opposite of the idea of the old man, not in the sense of
+elderly, but of those who do not modify their opinions, which does not alter their
+behavior, which gives in for nothing in this world.
 
-Velho é quem se deixou amargar pelo caminho. Criança é quem respira alegria e
-dá novas chances a si mesmo e aos outros todos os dias.
+Old man is the one who let himself be bitter along the way. Child is the one who breathes joy and
+gives new chances to yourself and others every day.
 
                                    *   *   *
 
-Minha vista cansada... Meu cenho triste...
+My tired sight... My sad spark...
 
-Colhi pela calçada, raio de sol que persiste
+Harvested by sidewalk, ray of sunshine that persists
 
-Saudade da criança que um dia fui,
+I miss the child I once went to,
 
-Vontade, ânsia, de um rio que não mais flui.
+Desire, eagerness, of a river that no longer flows.
 
-Haverá como retornar?
+Will there be a way back?
 
-É possível ser menino e voltar a despertar?
+Is it possible to be a boy and wake up again?
 
-Abro a porta do futuro e encontro o rosto lindo de meu filho.
+I open the door of the future and find my son's beautiful face.
 
-Deus o fez parecer comigo para que nunca esquecesse de meu menino eterno.
+God made him look like me so he never forgot my eternal boy.
 
-Quero ser menino contigo, meu filho! Menino que quer aprender, que quer
-escutar, que quer se deslumbrar todos os dias.
+I want to be a boy with you, my son! Boy wanting to learn, who wants to
+listen, that you want to be dazzled every day.
 
-Quero ser menino contigo e viajar pela Terra mais uma vez, como se fosse a
-primeira, pois as crianças sempre assistem o que gostam diversas vezes, com a
-alegria e a emoção da primeira vez.
+I want to be a boy with you and travel the earth once again, like it's the
+first, because children always watch what they like several times, with the
+joy and emotion of the first time.
 
 ## Source
 Redação do Momento Espírita, com base no

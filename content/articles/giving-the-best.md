@@ -7,72 +7,72 @@ topics:
 - prayer
 ---
 
-Muitas coisas se falam a respeito de Beethoven. O fato de ter composto
-extraordinárias sinfonias, mesmo após a total surdez, é sempre recordado.
+A lot of things talk about Beethoven. The fact that it composed
+extraordinary symphonies, even after total deafness, is always remembered.
 
-Exatamente por causa de sua surdez, ele era pouco sociável. Enquanto pôde,
-escondeu o fato de sua audição estar comprometida.
+Precisely because of his deafness, he was unsociable. While you could,
+hid the fact that his hearing was compromised.
 
-Evitava as pessoas porque a conversa se lhe tornara uma prática difícil e
-humilhante. Era o atestado público da sua deficiência auditiva.
+It avoided people because the conversation had become a difficult practice and
+Humiliating. It was the public certificate of his hearing loss.
 
-Certo dia, um amigo seu foi surpreendido pela morte súbita do filho. Assim que
-soube, o músico correu para a casa dele, pleno de sofrimento.
+One day, a friend of yours was surprised by his son's sudden death. So that
+i heard, the musician ran to his house, full of suffering.
 
-Beethoven não tinha palavras de conforto para oferecer. Não sabia o que dizer.
-Percebeu, contudo, que num canto da sala havia um piano.
+Beethoven had no words of comfort to offer. I didn't know what to say.
+He realized, however, that in a corner of the room there was a piano.
 
-Durante trinta minutos, ele extravasou suas emoções da maneira mais eloquente
-que podia. Tocou piano. Ao contato dos seus dedos, as teclas acionadas emitiram
-lamentos e melodiosa harmonia de consolo.
+For thirty minutes, he extracted his emotions in the most eloquent way
+that could. He played the piano. At the contact of your fingers, the keys triggered issued
+laments and melodious harmony of consolation.
 
-Assim que terminou, ele foi embora. Mais tarde, o amigo comentou que nenhuma
-outra visita havia sido tão significativa quanto aquela.
+As soon as it was over, he left. Later, the friend commented that no
+another visit had been as significant as that.
 
-Por vezes, nós também, surpreendidos por notícias muito tristes ou chocantes,
-não encontramos palavras para expressar conforto ou consolação.
+Sometimes, we too, surprised by very sad or shocking news,
+we find no words to express comfort or consolation.
 
-Chegamos ao ponto de não comparecer ao enterro de um amigo, por sentir não ter
-jeito para dizer algo para a viúva, ou aos filhos órfãos.
+We got to the point of not attending a friend's funeral, because he felt he didn't
+way to say something to the widow, or to the orphaned children.
 
-Não vamos ao hospital, visitar um enfermo do nosso círculo de relações, porque
-nos sentimos inibidos. Como chegar? O que levar? O que dizer?
+We're not going to the hospital, visiting a sick man in our circle of relationships, because
+we feel inhibited. How to get there? What to take? What's that supposed to say?
 
-Aprendamos com o gesto do imortal Beethoven. Na ausência de palavras,
-permitamos que falem os nossos sentimentos.
+Let us learn from the gesture of the immortal Beethoven. In the absence of words,
+let us tell our feelings.
 
-Ofertemos o abraço silencioso e deixemos que a vertente das lágrimas de quem se
-veste de tristeza, escorra em nosso peito.
+We offer the silent embrace and let the shed of the tears of those who
+dress of sadness, drain on our chest.
 
-Ofereçamos os ombros para auxiliar a carregar a dor que extravasa da alma,
-vergastando o corpo.
+Let us offer our shoulders to help carry the pain that extracts from the soul,
+verspending the body.
 
-Sentemo-nos ao lado de quem padece e lhe seguremos a mão, como a afirmar, com
-todas as letras e nenhum som: Estou aqui. Conte comigo.
+We sit next to those who suffer and hold their hands, as to say, with
+all the lyrics and no sound: I'm here. Count me in.
 
-Sirvamos um copo d’água, um suco àquele que secou a fonte das lágrimas e
-prossegue com a alma em frangalhos. Isso poderá trazer renovado alento ao corpo
-exaurido pela convulsão das dores.
+We poured a glass of water, a juice to the one who dried the source of tears and
+continues with the soul in tatters. This could bring renewed encouragement to the body
+exhausted by the seizure of pain.
 
-Verifiquemos se não podemos providenciar um cantinho para um repouso, ainda que
-breve.
+Let's see if we can't provide a corner for a home, even if
+Short.
 
-Permaneçamos com o amigo, mesmo depois que todos se tenham retirado para seus
-lares ou se dirigido aos seus afazeres. As horas da solidão são mais longas,
-quando os ponteiros avançam a madrugada.
+Let us remain with the friend, even after everyone has withdrawn for their
+homes or if addressed to their chores. The hours of loneliness are longer,
+when the hands advance the early hours.
 
                                    *   *   *
 
-Sê amigo conveniente, sabendo conduzir-te com discrição e nobreza junto àqueles
-que te elegem a amizade.
+Be a convenient friend, knowing how to lead you with discretion and nobility with those
+that i elect you friendship.
 
-A discrição é tesouro pouco preservado nas amizades terrenas.
+Discretion is little treasure preserved in the fraternal friendships.
 
-Todas as pessoas gostam de companhias nobres e discretas, que inspiram
-confiança, favorecendo a tranquilidade.
+Everyone likes noble and discreet companies that inspire
+confidence, favoring tranquility.
 
-Ouve, vê, acompanha e conversa com nobreza, sendo fiel à confiança que em ti
-depositem.
+Listen, see, accompanies and talks with nobility, being faithful to the trust that in you
+Deposit.
 
 
 ## Source

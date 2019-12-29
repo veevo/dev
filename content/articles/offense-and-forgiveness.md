@@ -19,83 +19,83 @@ topics:
 - prayer
 ---
 
-Ofensa e perdão
+Offense and forgiveness
 
-Qual a primeira reação que temos quando nos sentimos ofendidos?
+What's the first reaction we have when we feel offended?
 
-Quando alguém nos injuria, calunia ou age com má fé em relação a nós, qual o
-primeiro sentimento que nos toma a alma?
+When one reviles us, slanders or acts with bad faith towards us, what the
+first feeling that takes our souls?
 
-Boa parte de nós diria ser a revolta esse sentimento.
+Most of us would say it would be revolting that feeling.
 
-Outros, mencionaríamos o desejo de vingança, a vontade de retribuir com a mesma
-moeda o mal que nos atingiu.
+Others, we would mention the desire for revenge, the desire to reciprocate with the same
+coin the evil that hit us.
 
-E não poucos nos sentiríamos indignados, não hesitando em tomar satisfação com
-o outro, usando de palavras grosseiras, quando não mesmo da agressão física.
+And not few would we feel outraged, not hesitating to take satisfaction with
+the other, using coarse words, when not even of physical aggression.
 
-Porém, poucas vezes reflexionamos sobre se essa seria a melhor atitude a ser
-tomada.
+However, we rarely reflect on whether this would be the best attitude to be
+Taken.
 
-Quando a ofensa nos chega, enchemo-nos de cólera, e reagimos, de imediato. Nem
-um momento de reflexão.
+When the offense comes to us, we fill ourselves with cholera, and react immediately. Not
+a moment of reflection.
 
-Todo aquele que ofende, entretanto, traz em si desarmonia e dificuldades de
-grande monta.
+Whoever offends, however, brings in itself disharmony and difficulties of
+great mounts.
 
-Calúnia e injúria são apenas frutos daqueles que se perderam nos desatinos da
-inveja e do ciúme.
+Slander and injury are only the fruits of those who have been lost in the desatines of
+envy and jealousy.
 
-São criaturas que não perceberam que todos trazemos valores e capacidades que
-podem ser desenvolvidos. Desequilibram-se no triste caminho de invejar no
-próximo aquilo que não acreditam possível desenvolver em si mesmos.
+They are creatures that have not realized that we all bring values and abilities that
+can be developed. They are unbalanced in the sad way of envying the
+next to what they do not believe possible to develop in themselves.
 
-Aqueles que agem, usando de má fé, com o intuito deliberado de prejudicar ao
-outro, são portadores de graves enfermidades em seu íntimo.
+Those who act, using bad faith, with the deliberate intention of harming the
+others, are carriers of serious illnesses in their hearts.
 
-Buscam atalhos inexistentes para alcançar seus intentos, não se importando e
-não mensurando o reflexo de suas ações.
+They seek non-existent shortcuts to achieve their intents, not caring and
+not measuring the reflection of their actions.
 
-Agem assim por ignorar que a vida devolve em frutos todas as sementes lançadas
-ao vento.
+They act so by ignoring that life returns in fruits all the seeds cast
+in the wind.
 
-Assim, se a ofensa nos chega ao coração, antes de qualquer reação, reflitamos.
+So if the offense reaches our hearts before any reaction, let us reflect.
 
-Vejamos alguém enfermo naquele que nos ofende. Alguém com profundas
-dificuldades íntimas.
+Let's see someone sick in the one who offends us. Someone with deep
+intimate difficulties.
 
-Ele se esforça em aparentar uma felicidade e superioridade inexistentes, pois
-verdadeiramente feliz é o que goza de paz de consciência.
+He strives to appear to be non-existent happiness and superiority, for
+truly happy is what enjoys peace of conscience.
 
-Ninguém que esteja efetivamente de bem consigo mesmo sente a necessidade de
-magoar a terceiros, de forma nenhuma.
+No one who is effectively well with himself feels the need to
+harm to third parties, not at all.
 
-Por isso, Francisco de Assis, conhecendo em profundidade os dramas humanos,
-roga ao Pai Celeste permita que ele possa levar o perdão onde houvesse ofensa.
+Therefore, Francisco de Assisi, knowing human dramas in depth,
+pray to the Heavenly Father to allow him to take forgiveness where there was offense.
 
-O doce cantor de Deus, reconhecendo as dificuldades íntimas de quem ofende,
-deseja retribuir àquele coração apenas com o perdão.
+The sweet singer of God, recognizing the intimate difficulties of those who offends,
+wishes to return to that heart only with forgiveness.
 
-Ser ferramenta da ofensa é muito mais grave do que ser ofendido.
+Being offence tool is much more serious than being offended.
 
-Infelicidade efetiva nasce das mãos que atiram pedras, e não daqueles que lhe
-constituem o alvo.
+Effective unhappiness rises from the hands that throw stones, not those who
+constitute the target.
 
-O perdão aos que nos atacam nascerá sempre do olhar de compreensão; da
-capacidade de transcendermos a situação, registrando compaixão diante do
-agressor.
+Forgiveness for those who attack us will always be born from the gaze of understanding; Of
+ability to transcend the situation, recording compassion in the face of
+Attacker.
 
                                    *   *   *
 
-Assim, se a ofensa nos chegar, vejamos nela o imenso convite ao exercício do
-perdão.
+So if the offense comes to us, let's see in it the immense invitation to exercise the
+Forgiveness.
 
-Isso nos evitará o fardo de carregar n’alma o peso da vingança e o ácido do mal
-querer.
+This will prevent us from carrying in soul the weight of revenge and the acid of evil
+To want.
 
-E, ante as tormentas que o ultraje possa nos causar, lembremo-nos de que Jesus,
-incomparável na Sua pureza, manteve-se sereno e calado, diante dos mais vis
-insultos que os homens puderam engendrar, a seu tempo.
+And in the face of the torments that outrage may cause us, let us remember that Jesus,
+incomparable in His purity, remained serene and silent, before the most vile
+insults that men were able to engender in time.
 
 ## Source
 Redação do Momento Espírita.

@@ -10,80 +10,80 @@ topics:
 - mother
 ---
 
-Ele é reconhecido como um dos dez melhores contadores de histórias do mundo.
+He is recognized as one of the ten best storytellers in the world.
 
-Sua própria história rendeu um livro. E um filme, premiado pela UNESCO. Hoje,
-ele é um pedagogo de quase cinquenta anos, pai adotivo de vinte e cinco filhos.
+His own story yielded a book. And a FILM, awarded by UNESCO. Today
+he is a pedagogue of almost fifty years, adoptive father of twenty-five children.
 
-Aos seis anos, foi parar na extinta Fundação para o Bem-estar do Menor, levado
-por sua mãe, que achava que aquele seria o caminho para, um dia, ter um filho
-doutor.
+At the age of six, he ended up at the defunct Foundation for the Welfare of the Minor, taken
+by his mother, who thought that would be the way to, one day, have a child
+Doctor.
 
-Quando começou a sofrer maus-tratos, fugiu. Ele tinha sete anos e foi a
-primeira de cento e trinta e duas fugas.
+When he started being abused, he ran away. He was seven years old and was the
+first hundred and thirty-two escapes.
 
-Acabou sendo transferido para outras cidades e perdeu o contato com a família.
-Aos treze anos, foi tachado de irrecuperável.
+He was eventually transferred to other cities and lost contact with his family.
+At the age of thirteen, he was found unrecoverable.
 
-No entanto, um ato generoso mostrou àquele menino que ele poderia fazer a sua
-história diferente. A pedagoga francesa, Margherit, visitando a instituição,
-não se conformou com aquela sentença.
+However, a generous act showed that boy that he could make his
+different story. The French pedagogue, Margherit, visiting the institution,
+did not conform to that sentence.
 
-Ela olhou profundamente nos olhos de Roberto Carlos e conversou com ele. Foi a
-primeira vez que alguém lhe disse: Com licença, Por gentileza.
+She looked deep into Roberto Carlos' eyes and talked to him. It was the
+first time someone said to him, Excuse me, please.
 
-Margherit quebrou os prognósticos estabelecidos para aquele garoto fujão: o
-analfabetismo e a marginalidade.
+Margherit broke the established prognosis for that smoking boy: the
+illiteracy and marginality.
 
-Ela o ensinou a ler, o adotou e o levou para morar com sua família, em
-Marseille, na França. E na escola, Roberto Carlos conheceu outras realidades.
+She taught him to read, adopted him, and took him to live with his family, in
+Marseille, France. And at school, Roberto Carlos met other realities.
 
-Ele contava a sua história, sempre se colocando como vítima. No entanto,
-conheceu filhos de exilados, órfãos de países orientais, crianças que haviam
-vivido e presenciado guerras.
+He told his story, always posing as a victim. However
+knew children of exiles, orphans from eastern countries, children who had
+lived and witnessed wars.
 
-Descobriu que ele poderia continuar a ser vítima ou buscar construir uma
-história diferente para si.
+He found out that he could continue to be a victim or seek to build a
+different story for you.
 
-Inspirado por aquela mulher, ele voltou, posteriormente, ao Brasil,
-reconhecendo que no seu país era o seu verdadeiro lugar.
+Inspired by that woman, he later returned to Brazil,
+recognizing that in his country it was his true place.
 
-Voltou para Minas Gerais, a terra natal, reencontrou a mãe e os irmãos.
-Formou-se em pedagogia. E foi fazer estágio na mesma FEBEM, em que fora um dos
-internos.
+He returned to Minas Gerais, his homeland, rediscovered his mother and brothers.
+He graduated in pedagogy. And it was to do internship in the same FEBEM, in which one of the
+Internal.
 
-Seu maior objetivo: tirar dali o máximo de meninos, para que tivessem a chance
-de refazer as suas vidas. Em dois anos e meio, adotou seus primeiros oito
-filhos.
+Your biggest goal: to get as many boys out of there, so they would have the chance
+to remake their lives. In two and a half years, he adopted his first eight years
+Children.
 
-E os ajudou a reescrever a própria história, utilizando a regra: ter sonhos e
-planos.
+And helped them rewrite their own story, using the rule: having dreams and
+Plans.
 
-Comenta ele: Ninguém dorme tranquilo sabendo que o próximo está mal. Eu
-precisava fazer algo.
+He comments: No one sleeps peacefully knowing that the next one is bad. I
+needed to do something.
 
-Nossa família foi formada com a ideia de que, se a ajuda de alguém foi
-fundamental para nós, é preciso que seja retribuída e compartilhada. Assim,
-todos se tornam responsáveis uns pelos outros.
+Our family was formed with the idea that if someone's help was
+fundamental to us, it is necessary to be repaid and shared. Like this
+all become responsible for each other.
 
-E o contador de histórias diz que acredita que toda história pode ter final
-feliz. A prova disso, conclui, é que a história que mais conto é a minha.
+And the storyteller says he believes that every story may have an end
+Happy. The proof of that, he concludes, is that the story I tell the most is mine.
 
-Aprendi que, antes de ser respeitado, eu precisava me respeitar.
+I learned that before I was respected, I needed to respect myself.
 
-E foram as minhas experiências que me tornaram o que sou, um contador de
-histórias e palestrante internacional.
+And it was my experiences that made me what I am, an accountant of
+stories and international speaker.
 
-Meu trabalho, hoje, só existe porque conto esta minha narrativa de generosidade
-e superação. O ser humano tem predisposição para o bem. É só olhar direito para
-ver que todos possuem uma capacidade de superação fantástica.
+My work today only exists because I tell this narrative of generosity
+and overcoming. The human being is predisposed to good. Just look right at
+see that everyone has a fantastic resilience.
 
                                    *   *   *
 
-A história do menino, recordista de fugas da FEBEM, é verdadeiramente
-fantástica. E tudo mudou a partir de um ato de generosidade.
+The story of the boy, febem's record holder of escapes, is truly
+Fantastic. And everything changed from an act of generosity.
 
-Depois foi superação, autoestima elevada e vontade de retribuir o bem recebido.
+Then it was overcoming, high self-esteem and willingness to repay the well received.
 
 ## Source
 Redação do Momento Espírita, com base no texto

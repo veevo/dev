@@ -13,90 +13,90 @@ topics:
 - family
 ---
 
-Comenta-se, excessivamente, quanto à necessidade do lazer, como medida de
-repouso e de renovação de forças.
+It is overly commented on the need for leisure as a measure of
+rest and renewal of forces.
 
-Lazer, sim; ociosidade, não.
+Leisure, yes; idleness, no.
 
-O homem é, biologicamente, preparado e programado para a ação e não para o
-repouso.
+Man is biologically prepared and programmed for action and not for the
+Home.
 
-O dinamismo vitaliza-o, desenvolve-o, enquanto que a imobilidade enfraquece-o,
-atrofia-o.
+Dynamism vitalizes it, develops it, while immobility weakens it,
+atrophy it.
 
-Lazer não significa falta de atividade, mas mudança física, emocional e
-intelectual de atitude, de trabalho.
+Leisure does not mean lack of activity, but physical, emotional and
+intellectual attitude, work.
 
-A ação motiva a vida; o repouso desestimula-a.
+Action motivates life; the home discourages it.
 
-O lazer é necessário para facilitar o relaxamento das tensões, para
-possibilitar a reflexão, a programação de novas atividades.
+Leisure is necessary to facilitate the relaxation of tensions, in order to
+enable reflection, the programming of new activities.
 
-Mas não é eficaz somente quando se realiza em estações balneárias, campos de
-desportos, praias, montanhas, viagens bem concorridas.
+But it is not effective only when it takes place in balnearia stations,
+sports, beaches, mountains, well-covered trips.
 
-Esses mecanismos de lazer obedecem a exigências de mercados que vendem emoções
-novas, produzindo outros estados de angústia, de ansiedade, de cansaço.
+These leisure mechanisms comply with market requirements that sell emotions
+producing other states of anguish, anxiety, tiredness.
 
-O lar e a família, o refúgio num lugar solitário, a música, o silêncio e a  
-prece, propiciam estados íntimos de lazer com excelentes resultados para a
-renovação pessoal.
+The home and the family, the refuge in a lonely place, music, silence and  
+provide intimate leisure states with excellent results for the
+personal renewal.
 
-Há organizações especializadas em lazer, que desumanizam o indivíduo, que passa
-a ser manipulado por especialistas que lhe impõe o que lhes parece melhor e não
-aquilo que, de fato, cada homem quer e necessita.
+There are organizations specialized in leisure, which dehumanize the individual, who
+to be manipulated by experts who impose so on it what seems best to them and not
+what, in fact, every man wants and needs.
 
-Apoiando-se no lazer para evitar a neurose do trabalho, os que param de atuar
-quase sempre se tornam vítimas da neurose da falta do que fazer.
+Relying on leisure to avoid the neurosis of work, those who stop acting
+almost always become victims of neurosis of lack of what to do.
 
-E é por essa razão que muitos tiram férias e viajam, se refugiam em recantos
-naturais, praticam esportes dos mais variados, e voltam mais cansados e
-infelizes do que antes.
+And that's why many take vacations and travel, take refuge in nooks
+do sports of the most varied, and come back more tired and
+unhappy than before.
 
-Por que isso ocorre?
+Why does this happen?
 
-É justamente porque o repouso significa a mudança de atividade. Mas de nada
-vale mudar de atividade e levar na mente as várias preocupações e neuroses do
-dia-a-dia.
+It is precisely because rest means the change of activity. But of nothing
+is worth changing activity and taking in mind the various concerns and neuroses of the
+day-to-day.
 
-O ser humano não é como um aparelho eletrônico, que basta acionar um botão para
-desligar. Se fosse assim seria fácil e prático.
+The human being is not like an electronic device, which just triggera button to
+Hang up. If that were the case, it would be easy and practical.
 
-A mente humana é esse mecanismo que leva em si mesma os elementos de calma e
-tranquilidade ou motivos de preocupações e ansiedades, para onde quer que vá.
+The human mind is this mechanism that takes in itself the elements of calm and
+tranquility or reasons for worries and anxieties, wherever you go.
 
-Por essa razão, a mudança de ambiente ou de cidade, por si só, não resolve o
-problema do estresse, nem oferece o descanso necessário.
+For this reason, the change of environment or city alone does not solve the
+stress problem, nor does it offer the necessary rest.
 
-É preciso oferecer lazer e descanso também à mente. Além de mudar as atividades
-rotineiras, é preciso ter uma certa consciência tranquila.
+It is necessary to offer leisure and rest also to the mind. In addition to changing activities
+routine, it is necessary to have a certain quiet awareness.
 
-É cumprir com suas obrigações diárias; ter organização e disciplina no
-trabalho, não sobrecarregando os colegas com deveres que são seus.
+It is to fulfill your daily obligations; have organization and discipline in the
+not overloading colleagues with duties that are theirown.
 
-É estar bem com os afetos, com as responsabilidades assumidas, com as contas em
-dia.
+It is to be well with the affections, with the responsibilities assumed, with the accounts in
+Day.
 
-A não ser assim, você poderá fugir da cidade, do país, do planeta, mas quando
-apoiar a cabeça para o repouso tão desejado, perceberá que levou consigo os
-verdadeiros motivos do seu estresse e da sua ansiedade.
+Unless so, you can escape the city, the country, the planet, but when
+support the head for the much desired rest, you will realize that you took with you the
+reasons for their stress and anxiety.
 
-Buscar momento de lazer, sim. Mas, fugir de si mesmo é uma tentativa que não
-funciona.
+Seek a moment of leisure, yes. But, running away from yourself is an attempt that does not
+Works.
 
                                    *   *  *
 
-O trabalho, longe de ser motivo de cansaço e estresse, é valioso tesouro que
-nos propicia viver com dignidade, dando utilidade às horas.
+Work, far from being cause for tiredness and stress, is valuable treasure that
+it provides us with dignity, giving useful ness to the hours.
 
-Nesses momentos de mais lazer e ociosidade que trabalho, merece consideração o
-ensino de Jesus:  O Pai até hoje trabalha e eu também trabalho.
+In these moments of more leisure and idleness that I work, deserves consideration the
+teaching of Jesus: The Father to this day works and I also work.
 
-Com isso, podemos concluir que o trabalho não é um castigo nem deve ser
-encarado como uma obrigação indesejável, mas como fator indispensável para o
-progresso e a evolução do ser.
+With this, we can conclude that work is not a punishment nor should it be
+regarded as an undesirable obligation, but as an indispensable factor for the
+progress and the evolution of being.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. 25, do livro

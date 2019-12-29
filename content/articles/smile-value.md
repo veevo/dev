@@ -6,89 +6,89 @@ topics:
 - seriousness
 ---
 
-Não custa nada e rende muito.
+It costs nothing and yields much.
 
-Enriquece quem o recebe, sem empobrecer quem o dá.
+It enriches those who receive it without impoverishing who gives it.
 
-Dura somente um instante, mas seus efeitos perduram para sempre.
+It only lasts an instant, but its effects last forever.
 
-Ninguém é tão rico que dele não precise. Ninguém é tão pobre que não o possa
-dar a todos.
+No one's so rich he doesn't need it. No one is so poor that i can't
+give to everyone.
 
-Leva a felicidade a todos e a toda parte.
+It brings happiness to everyone and everywhere.
 
-É o símbolo da amizade, da boa vontade. É alento para os desanimados, repouso
-para os cansados, raio de sol para os tristes, consolo para os desesperados.
+It's the symbol of friendship, of goodwill. It is encouragement for discouraged, home
+for the weary, sunshine for the sad, comfort to the desperate.
 
-Não se compra nem se empresta.
+You don't buy or lend yourself.
 
-Nenhuma moeda do mundo pode pagar seu valor.
+No currency in the world can pay its value.
 
-Você já sabe do que se trata?
+Do you know what this is about?
 
-Trata-se de um sorriso.
+It's a smile.
 
-E não há ninguém que precise tanto de um sorriso como aqueles que não sabem
-mais sorrir.
+And there's no one who needs a smile as much as those who don't know
+more smile.
 
-Aqueles que perderam a esperança. Os que vagueiam sem rumo. Os que não
-acreditam mais que a felicidade é algo possível.
+Those who have lost hope. Those who wander aimlessly. Those who do not
+believe more that happiness is something possible.
 
-É tão fácil sorrir! Tudo fica mais agradável se em nossos lábios há um sorriso.
+It's so easy to smile! Everything gets nicer if on our lips there is a smile.
 
-Tudo fica mais fácil se houver nos lábios dos que convivem conosco um sorriso
-sincero.
+Everything gets easier if there is on the lips of those who coexist with us a smile
+Sincere.
 
-Alguns de nós pensamos que só devemos sorrir para as pessoas com as quais
-simpatizamos.
+Some of us think we should only smile at the people with whom
+we sympathize.
 
-São tantas as que cruzam nosso caminho diariamente. Algumas com o cenho
-carregado por levar no íntimo as amarguras da caminhada áspera. Poderemos
-colaborar com um sorriso aberto, no mínimo para que essa pessoa se detenha e
-perceba que alguém lhe sorri, já que o sorriso é um alento.
+There are so many who cross our path daily. Some with the spark
+carried by taking in the intimate the bitterness of the rough walk. Can
+collaborate with an open smile, at least so that that person may stop and
+realize that someone smiles at you, since the smile is a boost.
 
-Sorrir ao atender os pequeninos que acorrem nos semáforos à procura de moedas.
+Smile as you meet the little ones who run at the traffic lights looking for coins.
 
-É tão triste ter que mendigar e mais triste ainda é receber palavras e gestos
-agressivos como resposta.
+It's so sad to have to beg and even sadder is to receive words and gestures
+aggressive as an answer.
 
-Se é verdade que essa situação nos incomoda, não é menos verdade que não
-gostaríamos de estar no lugar deles.
+If it is true that this situation bothers us, it is no less true that it does not
+we'd like to be in their shoes.
 
-Eles são tão pequeninos!
+They're so tiny!
 
-Se têm a malícia dos adultos é porque os adultos os induzem a isso. Mas no
-íntimo são inocentes treinados para parecer espertos, em meio às situações mais
-adversas.
+If they have the malice of adults, it's because adults induce them to do it. But in the
+are innocent strained to look smart, amid more
+Adverse.
 
-O sorriso é uma arma poderosa, da qual nos podemos servir em todas as
-situações.
+Smile is a powerful weapon, from which we can serve ourselves in all
+Situations.
 
-Se, ao levantarmos pela manhã, cumprimentarmos os familiares com um largo
-sorriso, nosso dia certamente será melhor, mais alegre.
+If, as we get up in the morning, we greet the family members with a wide
+smile, our day will certainly be better, more joyful.
 
-Se, ao entrarmos no elevador, saudarmos com um sorriso os que seguem conosco,
-ao invés de fecharmos o rosto e olharmos para cima ou para baixo, na tentativa
-de desviar os olhares, com certeza o nosso dia será mais feliz. Porque todos
-nos verão com simpatia e nos endereçarão energias salutares.
+If, as we enter the elevator, we greet with a smile those who follow with us,
+rather than close our faces and look up or down in an attempt
+to look away, surely our day will be happier. Because everyone
+you will see us with sympathy and address us healthy energies.
 
-O sorriso é sempre bom para quem sorri e melhor ainda para quem o recebe.
+The smile is always good for those who smile and even better for those who receive it.
 
-O sorriso tem o poder de fazer mais amena a nossa caminhada.
+The smile has the power to make our walk more mild.
 
-Dessa forma, se não temos o hábito de levar a vida sorrindo, comecemos a
-cultivá-lo, e veremos que sem que mude a situação à nossa volta, nós,
-intimamente, nos sentiremos mais felizes.
+That way, if we don't have a habit of taking our lives smiling, let's start
+cultivate it, and we will see that without changing the situation around us, we,
+intimately, we will feel happier.
 
                                    *   *   *
 
-O cenho carregado, ou seja, a cara amarrada, como se costuma dizer, traz ao
-corpo um desgaste maior que o promovido pelo sorriso.
+The loaded spark, that is, the face tied, as they say, brings to the
+body a wear greater than that promoted by smile.
 
-Isto quer dizer que, quando sorrimos, utilizamos menos músculos e fazemos menos
-esforços.
+This means that when we smile, we use fewer muscles and do less
+Efforts.
 
-Assim sendo, até por uma questão de economia, é mais vantajoso sorrir.
+Therefore, even for the sake of economics, it is more advantageous to smile.
 
 
 

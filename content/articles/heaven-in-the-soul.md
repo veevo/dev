@@ -17,105 +17,105 @@ topics:
 - prayer
 ---
 
-A crença mais difundida entre os homens identifica o céu como um local
-determinado no espaço.
+The most widespread belief among men identifies heaven as a place
+determined in space.
 
-Para lá seguiriam as almas dos eleitos.
+That way they would follow the souls of the elect.
 
-O aspecto e o conteúdo desse lugar refletem ideais de prazer material das
-diversas culturas existentes na Terra.
+The appearance and content of this place reflect the material pleasure ideals of
+different cultures existing on Earth.
 
-Algumas dessas culturas afirmam que cada homem terá diversas virgens à sua
-disposição.
+Some of these cultures claim that every man will have several virgins to his
+Disposal.
 
-Outras sustentam que o paraíso é repleto de anjos tocando harpas.
+Others argue that paradise is filled with angels playing harps.
 
-Em eterna contemplação, as almas se refestelariam no ócio.
+In eternal contemplation, souls are refined in idleness.
 
-Tais concepções refletem o desejo de saciar inúmeros vícios, como gula,
-preguiça e sensualidade.
+Such conceptions reflect the desire to satisfy numerous vices, such as gluttony,
+laziness and sensuality.
 
-Contudo, não é possível conceber que almas sublimes encontrem alegria em nada
-fazer ou em satisfazer paixões.
+However, it is not possible to conceive that sublime souls find joy in anything
+or in satisfying passions.
 
-O que caracteriza os grandes homens é a sua dignidade e o seu incansável labor
-em favor dos semelhantes.
+What characterizes great men is their dignity and their tireless work
+in favour of the like ones.
 
-Não é crível que a morte física os degenere.
+It's not believable that physical death degenerates them.
 
-E que a partir dela se tornem rematados desocupados cheios de vícios.
+And that from it become unoccupied shot full of vices.
 
-Consequentemente, o paraíso não pode ser um local de ócio e desfrutes.
+Consequently, paradise cannot be a place of idleness and enjoy.
 
-Na verdade, o céu não é um lugar delimitado.
+In fact, heaven is not a delimited place.
 
-A evolução científica evidencia a impossibilidade dele se situar no alto das
-nuvens, como durante certo tempo se concebeu.
+Scientific evolution shows the impossibility of it being at the top of the
+clouds, as for a certain time it was conceived.
 
-O homem gradualmente explora recantos cada vez mais longínquos, sem perigo de
-encontrá-lo.
+Man gradually explores increasingly distant corners, without danger of
+find him.
 
-Tendo em mente que o que sobrevive à matéria é o Espírito, suas recompensas e
-penúrias devem ser todas imateriais.
+Bearing in mind that what survives matter is the Spirit, its rewards, and
+penurys should all be immaterial.
 
-A rigor, o céu é um estado de consciência.
+Strictly speaking, heaven is a state of consciousness.
 
-Não é preciso desencarnar para estar no céu ou no inferno.
+You don't have to disembody to be in heaven or hell.
 
-Cada homem traz, nas profundezas do próprio ser, a grandeza ou a miséria
-resultantes de seus atos.
+Every man brings, in the depths of one's own being, greatness or misery
+resulting from their acts.
 
-Um homem honrado experimenta plenitude interior onde quer que se encontre.
+An honorable man experiences inner fullness wherever he is.
 
-Já um celerado permanece em sobressalto mesmo no mais luxuoso dos palácios.
+A speedy one remains in a shimshes even in the most luxurious of the palaces.
 
-O céu é um estado de harmonia com as Leis Divinas.
+Heaven is a state of harmony with divine laws.
 
-Tais Leis são reveladas pela natureza e encontram-se inscritas na consciência
-de cada ser.
+Such Laws are revealed by nature and are inscribed in the consciousness of
+of each being.
 
-A semelhança em face da dor, da doença e da morte revela que todos os homens
-são essencialmente iguais.
+The similarity in the face of pain, disease and death reveals that all men
+are essentially the same.
 
-As diferenças de caracteres refletem o bom ou mau aproveitamento das anteriores
-encarnações.
+Character differences reflect the good or misuse of the previous
+Incarnations.
 
-Todos os Espíritos foram criados em estado de total simplicidade.
+All Spirits were created in a state of total simplicity.
 
-E todos fatalmente se tornarão anjos de amor e sabedoria.
+And everyone will fatally become angels of love and wisdom.
 
-As desigualdades são transitórias e retratam o esforço individual.
+Inequalities are transient and portray individual effort.
 
-Quem gastou bem o tempo acumulou tesouros intelectuais e morais.
+Those who spent their time well accumulated intellectual and moral treasures.
 
-Aquele que se permitiu viver na leviandade ressente-se das oportunidades que
-desperdiçou.
+He who allowed himself to live in the levity resents the opportunities that
+Wasted.
 
-Os vícios e paixões que porta são a herança que preparou para si.
+The vices and passions that door are the heritage you have prepared for yourself.
 
-A igualdade essencial dos seres indica um dever de solidariedade.
+The essential equality of beings indicates a duty of solidarity.
 
-O homem mais avançado precisa auxiliar os que seguem na retaguarda.
+The most advanced man needs to assist those who follow in the rear.
 
-Trata-se de um dever elementar de Humanidade, não de um favor.
+This is an elementary duty of humanity, not a favor.
 
-Esse auxílio não se cinge a esmolas, muitas vezes humilhantes.
+This aid is not cinged to alms, often humiliating.
 
-Nem reflete conivência com equívocos.
+It doesn't even reflect collusion with misconceptions.
 
-A criatura consciente necessita dar exemplos de dignidade e trabalho.
+The conscious creature needs to give examples of dignity and work.
 
-Também precisa demonstrar compaixão com os semelhantes.
+It also needs to show compassion with the likeones.
 
-Auxiliá-los a perceber os próprios equívocos e a repará-los.
+Help them understand their own misconceptions and repair them.
 
-Quem é honesto, trabalhador e solidário realiza a tarefa que lhe cabe no
-concerto da vida.
+Who is honest, hardworking and supportive performs the task that belongs to him in the
+concert of life.
 
-Harmoniza-se com sua consciência e vive em estado de plenitude.
+Harmonizes with your conscience and lives in a state of fullness.
 
-Acerta-se com o passado e descobre a alegria que é trazer uma larga faixa de
-céu no coração.
+It is right with the past and discovers the joy it is to bring a wide range of
+heaven in the heart.
 
 ## Source
 Redação do Momento Espírita.

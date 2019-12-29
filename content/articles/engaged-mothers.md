@@ -12,76 +12,76 @@ topics:
 - mother
 ---
 
-As bandeiras que elas levantam são diferentes. As causas que abraçam são as
-mais variadas possíveis. Porém, sua intenção nobre é sempre a mesma: amparo
-mútuo e se transformar em instrumento útil, numa sociedade tão individualista.
+The flags they raise are different. The causes they embrace are the
+as many as possible. However, his noble intention is always the same: support
+and become a useful tool in such an individualistic society.
 
-Cada vez mais vemos, nas redes sociais, grupos de mães se unirem para trocar
-experiências, para defenderem minorias, para exigirem direitos nessa ou naquela
-esfera, dando grande exemplo de cidadania e fraternidade.
+We see, on social networks, groups of mothers coming together to exchange
+experiences, to defend minorities, to demand rights in that or that
+sphere, giving great example of citizenship and fraternity.
 
-Basta uma dizer que precisa de algo, ou trazer alguma necessidade especial ou
-emergencial de algum conhecido seu, que a mobilização é imediata e espantosa.
-Tudo se consegue. Nada é impossível.
+Just say you need something, or bring some special need or
+of some known of his, that mobilization is immediate and astounding.
+All you can do is. Nothing is impossible.
 
-Desde alimentos, passando por roupas de criança, objetos, móveis, até
-profissionais da área médica que atendam determinada especialidade. Num grupo
-grande, alguém sempre conhece alguém que pode resolver.
+From food, through children's clothes, objects, furniture, to
+medical professionals who meet a particular specialty. In a group
+great, someone always knows someone who can solve.
 
-E isso não fica apenas no campo da carência material ou de informações. Isso se
-estende ao campo emocional também, pois se tornam amigas, mesmo muitas delas
-não se conhecendo pessoalmente.
+And that's not just in the field of material or information shortages. That's if
+extends to the emotional field too, because they become friends, even many of them
+not knowing each other personally.
 
-Mães de crianças especiais, por exemplo, que passam por momentos delicados
-enfrentando as primeiras experiências, não sabendo como lidar com isso ou
-aquilo, encontram nas outras companheiras de caminho a guarida necessária para
-saberem que não estão sozinhas.
+Mothers of special children, for example, who go through delicate moments
+facing the first experiences, not knowing how to deal with it or
+they find in the other companions on their way to the necessary shelter to
+know they're not alone.
 
-Intercambiam suas experiências do dia a dia, indicam médicos, terapeutas,
-brinquedos educativos, cursos. Criam um grande banco de dados útil para todo o
-grupo. Tudo de uma forma natural, espontânea, em clima de muita amizade.
+Exchange your day-to-day experiences, doctors, therapists indicate,
+educational toys, courses. They create a large database useful for the entire
+Group. All in a natural, spontaneous way, in a climate of great friendship.
 
-Mães com filhos adolescentes, que ainda não descobriram como lidar com certos
-comportamentos, que tentaram terapias, conversas, castigos, encontram lá longe
-- mas ao mesmo tempo tão perto – outras mãezinhas que passam pelas mesmas
-agonias.
+Mothers with teenage children, who have not yet figured out how to deal with certain
+behaviors, which have tried therapies, conversations, punishments, find far away
+- but at the same time so close -- other little mothers who go through the same
+Agonies.
 
-Conversam; trocam experiências; se ajudam; ouvem-se e assim encontram forças
-para não desistir da tarefa tão importante que o Criador lhes confiou.
+Talk; exchange experiences; help themselves; they hear themselves and thus find forces
+not to give up the task so important that the Creator entrusted them.
 
-Mães de abaixo-assinados; mães de passeatas; mães de reuniões com diretores de
-escolas; mães de e-mails a políticos; mães que não têm tempo para nada, mas
-conseguem um tempinho umas para as outras.
+Mothers of petitions; mothers of marches; mothers of meetings with directors of
+schools; mothers of emails to politicians; mothers who have no time for anything but
+they can get a little time for each other.
 
-Tudo pelo grande amor que dedicam aos seus filhos.
+All for the great love they dedicate to their children.
 
-Isso é fraternidade, isso é a mais pura expressão de amor. Esse é o espírito da
-nova era que chega.
+That's fraternity, that's the purest expression of love. That is the spirit of
+new era that arrives.
 
-É por essa razão que as novas tecnologias nos chegaram, para que pudéssemos
-lhes dar um fim nobre, útil, em prol de todos.
+That is why the new technologies have come to us, so that we could
+give them a noble, useful end to all.
 
-Espelhemo-nos no exemplo dessas mães incríveis e sua disposição fora do comum
-para auxiliar o próximo.
+Mirror us in the case of these amazing mothers and their unusual disposition
+to assist the next one.
 
-O mal ainda nos assusta. Porém, lembremos que o bem, mobilizado, será
-insuperável, quando quisermos.
+Evil still scares us. However, let us remember that the good, mobilized, will be
+insurmountable, whenever we want.
 
                                    *   *   *
 
-Mãe lutadora,
+Mother fighter,
 
-Servir é nobre forma de amor.
+Serving is a noble form of love.
 
-E cada segundo dedicado ao teu filho,
+And every second dedicated to your son,
 
-É uma pequena chama que se acende em tua alma.
+It's a little flame that lights up in your soul.
 
-Por isso toda alma de mãe é iluminada,
+That's why every mother's soul is enlightened,
 
-Não feito luz de lua, refletida,
+Unmade moon light, reflected,
 
-Mas como a luz de estrela, conquistada e merecida.
+But like the star light, conquered and deserved.
 
 ## Source
 Redação do Momento Espírita.

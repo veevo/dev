@@ -15,90 +15,90 @@ topics:
 ---
  
 
-Você aproveita a vida?
+Do you enjoy your life?
 
-É muito comum ouvir as pessoas e, principalmente os jovens, dizendo que querem
-aproveitar a vida. E isso geralmente é usado como desculpa para eximir-se de
-assumir responsabilidades.
+It is very common to listen to people and especially young people, saying they want to
+enjoy life. And this is usually used as an excuse to exempt yourself from
+take responsibility.
 
-Mas, afinal de contas, o que é aproveitar a vida?
+But, after all, what is enjoying life?
 
-Para uns é matar-se aos poucos com as comilanças, bebidas alcoólicas, fumo e
-outras drogas.
+For some is to kill each other little by little with the comispears, alcoholic beverages, smoke and
+other drugs.
 
-Para outros é arriscar a vida em esportes perigosos, noitadas de orgias,
-consumir-se nos prazeres carnais.
+For others is risking life in dangerous sports, night out of,
+consume yourself in carnaium pleasures.
 
-Talvez isso se dê porque muitos de nós não sabemos porque estamos na Terra. E,
-por essa razão, desperdiçamos a vida em vez de aproveitá-la.
+Maybe that's because a lot of us don't know why we're on Earth. And
+for that reason, we waste our lives instead of enjoying it.
 
-Certo dia, um jovem que trabalhava em uma repartição pública, na companhia de
-outros colegas que costumavam se reunir todos os finais de expediente para
-beber e fumar à vontade, foi convidado a acompanhá-los.
+One day, a young man who worked in a public office, in the company of
+other colleagues who used to meet all the end-of-office hours to
+drinking and smoking at will, was invited to accompany them.
 
-Ele agradeceu e disse que não bebia e que também não lhe agradava a fumaça do
-cigarro. Os demais riram dele e lhe perguntaram, com ironia, se a religião não
-lhe permitia, ao que ele respondeu: A minha inteligência é que me impede de
-fazer isso.
+He thanked him and said he did not drink and that he also did not like the smoke of the
+Cigarette. The others laughed at him and asked him, with irony, if religion did not
+allowed him, to which he replied: My intelligence is that prevents me from
+do that.
 
-E que inteligência é essa que não lhe permite aproveitar a vida? Perguntaram os
-colegas.
+And what intelligence is that that doesn't allow you to enjoy life? They asked the
+Colleagues.
 
-O rapaz respondeu com serenidade: E vocês acham que eu gastaria o dinheiro que
-ganho para me envenenar? Vocês se consideram muito espertos, mas estão pagando
-para estragar a própria saúde e encurtar a vida que, para mim, é preciosa
-demais.
-
-                                   *   *   *
-
-Observando as coisas sob esse ponto de vista, poderemos considerar que
-aproveitar a vida é dar-lhe o devido valor.
-
-É investir os minutos preciosos que Deus nos concede em atividades úteis e
-nobres.
-
-Quando dedicamos as nossas horas na convivência salutar com os familiares,
-estamos bem aproveitando a vida.
-
-Quando fazemos exercícios, nos distraímos no lazer, na descontração saudável,
-estamos dando valor à vida.
-
-Quando estudamos, trabalhamos, passeamos, sem nos intoxicar com drogas e
-excessos de toda ordem, estamos aproveitando de forma inteligente as nossas
-existências.
-
-Quando realmente gostamos de alguma coisa, fazemos esforços para preservá-la.
-Assim também é com relação à vida. E não nos iludamos de que a estaremos
-aproveitando acabando com ela.
-
-Se você é partidário dessa ideia, vale a pena repensar com seriedade em que
-consiste o aproveitamento da vida.
-
-E se você acha que os vícios lhe pouparão a existência, visite alguém que está
-se despedindo dela graças a um câncer de pulmão, provocado pelo cigarro.
-
-Converse com quem entrega as forças físicas a uma cirrose hepática causada
-pelos alcoólicos.
-
-Ouça um guloso inveterado que se encontra no cárcere da dor por causa dos
-exageros na alimentação.
-
-Visite um infeliz que perdeu a liberdade e a saúde para as drogas que o
-consomem lentamente.
-
-Observando a vida através desse prisma, talvez você mude o seu conceito sobre
-aproveitar a vida.
+The boy answered with serenity: And you think I would spend the money that
+gain to poison me? You consider yourself very smart, but you're paying
+to spoil one's own health and shorten life which, for me, is precious
+Too.
 
                                    *   *   *
 
-A vida é um poema de beleza, cujos versos são constituídos de propostas de luz,
-escritas na partitura da natureza, que lhe exalta a presença em toda parte.
+Looking at things from this point of view, we can consider that
+enjoying life is to give you the proper value.
 
-Em consequência, a oportunidade da existência física constitui um quadro à
-parte de encantamento e conquistas, mediante cuja aprendizagem o Espírito se
-embeleza e alcança os altos planos da realidade feliz.
+It is to invest the precious minutes that God grants us in useful activities and
+Noble.
 
- 
+When we dedicate our hours in the wholesome coexistence with family members,
+We're enjoying life.
+
+When we do exercises, we get distracted at leisure, healthy relaxation,
+we're valuing life.
+
+When we study, work, walk, without intoxicating ourselves with drugs and
+excesses of every order, we are intelligently taking advantage of our
+Stocks.
+
+When we really like something, we make efforts to preserve it.
+That's also about life. And let us not delude that we will be
+enjoying the end of her.
+
+If you are a supporter of this idea, it is worth seriously rethinking in which
+consists of the use of life.
+
+And if you think the vices will save you existence, visit someone who is
+saying goodbye to her thanks to a lung cancer caused by cigarettes.
+
+Talk to those who deliver physical forces to a liver cirrhosis caused
+by alcoholics.
+
+Listen to an inveterated gluttonous that is in the prison of pain because of the
+exaggerations in food.
+
+Visit an unhappy who has lost freedom and health for drugs that the
+consume slowly.
+
+Looking at life through this prism, maybe you change your concept about
+enjoy life.
+
+                                   *   *   *
+
+Life is a poem of beauty, whose verses are made up of proposals of light,
+written in the score of nature, which exalts him to the presence everywhere.
+
+As a result, the opportunity for physical existence is a framework for
+part of enchantment and achievements, through whose learning the Spirit
+embellishes and reaches the high planes of happy reality.
+
+
 
 ## Source
 Redação do Momento Espírita, com pensamentos finais extraídos do item Alegria

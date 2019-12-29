@@ -12,79 +12,79 @@ topics:
 ---
 
 
-O que será mais importante: vencer no mundo ou vencer o mundo?
+What will be more important: win in the world or win the world?
 
-Embora a pergunta apresente pequena sutileza entre uma situação e outra, o seu
-significado é profundamente distinto.
+Although the question presents little subtlety between one situation and another, its
+meaning is deeply distinct.
 
-Vencer no mundo ou vencer o mundo?
+Win the world or win the world?
 
-Grande parte de nós crê ser extremamente importante vencer no mundo, ou seja,
-vencer conforme os valores e padrões correntes no mundo.
+Much of us believe it is extremely important to win in the world, that is,
+beat according to current values and standards in the world.
 
-Talvez esse seja o motivo pelo qual abracemos padrões morais relativos, com os
-quais, o importante é alcançar nossos objetivos.
+Perhaps that's why we embrace relative moral standards, with the
+which, the important thing is to achieve our goals.
 
-Vencer no mundo é ter o brilho, o reconhecimento, o sucesso social e financeiro
-que ele pode nos oferecer.
+Winning in the world is having the brightness, recognition, social and financial success
+that he can offer us.
 
-Para isso, por vezes, para nossos atos não há limites, normalmente impostos
-pela moral e a ética. Por vezes, desrespeitamos, inclusive, determinações
-legais.
+For this, sometimes for our acts there are no limits, usually taxes
+morale and ethics. Sometimes we even disrespect
+Legal.
 
-Assim, podemos nos tornar donos de impérios econômicos, nos tornarmos famosos,
-aplaudidos, ícones disso ou daquilo, figuras públicas de projeção.
+So we can become owners of economic empires, become famous,
+applauded, icons of this or that, public projection figures.
 
-Podemos nos tornar referência como empresários, homens de negócios,
-empreendedores de sucesso.
+We can become a reference as businessmen, businessmen,
+successful entrepreneurs.
 
-Conquistamos o mundo, vencemos no mundo, e gozamos dos louros e prêmios dos
-triunfadores da Terra.
+We conquer the world, win in the world, and enjoy the laurels and awards of the
+triumphers of the Earth.
 
-Outros de nós, anônimos e discretos, optamos por vencer o mundo.
+Others of us, anonymous and discreet, chose to win the world.
 
-Entendemos que a vida é oportunidade para testar, desenvolver e fortalecer
-valores morais.
+We understand that life is an opportunity to test, develop and strengthen
+moral values.
 
-Sabemos que a vida é passageira e nos empenhamos em viver para vencer os
-desafios, tentações e dificuldades que ela nos apresenta.
+We know that life is fleeting and we strive to live to overcome the
+challenges, temptations and difficulties that it presents to us.
 
-A partir disso, pautamos nossa conduta em valores morais elevados, que elegemos
-como nosso guia e referencial de propósitos.
+From this, we guide our conduct on high moral values, which we elect
+as our guide and reference of purposes.
 
-Se propina nos é ofertada, em nome de um maior ganho, preferimos nos manter nos
-níveis da irrestrita honestidade.
+If tuition is offered to us, in the name of a higher gain, we prefer to keep us
+levels of unrestricted honesty.
 
-Se, nas relações sociais, a difamação poderia nos granjear certos benefícios ou
-posições sociais privilegiadas, optamos pela discrição e respeito ao próximo.
+If, in social relations, defamation could benefit us or
+privileged social positions, we opted for discretion and respect for others.
 
-Nas relações familiares, na educação dos filhos, haveremos de nos manter na
-pauta dos deveres, sem nos entregarmos a atitudes fúteis ou impensadas.
+In family relationships, in the education of children, we will be able to keep ourselves in the
+agenda of duties, without giving ourselves to futile or thoughtless attitudes.
 
-Naturalmente, esta segunda opção nos exigirá um preço.
+Of course, this second option will require us a price.
 
-Muitas vezes, seremos incompreendidos, mal interpretados, levados à conta de
-tolos e ingênuos, não sabendo reconhecer oportunidades valiosas de destaque.
+Often, we will be misunderstood, misinterpreted, taken into account of
+fools and naïve, not knowing how to recognize valuable opportunities of prominence.
 
-Possivelmente sofreremos o destempero dos que não conseguem entender a postura
-que assumimos, nem os valores que nos conduzem os dias.
+We may suffer the detemperof those who cannot understand the posture
+that we assume, nor the values that lead us to the days.
 
-Importante que, resolutos, permaneçamos sem nos permitir vencer pelas seduções
-tolas do mundo transitório.
+It is important that, resolute, we remain without allowing us to win by the seductions
+fools of the transient world.
 
-É Jesus que nos convida a perseverar até o fim.
+It is Jesus who invites us to endure to the end.
 
-Tende bom ânimo, eu venci o mundo, incentiva-nos o Bom Pastor.
+Have good cheer, I beat the world, encourages us the Good Shepherd.
 
-E nos oferece o roteiro de conduta para vencer o mundo.
+And it offers us the roadmap of conduct to win the world.
 
-Basta segui-lO, na cartilha de amor ao próximo que foi toda a Sua existência.
+Just follow him in the booklet of love for others that was his whole existence.
 
-Assim, mantenhamos o bom ânimo, quando as dificuldades surgirem, frutos da
-nossa boa conduta e correto agir.
+Thus, let us maintain good cheer, when the difficulties arise, fruits of
+our good conduct and correct act.
 
-Mantenhamos como nosso roteiro seguro o Evangelho do Mestre, e permaneçamos
-firmes, no reto proceder.
+Let us keep the Gospel of the Master safe, and remain
+firm, I don't challenge proceeding.
 
 ## Source
 Redação do Momento Espírita.

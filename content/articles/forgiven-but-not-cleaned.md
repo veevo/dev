@@ -22,85 +22,85 @@ topics:
 ---
  
 
-Em nossas faltas, na maioria das vezes somos imediatamente perdoados, mas não
-limpos.
+In our faults, most of the time we are immediately forgiven, but not
+Clean.
 
-Somos perdoados pelo fel da maledicência.
+We are forgiven by the fel of malevolence.
 
-Mas a sombra que lançamos na estrada alheia permanece dentro de nós por
-agoniado constrangimento.
+But the shadow we cast on the road of others remains within us for
+agony of embarrassment.
 
-Somos perdoados pela brasa da calúnia.
+We are forgiven by the embers of slander.
 
-Contudo, o fogo que arremessamos na cabeça do próximo passa a nos incendiar o
-coração.
+However, the fire we throw into the head of the next one sets us on fire to the
+Heart.
 
-Conseguimos o perdão pela grave ofensa que fizemos.
+We got the pardon for the serious offense we made.
 
-Entretanto, a pedra atirada ao irmão de caminhada volta, com certeza, a
-golpear-nos o próprio ser.
+However, the stone thrown at the walking brother returns, for sure, the
+strike us our own being.
 
-Somos perdoados pela falha de vigilância.
+We're forgiven for the surveillance failure.
 
-Mas o prejuízo em nossos vizinhos cobre-nos de vergonha.
+But the damage to our neighbors covers us with shame.
 
-Obtivemos perdão pela manifestação de fraqueza.
+We were given forgiveness for the manifestation of weakness.
 
-Mas o desastre que provocamos é dor moral que nos segue os dias.
+But the disaster we cause is moral pain that follows us the days.
 
-Somos perdoados por todos aqueles a quem ferimos, no delírio da violência.
+We are forgiven by all those whom we hurt, in the delirium of violence.
 
-No entanto, onde estivermos, é preciso extinguir os monstros do remorso que os
-nossos pensamentos articulam, desarvorados.
+However, wherever we are, we must extinguish the monsters of remorse that the
+our thoughts articulate, beesless.
 
-A chaga que abrimos na alma de alguém pode ser luz e renovação nesse mesmo
-alguém.
+The chaga we open in someone's soul can be light and renewal in that same
+Someone.
 
-Ele compreende, perdoa e se eleva.
+He understands, forgives and rises.
 
-Contudo, essa mesma chaga de aflição segue a pesar em nossa vida.
+However, this same scourge of affliction follows grief in our lives.
 
-Injúria aos semelhantes é flagelo mental que nos chicoteia.
+Injury to the like is mental scourge that whips us.
 
-A serpente carrega consigo o veneno que veicula.
+The snake carries with it the poison it carries.
 
-O escorpião guarda em si próprio a carga venenosa que segrega.
+The scorpion holds in itself the poisonous load it secretes.
 
-Podemos ser ridicularizados, atacados, perseguidos ou dilacerados.
+We can be ridiculed, attacked, persecuted or torn apart.
 
-Mas evitemos o mal, ainda quando ele assuma a feição de defesa.
+But let's avoid evil, even when he assumes the defense feature.
 
-Porque todo o mal que fizermos aos outros é mal a nós mesmos.
+Because all the harm we do to others is bad for ourselves.
 
-No contexto da vida maior, ninguém fere sem se ferir.
+In the context of life majeure, no one hurts without getting hurt.
 
-Quase sempre, aqueles que passaram pelos golpes de nossa irreflexão já nos
-perdoaram.
+Almost always, those who have gone through the blows of our thought already in the
+Forgave.
 
-Com esse proceder, repletaram-se de paz e seguiram em frente.
+With this proceeding, they were filled with peace and moved on.
 
-Abençoados pelo perdão que concederam, brilham nos planos superiores da
-existência.
+Blessed by the forgiveness they have given shine on the higher planes of the
+Existence.
 
-No entanto, pela lei da correspondência, ruminamos, por tempo indeterminado, os
-quadros sinistros que nós mesmos criamos.
+However, by the law of correspondence, we ruminate, indefinitely, the
+sinister frames that we create ourselves.
 
-Cada consciência vive e progride entre os seus próprios reflexos.
+Every consciousness lives and progresses between its own reflexes.
 
-Pureza, bondade e perdão são recompensas em si mesmas.
+Purity, kindness, and forgiveness are rewards in themselves.
 
-Traição, crueldade e calúnia são sempre um problema de quem as elege para si
-porque cada consciência traz em si o seu paraíso ou o seu inferno.
+Betrayal, cruelty and slander are always a problem of those who elect them to themselves
+because every consciousness brings in itself your paradise or hell.
 
-Em decorrência, no plano espiritual, até que se redima, é muito triste a
-situação de quem se fez culpado.
+As a result, on the spiritual level, until it is redimted, it is very sad to
+situation of those who became guilty.
 
-Com a consciência desperta e vibrante, sente-se na presença constante de suas
-vítimas e isso lhe constitui um suplício cruel.
+With awakened and vibrant consciousness, it feels in the constant presence of its
+victims and this constitutes a cruel torment to him.
 
-Para evitar viver algo semelhante, basta eleger o bem como padrão de conduta.
+To avoid living something similar, just elect the good as a standard of conduct.
 
-Pense nisso.
+Think about it.
 
 
 ## Source

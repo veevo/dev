@@ -9,92 +9,92 @@ topics:
 - family
 ---
 
-Qual o segredo para nunca envelhecer?
+What's the secret never to grow old?
 
-No anseio da eterna juventude não são poucos aqueles que recorrem aos mais
-diversos recursos.
+In the longing for eternal youth there are few those who turn to the most
+various resources.
 
-Os tratamentos clínicos, cirurgias, intervenções das mais variadas, com um
-único objetivo: tentar enganar o tempo.
+Clinical treatments, surgeries, interventions of the most varied, with a
+Only goal: try to cheat time.
 
-Ele porém, inexorável, parece teimar em não se deixar ludibriar.
+But he inexorable, seems to be stubborn about not letting himself be deceived.
 
-Logo mais, seu peso se faz sobre os ombros de todos, deixando marcas
-indeléveis.
+Soon further, his weight is made on everyone's shoulders, leaving marks
+Indelible.
 
-Porém, será mesmo possível manter-se sempre jovem?
+But is it really possible to always stay young?
 
                                    *   *   *
 
-Quem visse aquela senhora, de rosto amigável, conversa fácil, os cabelos
-brancos bem arranjados, não conseguiria imaginar os desafios que a vida lhe
-oferecera.
+Whoever saw that lady, with friendly face, easy talk, hair
+well-arranged whites, could not imagine the challenges that life gave him
+offered.
 
-Filha de imigrantes, criou-se na comunidade de ucranianos que chegaram ao país,
-junto com seus pais.
+The daughter of immigrants, she was raised in the community of Ukrainians who arrived in the country,
+along with his parents.
 
-Aprendera o idioma português depois dos oito anos, o que deixara marcas no seu
-linguajar, carregado de sotaque, como se estrangeira fosse.
+You'd learned the language Portuguese after eight years, which had left marks on your
+language, loaded with accent, as if foreign were.
 
-Casou-se nova, com outro imigrante, mantendo os laços com a comunidade e as
-raízes, das quais sempre se orgulhou.
+He married new, with another immigrant, maintaining ties with the community and
+roots, of which he has always prided himself.
 
-Com os filhos, e foram cinco ao todo, vieram grandes desafios.
+With their children, and there were five in all, great challenges came.
 
-Logo cedo, percebeu no marido tendências para o jogo.
+Early on, she noticed her husband's tendencies for the game.
 
-Seu desequilíbrio chegou ao ponto dela ter que sair às escuras, na madrugada,
-fugindo de credores, carregando apenas os filhos, a roupa do corpo, sem
-paradeiro.
+Her imbalance got to the point where she had to go out in the dark in the early hours of the morning,
+fleeing from creditors, carrying only the children, the clothes of the body, without
+Whereabouts.
 
-A esse vício, seguiu-se o do alcoolismo, tornando o marido, muitas vezes,
-alheio às responsabilidades e dificuldades do lar.
+This addiction followed that of alcoholism, making her husband often
+oblivious to the responsibilities and difficulties of the home.
 
-Em grande parte desses momentos, ela se via sozinha, a manter a família.
+In most of these moments, she saw herself, keeping her family.
 
-Não raro, os dias amanheciam sem que ela tivesse o que colocar na panela para
-alimentar os filhos na hora do almoço.
+Not often, the days dawned without her having what to put in the pan to
+children at lunchtime.
 
-Privou-se muitas vezes de comer, para que eles pudessem melhor se alimentar.
+He often deprived himself of eating, so they could better feed.
 
-Porém, nunca perdeu sua fé, sua alegria de viver, seu otimismo.
+However, he never lost his faith, his joy of living, his optimism.
 
-Jamais, ao longo de toda a existência, permitiu-se reclamar do que a vida lhe
-ofereceu.
+Never, throughout all existence, has it been allowed to complain about what life has been
+Offered.
 
-Ao contrário, sempre um bom conselho, uma reflexão salutar, uma história a
-entreter aqueles que a cercavam.
+On the contrary, always good advice, a salutary reflection, a history to
+entertain those around her.
 
-Viúva, com os filhos criados, outros foram seus ideais.
+Widow, with children raised, others were his ideals.
 
-Regularmente retornava à colônia de imigrantes de onde saíra, para levar
-dinheiro, comida ou roupas, que arrecadava com os mais próximos, para
-distribuir.
+He regularly returned to the immigrant colony from which he had left, to take
+money, food or clothing, which he collected from the closest, to
+Distribute.
 
-Fazia crochê como lazer e, do resultado, ela se utilizava para presentear,
-doar, favorecer a tantos.
+She crocheted as leisure and, from the result, she used to present herself,
+donate, favor so many.
 
-Aos setenta anos, decidiu criar um programa de rádio sobre a cultura de seus
-ancestrais.
+At the age of seventy, he decided to create a radio program on the culture of his
+Ancestors.
 
-Era para trazer alento aos velhos imigrantes, que tinham tantas saudades de seu
-país natal, justificava ela.
+It was to bring encouragement to the old immigrants, who missed their
+country, she justified.
 
-E, pessoalmente, buscou patrocínio, junto àqueles que conhecia, para financiar
-seu sonho.
+And personally, he sought sponsorship, with those he knew, to finance
+your dream.
 
-Durante mais de dez anos, até sua desencarnação, ela levou sua palavra amiga e
-doce, a todos que a ouviam no seu programa dominical.
+For more than ten years, until her disincarnation, she took her word friend and
+to all who listened to her on her Sunday show.
 
-E assim ludibriou o tempo.
+And so he deceived time.
 
-Assim morreu jovem, com mais de oitenta anos.
+So he died young, over eighty years old.
 
-Deixou a lição de que, se o envelhecimento do corpo é algo inevitável, o
-envelhecimento da alma e da mente é opção de cada um de nós.
+He left the lesson that if aging the body is something inevitable, the
+aging of the soul and mind is each of us' choice.
 
-Todo aquele que carrega sonhos, ideais nobres, objetivos a alcançar, não
-importa a idade, será sempre jovem, ludibriando o tempo com sabedoria.
+Anyone who carries dreams, noble ideals, goals to achieve, not
+matter age, will always be young, deceiving time wisely.
 
 ## Source
 Redação do Momento Espírita.

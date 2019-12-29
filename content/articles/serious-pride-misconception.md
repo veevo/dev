@@ -13,81 +13,81 @@ topics:
 - mother
 ---
 
-Raul era oftalmologista. Seus anos de clínica e cirurgia lhe haviam granjeado
-fama e dinheiro. Embora os aplausos do mundo, os trabalhos premiados, era um
-coração bondoso.
+Raul was an ophthalmologist. His years of clinical and surgery had earned him
+fame and money. Though the applause of the world, the award-winning works, was a
+kind heart.
 
-Jamais perguntava ao paciente se dispunha ou não de recursos amoedados para
-pagá-lo. Simplesmente o atendia.
+I never asked the patient whether or not he had a currency resource to
+pay it. I just answered him.
 
-Estudioso e pesquisador, os anos lhe permitiram aprimorar a técnica cirúrgica
-e, com alegria, via-se a devolver a vista a cegos.
+Scholar and researcher, the years have allowed him to improve the surgical technique
+and, with joy, he was seen returning sight to the blind.
 
-Seu mundo era a ciência, a família, e seus inumeráveis enfermos.
+His world was science, the family, and his innumerable sick.
 
-Uma de suas filhas se casou e se tornou mãe de uma linda menina. Os seus olhos
-eram formosíssimos e Raul se apaixonou pela neta. Sempre que possível, a tomava
-nos braços, saíam a passeio.
+One of her daughters married and became the mother of a beautiful girl. Your eyes
+were very beautiful and Raul fell in love with his granddaughter. Whenever possible, I took it
+in their arms, they went out walking.
 
-A menina, por sua vez, adorava o avô.
+The girl, in turn, loved her grandfather.
 
-Certo dia, a garota adoeceu gravemente. A enfermidade lhe afetou os olhos. Raul
-não comia, nem dormia. Ficava ao lado da doentinha, enquanto devorava os
-livros, buscando uma forma de devolver a luz para os olhos que eram sua própria
-vida.
+One day, the girl got seriously ill. The disease affected his eyes. Raul
+I didn't eat or sleep. It stood next to the sick, while devouring the
+books, seeking a way to return the light to the eyes that were their own
+Life.
 
-Sua habilidade conseguiu fazer com que ela voltasse a enxergar com um dos
-olhos. Mas o outro deslocou-se de sua órbita e ficou irremediavelmente perdido.
+Her ability was able to get her to see again with one of the
+Eyes. But the other moved from its orbit and was hopelessly lost.
 
-Raul pareceu enlouquecer.
+Raul seemed to go crazy.
 
-Logo ele, que devolvera a vista a tantos, se via impotente ante a tragédia da
-neta.
+Soon he, who had returned sight to so many, was impotent in the face of the tragedy of
+Net.
 
-Para que lhe servia a ciência? – Perguntava-se. Para nada.
+What was science for? " He wondered, for nothing.
 
-Acabrunhado, principiou por negar a se alimentar. Alguns dias ainda se serviu
-de água. Depois, passou a recusá-la também.
+Acabrunhado, he began by denying to feed. A few days still served
+water. Then he started refusing her, too.
 
-Murmurava entre dentes: Já não sirvo para nada. E quando não se serve para
-nada, é melhor deixar o lugar para outro.
+I muttered between teeth: I'm no good for anything anymore. And when it's not good for
+nothing, it's better to leave the place to another.
 
-Morreu de fome. Orgulho e rebeldia o perderam. Uma vida tão cheia de bênçãos
-jogada fora.
+He starved to death. Pride and rebellion lost him. A life so full of blessings
+thrown away.
 
-O orgulho o cegou. Ao se ver impotente para resolver o problema da neta, seu
-desespero chegou a um grau superlativo.
+Pride blinded him. By being powerless to solve the granddaughter's problem, his
+despair reached a superlative degree.
 
-Impossibilitado de servir a quem tanto amava, preferiu morrer. Não pôde
-suportar a ideia de sua pequenez, de seu poder limitado.
-
-                                   *   *   *
-
-O fato bem pode nos servir de alerta. Quantos nos cremos o suprassumo da
-sabedoria e não nos damos conta que, mesmo que abracemos a ciência toda da
-Terra, muito limitado ainda será nosso saber.
-
-Porque ante tantos mundos, tanta luz e grandeza do Universo, podemos
-simplesmente nos considerar alunos da grande universidade do infinito.
-
-O verdadeiro sábio é o que reconhece as suas conquistas, mas aquilata,
-igualmente, o quanto ainda lhe é desconhecido. Por isso se empenha a cada dia a
-galgar mais um degrau no conhecimento.
-
-Para o homem, tem sido algoz terrível o orgulho. Quantas mentes avantajadas,
-personalidades ilustres têm se perdido pelo orgulho.
-
-Orgulho que faz com que a criatura se creia infalível, insuperável. E, contudo,
-somente Deus, o Pai, é infalível, onipotente, por ser a perfeição absoluta.
+Unable to serve those he loved so much, preferred to die. Could not
+bear the idea of his smallness, of his limited power.
 
                                    *   *   *
 
-Todos os grandes heróis do pensamento, os mártires da fé e os santos da
-renúncia para alcançarem o êxito dos objetivos a que ligaram a existência, se
-firmaram na humildade, por saberem do pouco valor que representavam ante as
-grandes diretrizes da vida.
+The fact may well serve as a warning. Those who believe in the above-humanity of
+wisdom and we do not realize that even if we embrace the whole science of the
+Earth, very limited will still be our knowledge.
 
- 
+Because in the face of so many worlds, so much light and greatness of the Universe, we can
+simply consider us students of the great university of infinity.
+
+The true sage is what recognizes his achievements, but herelata,
+equally, how unknown it is to him. That is why it is committed every day to
+another step in knowledge.
+
+For man, pride has been somethingic. How many minds are advanced,
+illustrious personalities have been lost by pride.
+
+Pride that makes the creature crebelieve itself infallible, unsurpassed. And yet,
+only God the Father is infallible, omnipotent, because it is absolute perfection.
+
+                                   *   *   *
+
+All the great heroes of thought, the martyrs of faith and the saints of the
+waiver to achieve the success of the objectives to which they linked the existence, if
+established in humility, because they knew of the little value they represented in the face of
+guidelines of life.
+
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. Orgulho também é um erro, do livro

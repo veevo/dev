@@ -7,76 +7,76 @@ topics:
 - prayer
 ---
 
-As etapas de nossa vida sempre irão apresentar lições importantes para nosso
-aprendizado.
+The steps of our lives will always present important lessons for our
+Learning.
 
-Não há momento da existência onde não haja ensejo de crescimento pessoal,
-afinal, é esta a finalidade maior da vida.
+There is no time for existence where there is no opportunity for personal growth,
+after all, this is the greatest purpose of life.
 
-Natural que se apresentem períodos de semeadura e de investimento, marcados
-pela renúncia de momentos de lazer, das horas de ócio e amenidades.
+natural life that sowing and investment periods are presented, marked by the
+for the waiver of leisure moments, hours of leisure and amenities.
 
-Exigirão de nós dedicação e seriedade. Pedirão de nós constância e firmeza.
+They will require us dedication and seriousness. They will ask us for constancy and firmness.
 
-Esses dias trarão consigo as lições da disciplina, da perseverança, oferecendo
-oportunidade de maturidade nas escolhas e opções.
+These days will bring with them the lessons of discipline, perseverance, offering
+opportunity to mature in choices and options.
 
-Também haverá dias de conquista, sucesso e vitória. Esses nos oferecerão o
-sentimento de realização, de completude, de autorrealização.
+There will also be days of conquest, success and victory. These will offer us the
+sense of accomplishment, completeness, self-realization.
 
-Mas trarão igualmente oportunidades de aprendizado, nos oferecendo o ensejo de
-treinar a humildade, ao nos permitir a análise do quanto de orgulho, presunção
-e arrogância ainda existe em nós.
+But they will also bring opportunities for learning, offering us the opportunity of
+train humility by allowing us to analyze how much pride, presumption
+and arrogance still exists in us.
 
-Haverá, em nossa existência, dias de plena saúde, vigor físico e disposição.
+In our existence, there will be, in our existence, days of full health, physical vigor and disposition.
 
-Dias em que o corpo físico poderá ser exigido em sua plenitude, colocando-se
-como ferramenta ao nosso dispor.
+Days when the physical body may be required in its fullness, placing itself
+as a tool at our disposal.
 
-Esses momentos nos darão a chance de desenvolver o hábito do trabalho, o
-aprendizado da ocupação digna das nossas horas.
+These moments will give us a chance to develop the habit of work, the
+learning of the occupation worthy of our hours.
 
-Sem limitações impostas pela máquina física, teremos a oportunidade de incutir
-em nós os hábitos saudáveis da labuta honesta, do serviço no bem e para o bem.
+Without limitations imposed by the physical machine, we will have the opportunity to instill
+in us the healthy habits of honest toil, service in good and for good.
 
-Naturalmente, outros dias virão, nos quais a doença, as dificuldades orgânicas,
-os cerceamentos físicos se farão presentes.
+Of course, other days will come, in which the disease, organic difficulties,
+physical scumcerations will be present.
 
-Nesses dias, outras serão as lições que se apresentarão para o aprendizado.
+These days, others will be the lessons that will be presented for learning.
 
-Teremos a oportunidade de vivenciar a paciência, a resignação e a fé.
+We will have the opportunity to experience patience, resignation and faith.
 
-Junto a essas mestras incomparáveis, virá também a oportunidade mais intensa de
-desenvolver o hábito da oração, da meditação e autoconhecimento.
+Together with these incomparable masters, the most intense opportunity to
+develop the habit of prayer, meditation and self-knowledge.
 
-Serão as lições de convivência conosco mesmo, com nosso mundo íntimo, nossos
-valores e emoções.
+It will be the lessons of coexistence with ourselves, with our intimate world, our
+values and emotions.
 
-Vemos assim que a vida é rica em seu suceder de experiências e convites ao
-aprendizado.
+We see how life is rich in its succeeding experiences and invitations to the
+Learning.
 
                                    *   *   *
 
-Cada momento traz consigo suas lições, aquelas que a Providência Divina percebe
-serem as melhores e mais adequadas para nossa experiência existencial.
+Every moment brings with it his lessons, those that Divine Providence perceives
+are the best and best suited for our existential experience.
 
-Portanto, de forma alguma reclamemos do que nos sucede. Antes, reflitamos qual
-a lição que a vida nos convida a soletrar, a experienciar.
+So we don't complain about what happens to us. Rather, let's reflect which
+the lesson that life invites us to spell, to experience.
 
-Jamais maldigamos os acontecimentos que nos alcancem.
+Never curse the events that reach us.
 
-O que hoje nos surja como grande problema ou empecilho de difícil remoção, em
-verdade se constitui ferramenta de aprendizado e catapulta para novos patamares
-de lucidez e entendimento.
+What today emerges as a major problem or obstacle of difficult removal, in
+truth is a learning tool and catapult to new levels
+lucidity and understanding.
 
-Deus nos conhece a intimidade e aguarda sempre o momento propício para as
-lições mais apropriadas. Igualmente, sabe a que, exatamente, nos deve submeter,
-a fim de que cresçamos em intelecto e moral, no rumo do progresso.
+God knows us intimacy and always awaits the right moment for
+more appropriate lessons. Likewise, you know exactly that you must submit to us,
+so that we may grow in intellect and morals, towards progress.
 
-Nesse entendimento, agradeçamos à bondade Divina por tudo que nos sucede.
+In this understanding, let us thank Divine goodness for all that happens to us.
 
-Amparados pela fé, busquemos aproveitar todo momento de nossa existência para
-que as lições sejam apreendidas, pela mente e pelo coração.
+Supported by faith, let us seek to take advantage of every moment of our existence to
+lessons may be seized by the mind and heart.
 
 ## Source
 Redação do Momento Espírita.  

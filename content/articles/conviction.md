@@ -8,92 +8,92 @@ topics:
 - determination
 ---
 
-O homem se torna muitas vezes o que ele próprio acredita que é.
+Man often becomes what he believes he is.
 
-Se insisto em repetir para mim mesmo que não posso fazer uma determinada coisa,
-é possível que acabe me tornando realmente incapaz de fazê-la.
+If I insist on repeating to myself that I can't do a certain thing,
+it's possible that I end up making me really unable to do it.
 
-Ao contrário, se tenho a convicção de que posso fazê-la, certamente adquirirei
-a capacidade de realizá-la, mesmo que não a tenha no começo.
-
-                                   *   *   *
-
-As palavras atribuídas a Gandhi são um grande incentivo para a alma que deseja
-crescer.
-
-A convicção íntima determina o mundo que criamos fora de nós, determina o que
-somos e o que podemos ser.
-
-Segundo a definição de dicionário, convicção é essa certeza obtida por fatos ou
-razões, que não deixam dúvida e não dão lugar a objeções.
-
-Poderíamos então questionar: Como posso conseguir tal certeza íntima? Onde
-posso obter tais fatos, tais razões?
-
-Bem, se quisermos começar com os fatos, poderemos fazer um exercício de
-memória, e lembrar de quantas outras conquistas já fizemos.
-
-Poderemos vasculhar no passado, e perceber que somos vitoriosos, pois já
-sobrevivemos a muitos flagelos, e com isso conquistamos mais forças.
-
-O que muitos chamam de fé em si mesmo pode estar com sua base em fatos, sim.
-
-Muitas vezes parecemos esquecer de quantas coisas conquistamos com nossa
-determinação, nossa força de vontade, nossa insistência.
-
-Temos vitórias em nossa história, sim! É preciso localizá-las, e torná-las
-alicerces para as próximas.
+On the contrary, if I am convinced that I can do it, I will certainly acquire
+the ability to accomplish it, even if it does not have it at first.
 
                                    *   *   *
 
-Passando agora para as razões, a questão a ser analisada seria: Que razões
-alimentam minha certeza de conseguir, de ser capaz?
+The words attributed to Gandhi are a great incentive for the soul you want
+Grow.
 
-Podemos encontrar tais razões no Universo, em primeiro lugar.
+Intimate conviction determines the world we create outside of us, determines what
+we are and what we can be.
 
-Tudo no Universo, em todos seus elementos, respira evolução.
+According to the dictionary definition, conviction is this certainty obtained by facts or
+reasons, which leave no doubt and do not give rise to objections.
 
-Todas as leis, que regem cada acontecimento nele, proclamam evolução.
+We could then question: How can I achieve such intimate certainty? Where
+can I get such facts, such reasons?
 
-Dessa forma, entenderemos a afirmativa de Goethe: O Universo conspira a nosso
-favor.
+Well, if we want to start with the facts, we can do an exercise in
+memory, and remember how many other achievements we've made.
 
-Sim, tudo conspira para nossa evolução, para nosso crescer constante e certo.
+We can scour in the past, and realize that we are victorious, for already
+we survived many scourges, and with that we gain more strength.
 
-Por mais que certos fatos e experiências pareçam, numa primeira avaliação,
-desastres, males e desgraças sem razão, uma visão mais abrangente e profunda
-irá nos mostrar que não.
+What many call faith in themselves may be based on facts, yes.
 
-Todas as experiências da vida, das mais belas às mais tristes, nos fazem
-crescer, nos colocam nos trilhos da lei de evolução.
+We often seem to forget how many things we have achieved with our
+determination, our willpower, our insistence.
 
-Isso nos fará notar que sempre teremos razões para acreditar em nosso sucesso,
-pois ele é certo.
+We have victories in our history, yes! You have to locate them, and make them
+foundations for the next.
 
-Em que momento virá? Eis uma questão cuja resposta é de cada um.
+                                   *   *   *
 
-Acreditar em nossas forças, ter convicção, é crer em Deus, da forma mais bela e
-madura possível.
+Now moving on to the reasons, the question to be examined would be: What reasons
+feed my certainty of getting, to be able?
 
-Acreditar em nossas forças é compreender as leis do Universo e se encantar com
-elas, dia após dia, em seus mais surpreendentes detalhes.
+We can find such reasons in the Universe in the first place.
 
-Se uma convicção sincera habitar nossa alma, nos descobriremos capazes de
-coisas inimagináveis até agora.
+Everything in the Universe, in all its elements, breathes evolution.
 
-Somos deuses potenciais descobrindo nossos poderes.
+All laws, which govern every event in it, proclaim evolution.
 
- 
+In this way, we will understand Goethe's statement: The Universe conspires to our
+Favor.
 
-## Você sabia? 
+Yes, everything conspires for our evolution, for our growing constant and right.
 
-A palavra entusiasmo é, sem dúvida, uma das mais belas inventadas pelo homem.
+As much as certain facts and experiences seem, in a first assessment,
+disasters, evils and misfortunes for no reason, a more comprehensive and profound view
+will show us no.
 
-Em sua etimologia vamos encontrar o grego in theus, isto é, ter Deus dentro de
-nós, ter tônus vital, energia.
+All the experiences of life, from the most beautiful to the saddest, make us
+grow, put us on the rails of the law of evolution.
 
-Isso nos leva a perceber que junto de nossas forças íntimas está sempre Deus,
-nos impulsionando para frente.
+This will make us note that we will always have reason to believe in our success,
+for he's right.
+
+When are you coming? Here's a question whose answer is everyone's.
+
+To believe in our strength, to have conviction, is to believe in God, in the most beautiful and
+mature possible.
+
+To believe in our strengths is to understand the laws of the Universe and to be enchanted by
+them, day after day, in their most amazing details.
+
+If a sincere conviction dwells our souls, we will discover ourselves capable of
+unimaginable things so far.
+
+We are potential gods discovering our powers.
+
+
+
+## Did you know? 
+
+The word enthusiasm is undoubtedly one of the most beautiful invented by man.
+
+In his etymology we will find the Greek in theus, that is, to have God within
+we, have vital tone, energy.
+
+This leads us to realize that together with our intimate forces is always God,
+propelling us forward.
 
 ## Source
 Redação do Momento Espírita, com base em trecho

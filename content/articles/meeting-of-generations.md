@@ -22,77 +22,77 @@ topics:
 ---
 
 
-Sabemos que é na família que está a base da construção do caráter e também a
-educação dos sentimentos da criança e do jovem.
+We know that it is in the family that is the basis of character building and also the
+education of the feelings of the child and the young.
 
-O lar é, por excelência, uma grande e abençoada escola, uma instituição humana
-educativa na qual aprendemos a amar pais, filhos e irmãos para, um dia,
-ampliarmos esse amor a toda a Humanidade.
+The home is, par excellence, a great and blessed school, a human institution
+in which we learn to love parents, children and brothers to, one day,
+to broaden this love to all humanity.
 
-A família é oportunidade, concedida por Deus, de reajustes do passado e de
-consolidação do afeto.
+The family is the opportunity, granted by God, of readjustments of the past and
+consolidation of affection.
 
-O processo de educação é relativo pois, ao mesmo tempo em que pais e mães estão
-educando seus filhos, estão também crescendo individualmente.
+The education process is relative because, at the same time that fathers and mothers are
+educating their children, are also growing individually.
 
-A ingenuidade infantil facilita a tarefa de modelagem do caráter e o
-direcionamento adequado das más tendências.
+Child naivety facilitates the task of character modeling and
+appropriate direction of bad trends.
 
-É então na adolescência que costumam surgir as grandes dificuldades. É nessa
-fase que o jovem está buscando construir a sua própria identidade,
-estabelecendo-se facilmente um conflito entre as gerações.
+It is then in adolescence that great difficulties usually arise. It's in this
+phase that the young man is seeking to build his own identity,
+easily establishing a conflict between generations.
 
-As diferentes visões de mundo podem ser uma das causas desse conflito. Salutar
-entender que a diversidade de opiniões é necessária para o avanço e procurarmos
-não fazer dessas diferenças motivo de discórdia.
+Different world views can be one of the causes of this conflict. Healthy
+understand that diversity of opinions is necessary for advancement and we seek
+not make these differences cause for discord.
 
-Elas passam a se tornar motivo de choque quando as partes envolvidas, pais e
-jovens, sobretudo os mais velhos, tentam impor a sua visão de mundo.
+They become a cause for shock when the parties involved, parents and
+young people, especially older people, try to impose their worldview.
 
-Para que não ocorra essa imposição, por nenhuma das partes, deve haver muito
-diálogo, nos relacionamentos, objetivando a construção de uma nova visão e o
-aprendizado de que o ponto de vista do outro deve ser respeitado.
+In order not to occur such an imposition, by either party, there must be a lot of
+dialogue, relationships, aiming at the construction of a new vision and the
+learning that the point of view of the other must be respected.
 
-Outra questão que leva a essas divergências é a diferença de valores e
-interesses entre as gerações.
+Another issue that leads to these divergences is the difference in values and
+interests between generations.
 
-É certo que há valores que são perenes e devem fazer parte da construção do
-caráter de pessoas de bem. Honestidade, respeito, aprendizado de uma ocupação
-útil, ética e esforço pessoal são aquisições inquestionáveis.
+It is true that there are values that are perennial and should be part of the construction of the
+character of good people. Honesty, respect, learning an occupation
+useful, ethical and personal effort are unquestionable acquisitions.
 
-Porém, se nos mantivermos cristalizados em nossas próprias experiências,
-tendemos a transferi-las para nossos filhos, não abrindo espaço para que eles
-desenvolvam seus próprios interesses.
+However, if we remain crystallized in our own experiences,
+we tend to transfer them to our children, not making room for them to
+develop their own interests.
 
-O tipo de educação recebida pelos pais pode colaborar nesse processo. Opressão
-demais e processos de intolerância geralmente não causam resultados positivos.
-A flexibilidade é necessária em certos momentos.
+The type of education received by parents can collaborate in this process. Oppression
+and intolerance processes generally do not cause positive results.
+Flexibility is required at certain times.
 
-Deve-se cuidar também com a permissividade em excesso.
+Care should also be taken care of excessive permissiveness.
 
-Na busca de uma nova definição para si mesmo, o jovem passa a apresentar
-características que antes desconhecíamos, muitas das quais preferíamos que eles
-não as tivessem, mas temos que aprender a respeitá-las.
+In the search for a new definition for himself, the young man begins to present
+characteristics that we used to know, many of which we preferred that they
+not have them, but we have to learn to respect them.
 
-É fundamental diferenciar o que é específico da personalidade do indivíduo,
-como os gostos e preferências, e o que precisa ser moldado e orientado.
-                  
+It is essential to differentiate what is specific to the individual's personality,
+like tastes and preferences, and what needs to be shaped and oriented.
+
 
                                     *  *  *
 
-Para que no lugar de um conflito entre as gerações, possamos estabelecer um
-encontro entre elas, é importante o cultivo de profundo respeito entre pais e
-filhos.
+In order for us to establish a
+encounter between them, it is important to cultivate deep respect between parents and
+Children.
 
-É indispensável também que o diálogo esteja sempre presente e que as concessões
-ocorram quando necessário.
+It is also essential that dialogue is always present and that the concessions
+occur when necessary.
 
-Mas sobretudo, o que deve prevalecer é o amor, traduzido na expressão de
-cuidado e afeto.
+But above all, what must prevail is love, translated into the expression of
+care and affection.
 
-Pensemos nisso.
+Let's think about it.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no seminário Encontro

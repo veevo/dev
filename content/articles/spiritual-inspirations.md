@@ -95,7 +95,7 @@ We are therefore left to use common sense to make such differentiation and
 we are only worth of the guidelines that can lead us to the path of good and
 Truth.
 
- 
+
 ## Source
 [Redação do Momento Espírita](http://momento.com.br/pt/ler_texto.php?id=3980)
 com base no cap.13, do livro Lições para a felicidade, 

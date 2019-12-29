@@ -12,77 +12,77 @@ topics:
 - prayer
 ---
 
-Sob pretexto algum se permita a “hora vazia”.
+Under any pretext, the empty hour may be allowed.
 
-Justificando cansaço ou desengano, irritabilidade ou enfado, desespero íntimo
-ou falta de estímulo, evite cair no desânimo que abre claros na ação do bem,
-favorecendo a inutilidade e inspirando as ideias perniciosas.
+Justifying tiredness or deception, irritability or boredom, intimate despair
+or lack of stimulus, avoid falling into the discouragement that opens clear in the action of good,
+favoring the uselessness and inspiring pernicious ideas.
 
-Se você supõe que todos se voltam contra os seus propósitos superiores, insista
-na atividade, que falará com mais eficiência do que suas palavras.
+If you assume that everyone turns against their higher purposes, insist
+in the activity, which will speak more efficiently than his words.
 
-Coagido pela estafa, mude de atitude mental e renove a tarefa, surpreendendo-se
-com motivação nova para o prosseguimento do ideal.
+Coerced by the stagna, change his mental attitude and renew the task, surprising himself
+with new motivation for the continuation of the ideal.
 
-Vitimado por injunções íntimas, perturbadoras, que se enraízam no seu passado
-espiritual, redobre esforços e atue confiante.
+Victimized by intimate, disturbing injunctions that get rooted in his past
+spiritual, redouble efforts and act confidently.
 
-O trabalho é, ao lado da oração, o mais eficiente antídoto contra o mal,
-porquanto conquista valores incalculáveis com que o Espírito corrige as
-imperfeições e disciplina a vontade.
+Work is, alongside prayer, the most efficient antidote against evil,
+because it gains incalculable values with which the Spirit corrects the
+imperfections and discipline sand.
 
-O momento perigoso para o cristão decidido é o do ócio, não o do sofrimento nem
-o da luta áspera.
+The dangerous moment for the determined Christian is that of idleness, not suffering or
+the rough struggle.
 
-Na ociosidade surge e cresce o mal. Na dor e na tarefa fulguram a luz da oração
-e a chama da fé.
+In idleness comes and evil grows. In pain and task they shine the light of prayer
+and the flame of faith.
 
-Maledicências e intrigas, vaidades e presunções, calúnias e boatos, despeito e
-descrédito, inquietação e medo, pensamentos deprimentes e tentações nascem e se
-alimentam durante a “hora vazia”.
+Malevolences and intrigues, vanity and presumptions, slander and rumors, spite and
+discredit, restlessness and fear, depressing thoughts and temptations are born and
+feed during the "empty hour".
 
-Os germes criminógenos de muitos males que pesam negativamente sobre a economia
-da sociedade se desenvolvem durante os minutos de desocupação e ociosidade.
+Criminogen germs of many evils that negatively weigh on the economy
+society develop during the minutes of unemployment and idleness.
 
-Os desocupados jamais dispõem de tempo para o próximo, atarantados pela
-indolência e pela inutilidade que fomentam o egoísmo e desenvolvem a
-indiferença.
+The unemployed never have time for others, attacked by the
+indolence and the uselessness that foster selfishness and develop the
+Indifference.
 
-Veja que em a natureza não há o ócio.Tudo trabalha, tudo colabora. A vida se
-agita em toda parte. O movimento é lei universal em tudo presente.
+See that in nature there is no idleness. Everything works, everything collaborates. Life
+stirs everywhere. The movement is universal law in everything present.
 
                                    *   *   *
 
-O descanso faz parte da Lei do trabalho. O corpo precisa se refazer. A mente
-necessita recarregar-se.
+Rest is part of the Labor Act. The body needs to redo itself. The mind
+needs to reload.
 
-Evitar o ócio não significa trabalhar sem descanso, sem trégua, de forma
-alguma.
+Avoiding idleness does not mean working without rest, without respite, in a way that
+Some.
 
-Escapar da ociosidade significa apenas evitar a inutilidade. O homem pode muito
-bem descansar de uma tarefa realizando outra. Enquanto refaz o corpo, ativa a
-mente. Enquanto descansa a mente, exercita o corpo.
+Escaping idleness means just avoiding uselessness. Man can very much
+well rest from one task performing another. While redoing the body, it activates the
+Mind. While resting the mind, he exercises the body.
 
-O ditado popular é verdadeiro: Cabeça vazia, oficina do diabo, significando que
-não temos habilidade de lidar com a mente ociosa. Ela atrai maus pensamentos e
-desperta nossas más tendências, além de ser mais facilmente influenciada por
-aqueles que desejam ver nossa derrocada.
+The popular saying is true: Empty head, devil workshop, meaning that
+we have no ability to deal with the idle mind. It attracts bad thoughts and
+awakens our bad trends, besides being more easily influenced by
+those who wish to see our collapse.
 
-Nosso tempo aqui precisa ser muito bem utilizado, pois ele é escasso, passa
-muito rápido.
+Our time here needs to be very well used, because it is scarce, passes
+very fast.
 
-Por isso, quanto mais nos ocuparmos com pensamentos e tarefas nobres, melhor
-para a formação de nosso caráter.
+Therefore, the more we deal with noble thoughts and tasks, the better
+for the formation of our character.
 
-Tudo no Universo tem utilidade, e utilidade sempre. Ir contra isso é atrasar
-nossa felicidade.
+Everything in the Universe is useful, and useful always. Going against it is delaying
+our happiness.
 
-Mesmo nos momentos de cansaço, de exaustão, procuremos algo útil, que nos
-edifique, não nos permitindo a simples hora vazia.
+Even in moments of tiredness, exhaustion, let us look for something useful, which
+build, not allowing us the simple empty hour.
 
-Descansar não está em não fazer nada, mas sim em mudar de atividade.
+Rest is not in doing anything, but in changing activity.
 
-Inutilidade, nunca!
+Futility, never!
 
 
 ## Source

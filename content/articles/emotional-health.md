@@ -21,69 +21,69 @@ topics:
 ---
  
 
-Não há entre nós quem não deseje ter uma vida plena, realizada e de satisfação.
-Todos investimos nossos esforços, nosso tempo e nossa energia a fim de termos
-uma vida saudável.
+There are not among us who do not wish to have a full, fulfilled and satisfaction life.
+We all invest our efforts, our time and our energy in order to have
+a healthy life.
 
-Para se viver em plenitude, faz-se necessário que cuidemos de nossa vida em
-todos os seus aspectos.
+In order to live in fullness, it is necessary that we take care of our lives in
+all its aspects.
 
-Buscando isso, não são poucos aqueles que dedicam horas aos cuidados do corpo.
-Dietas balanceadas, exercícios físicos variados, horas de sono reparador e
-tantos outros cuidados visando a manutenção do corpo físico.
+Seeking this, there are not few those who dedicate hours to body care.
+Balanced diets, varied physical exercises, restorative sleep hours and
+so many other care aimed at maintaining the physical body.
 
-Existem os que, percebendo que não somos somente um corpo físico, mas também um
-ser intelectual, buscam investir nas coisas da mente.
+There are those who, realizing that we are not only a physical body, but also a
+intellectual, seek to invest in the things of the mind.
 
-São aqueles que estão sempre a exercitar o intelecto, seja através do hábito da
-leitura, seja frequentando cursos de atualização profissional ou pessoal, tudo
-com a finalidade de não deixar a mente enferrujar.
+They are those who are always exercising the intellect, either through the habit of
+reading, whether attending professional or personal update courses, all
+for the purpose of not letting the mind rust.
 
-É verdade que cuidar do corpo assim como cuidar da mente, são atitudes
-sensatas, pois reflete em nós mesmos e na nossa saúde o bom ou mau uso que
-fazemos da instrumentalidade que nos foi dada por Deus.
+It is true that taking care of the body as well as taking care of the mind, are attitudes
+sensible, because it reflects in ourselves and in our health the good or misuse that
+we make the instrumentality that has been given to us by God.
 
-Porém, poucos de nós lembramos que, além do corpo e da mente, somos ainda seres
-emocionais. E, portanto, devemos também cuidar de nossas emoções a fim de
-termos saúde.
+However, few of us remember that, in addition to body and mind, we are still beings
+Emotional. And therefore we must also take care of our emotions in order to
+health terms.
 
-Quantas vezes já paramos para analisar quais as emoções que trazemos na alma?
-Quantas vezes nos perguntamos se as emoções que cultivamos são saudáveis ou são
+How many times have we stopped to analyze what emotions we bring into our souls?
+How many times do we wonder if the emotions we cultivate are healthy or are
 nocivas?
 
-Quanto poderá nos fazer mal carregar um sentimento de raiva ou ressentimento
-por alguém? E se carregamos a mágoa por uma situação mal resolvida, isso não
-nos fará mal?
+How bad can it hurt us to carry a feeling of anger or resentment
+by someone? And if we carry the hurt for a poorly resolved situation, that doesn't
+Will it hurt us?
 
-Todas as vezes que percebemos que nossa alimentação está inadequada, antes de
-adoecermos, a modificamos. Cortamos o excesso de gordura ou açúcar, diminuímos
-o sal.
+Every time we realize that our diet is inadequate, before
+we get sick, we modified it. We cut excess fat or sugar, decrease
+the salt.
 
-E com as emoções, devemos agir da mesma forma. Toda vez que nos deparamos com
-sentimentos que nos fazem mal, que nos prejudicam, é necessário o mesmo
-esforço, a fim de que sejamos plenamente felizes.
+And with emotions, we must act the same way. Every time we come across
+feelings that harm us, which harm us, it is necessary the same
+effort, so that we may be fully happy.
 
-Se alimentamos mágoa por alguém, por que não exercitar a compreensão, tentando
-colocar-se no lugar de quem nos magoou, buscando entender suas razões?
+If we feed hurt for someone, why not exercise understanding by trying to
+put yourself in the place of those who hurt us, seeking to understand their reasons?
 
-Se o nosso problema está no ressentimento, na vingança, o antídoto melhor será
-o do perdão, que nos fará desvincular da emoção negativa, entendendo o problema
-de uma maneira mais fácil.
+If our problem lies in resentment, revenge, the best antidote will be
+forgiveness, which will make us unlink from negative emotion, understanding the problem
+in an easier way.
 
-Se desejamos a felicidade plena, não podemos esquecer que os mesmos
-investimentos feitos para a saúde do corpo e do intelecto, devem ser feitos
-para a saúde emocional.
+If we desire full happiness, we must not forget that the same
+investments made for the health of the body and intellect, should be made
+for emotional health.
 
                                    *   *   *
 
-Experimentemos analisar com cuidado, ao final de cada dia, quais os sentimentos
-que povoaram nosso coração ao longo da jornada. Plenifiquemo-nos quando
-encontrarmos nele a gratidão, a compaixão, o amor.
+Let us try to analyze carefully, at the end of each day, what feelings
+who populated our hearts throughout the journey. Let us plenise ourselves when
+let us find in him the gratitude, compassion, love.
 
-Porém, se em algum dia encontrarmos a raiva, a inveja, o desejo de vingança,
-analisemos com cuidado suas origens e busquemos, com tranquilidade,
-substituí-los, a fim de que a saúde se faça em nós, no corpo, na mente e no
-coração.
+But if we ever find anger, envy, desire for revenge,
+let us carefully analyze its origins and seek, with tranquility,
+replace them, so that health may be done in us, in the body, in the mind and in the
+Heart.
 
 ## Source
 Redação do Momento Espírita.

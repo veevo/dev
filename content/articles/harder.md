@@ -15,85 +15,85 @@ topics:
 - respect
 ---
 
-O Terceiro Milênio, que nos chegou com tantas cores de alegria, avança. Os
-meses se transformaram em anos e o que o mundo nos oferece, de um modo geral, é
-ainda um quadro de quase desolação.
+The Third Millennium, which has come to us with so many colors of joy, advances. The
+months have turned into years and what the world offers us, in general, is
+still a frame of almost desolation.
 
-As reportagens nos mostram vinganças que resultam em mortes ou agressões
-violentas.
+Reports show us revenges that result in deaths or assaults
+Violent.
 
-Muitos filmes nos apresentam o homem presumidamente bom, que se transforma, de
-um momento para o outro, em um perseguidor assassino dos agressores dos seus
-amores.
+Many films introduce us to the presumed good man, who transforms, of
+one moment for the other, in a killer stalker of the aggressors of his
+Loves.
 
-É de nos perguntarmos para onde caminhamos, nós, essa Humanidade que aguarda o
-mundo de paz.
+We wonder where we walk, we, this humanity that awaits the
+world of peace.
 
-Adotamos facilmente a retribuição do mal pelo mal.
+We easily adopt evil retribution for evil.
 
-A lição ensinada pelo Mestre de Nazaré permanece esquecida.
+The lesson taught by the Master of Nazareth remains forgotten.
 
-No entanto, homens de valor dão testemunho inconteste de que temos a capacidade
-de perdoar. E que o perdão beneficia a quem o dá e a quem o recebe.
+However, men of value bear undisputed testimony that we have the ability to
+to forgive. And that forgiveness benefits those who give it and who receives it.
 
-Recordamos do atleta olímpico e capitão da Força Aérea Americana, que lutou na
-Segunda Guerra Mundial.
+We remember the Olympic athlete and captain of the American Air Force, who fought in the
+World War II.
 
-Louis Zamperini, em maio de 1943, foi convocado para uma missão de busca de um
-avião desaparecido. Seu próprio avião sofreu problema nos dois motores e caiu
-no mar.
+Louis Zamperini, in May 1943, was summoned for a mission to search for a
+missing plane. His own plane suffered a problem in both engines and crashed
+at sea.
 
-Da equipe de dez homens, somente três sobreviveram e ficaram à deriva em dois
-botes salva-vidas.
+Of the ten-man team, only three survived and drifted in two
+life-saving boats.
 
-Por fim, restaram somente Louis e Russen Allen Phil.
+Finally, only Louis and Russen Allen Phil remained.
 
-Foram quarenta e sete dias no mar para serem, finalmente, resgatados pelos
-japoneses e levados para a Ilha da Execução.
+It was forty-seven days at sea to finally be rescued by the
+japanese and taken to The Island of Execution.
 
-Foi submetido a experimentos médicos, torturas e mostrado como se fosse um
-animal raro em uma jaula. A fome era uma constante.
+He underwent medical experiments, tortures and shown as if it were a
+rare animal in a cage. Hunger was a constant.
 
-Mais tarde, foi transferido para o campo de prisioneiros de guerra Omori, onde
-conheceu seu mais terrível torturador, conhecido como O Pássaro.
+He was later transferred to the Omori prisoner of war camp, where
+he met his most terrible torturer, known as The Bird.
 
-Esse comandante sentia prazer na tortura. Tinha a capacidade de bater num
-prisioneiro por horas. E Louis parecia ser a sua obsessão para os
-espancamentos.
+This commander felt pleasure in torture. I had the ability to hit a
+prisoner for hours. And Louis seemed to be his obsession for the
+Beatings.
 
-Ele chegou a perder a audição do ouvido esquerdo, temporariamente, por ter sido
-agredido violentamente, com um cinto.
+He even lost his left ear hearing temporarily because he was
+violently assaulted, with a belt.
 
-No final da guerra, Louis estava no campo de prisioneiros considerado o mais
-infernal do Japão, o Naoetsu, ainda sob o comando do mesmo sargento japonês.
+At the end of the war, Louis was in the prison camp considered the most
+japan's infernal, the Naoetsu, still under the command of the same Japanese sergeant.
 
-Louis voltou para casa, atormentado pelo ódio e o desejo de vingança. Tornou-se
-alcoólatra e quase acabou com seu casamento.
+Louis returned home, plagued by hatred and a desire for revenge. It became
+alcoholic and almost ended his marriage.
 
-No entanto, enquanto no mar, ele orara e prometera que se sobrevivesse,
-dedicaria sua vida a Deus.
+However, while at sea, he had orara and promised that he would survive,
+would dedicate his life to God.
 
-Demorou para isso acontecer. Então, sua esposa o convenceu a ir a um culto
-evangélico e ele começou a sua transformação.
+It took a while to make it happen. So your wife convinced him to go to a cult
+evangelical and he began his transformation.
 
-Tornou-se um pregador e seu tema recorrente era o perdão.
+He became a preacher and his recurring theme was forgiveness.
 
-Confessou que quando substituiu o ódio pelo amor, perdoando os seus inimigos e
-orando por eles, deixou de ser assombrado por pesadelos.
+He confessed that when he replaced hatred for love, forgiving his enemies and
+praying for them, it ceased to be haunted by nightmares.
 
-Visitou muitos companheiros do campo de prisioneiros para lhes dizer que deviam
-perdoar aos seus malfeitores.
+Visited many fellow prisoner camp to tell them that they should
+forgive their evildoers.
 
-E não pensemos que lhe foi fácil a decisão. Ele afirmava que o mais difícil era
-perdoar. Mas o ódio é autodestrutivo. Quem odeia, não machuca ao outro mas a si
-mesmo. O perdão, dizia, é uma cura, uma autocura.
+And let's not think it was easy for him to decide. He claimed that the hardest was
+Forgive. But hatred is self-destructive. Who hates it doesn't hurt the other but you
+Same. Forgiveness, he said, is a cure, a self-healing.
 
                                    *   *   *
 
-Se estamos padecendo as agruras do ódio, pensemos a respeito e proponhamos nos
-libertar. Tentemos o perdão e nos libertemos.
+If we are suffering the hardships of hatred, let us think about it and propose ourselves
+Free. Let us try forgiveness and let ourselves go.
 
-Afinal, todos merecemos ser felizes.
+After all, we all deserve to be happy.
 
 ## Source
 Redação do Momento Espírita, com

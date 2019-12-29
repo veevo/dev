@@ -14,100 +14,100 @@ topics:
 - respect
 ---
 
-Atualmente, fala-se muito em direito à privacidade e à intimidade.
+Currently, there is a lot of talk about the right to privacy and intimacy.
 
-Sustenta-se ser imprescindível ao ser humano manter uma área de sua vida longe
-de qualquer ingerência alheia.
+It is argued that it is essential for the human being to keep an area of his life away
+of any interference unrelated.
 
-As leis de nosso país protegem a intimidade e a privacidade.
+The laws of our country protect intimacy and privacy.
 
-Elas garantem a inviolabilidade dos domicílios, os sigilos bancário e de
-comunicações, dentre outros.
+They guarantee the inviolability of households, bank secrecy and
+communications, among others.
 
-Entretanto, muitas pessoas se aproveitam da proteção legal para cometer crimes
-e prejudicar terceiros.
+However, many people take advantage of legal protection to commit crimes
+and harm third parties.
 
-Quando apanhadas, invocam, a título de defesa, o aspecto secreto de seu agir.
+When caught, they invoke, as a defense, the secret aspect of their action.
 
-A amplitude desses direitos constitui questão controvertida no âmbito dos
-tribunais humanos.
+The extent of these rights is a question at issue in the context of the
+human courts.
 
-Contudo, impõe-se reflexão a respeito da privacidade, considerando um contexto
-um pouco mais vasto.
+However, there is a need for reflection on privacy, considering a context of
+a little wider.
 
-A tranqüilidade das relações sociais pressupõe limites e restrições ao que se
-compartilha.
+The tranquility of social relations presupposes limits and restrictions on what is
+Shares.
 
-Os homens ainda portam fissuras morais em excesso, cuja integral revelação
-causaria muitas querelas e constrangimentos.
+Men still carry excessive moral fissures, whose integral revelation
+would cause many quarrels and constraints.
 
-O corpo físico, com as limitações de percepção que proporciona, funciona como
-elemento pacificador.
+The physical body, with the limitations of perception it provides, functions as
+peacemaker element.
 
-No âmbito do viver terreno, a comunicação de idéias dá-se por ato deliberado de
-vontade.
+In the context of living land, the communication of ideas takes place by a deliberate act of
+Will.
 
-Os pensamentos não são imediatamente partilhados.
+Thoughts are not immediately shared.
 
-O emissor da mensagem deve gesticular, falar ou escrever, a fim de que ela seja
-captada.
+The sender of the message must gesture, speak or write, so that it is
+Captured.
 
-Mas o planeta não é habitado apenas por Espíritos encarnados.
+But the planet is not inhabited only by incarnate Spirits.
 
-O contingente de Espíritos desencarnados que nele vive é deveras significativo.
+The contingent of disembodied Spirits living in it is very significant.
 
-Eles permanecem junto aos homens, freqüentam suas casas, partilham suas idéias.
+They stay with men, frequent their homes, share their ideas.
 
-Portas ou trancas não os detêm.
+Doors or locks don't stop them.
 
-No âmbito espiritual, a linguagem é o pensamento.
+In the spiritual sphere, language is thought.
 
-Para transmitir uma idéia ou um sentimento, não há necessidade de gestos ou
-palavras.
+To convey an idea or a feeling, there is no need for gestures or
+Words.
 
-Basta pensar.
+Just think.
 
-Assim, todos têm uma nuvem de testemunhas a sua volta.
+So everyone has a cloud of witnesses around them.
 
-Não há nada de totalmente secreto no que se faz ou se pensa.
+There's nothing totally secret about what you do or think.
 
-Amigos e inimigos do outro plano da vida sempre acompanham tudo o que ocorre.
+Friends and enemies of the other plan of life always follow everything that occurs.
 
-Existe apenas um limite para esse intenso partilhar e ele consiste na
-superioridade moral.
+There is only one limit to this intense share and it consists of
+moral superiority.
 
-Um Espírito inferior não consegue ocultar nada do que faz ou pensa dos que lhe
-são superiores.
+An inferior Spirit cannot hide anything he does or thinks of those who
+are superior.
 
-Já os Espíritos superiores partilham com os inferiores exclusivamente o que
-desejam.
+On the other hand, the superior Spirits share with the lower ones exclusively what
+Want.
 
-Essa regra também vale no intercâmbio entre encarnados e desencarnados.
+This rule also applies in the exchange between red and disembodied.
 
-Um lar estruturado com base em valores nobres não é livremente franqueado por
-Espíritos levianos.
+A structured home based on noble values is not freely franchised by
+Frivolous spirits.
 
-Uma barreira vibratória impede a profanação da intimidade de uma pessoa honrada
-e com hábitos puros.
+A vibratory barrier prevents the desecration of an honorable person's intimacy
+and with pure habits.
 
-Apenas entidades nobres têm acesso a ambientes dignos e elas naturalmente
-respeitam os momentos íntimos dos encarnados.
+Only noble entities have access to decent environments and they naturally
+respect the intimate moments of the incarnates.
 
-Assim, convém refletir sobre o que você faz em sua privacidade.
+Thus, it is advisable to reflect on what you do in your privacy.
 
-Caso cometa leviandades ou seja adepto de maledicência ou pornografia, saiba
-que uma multidão de Espíritos afins testemunha seus atos.
+If you make levity or be adept at malevolence or pornography, learn
+that a multitude of like-minded Spirits witness their deeds.
 
-Eles fazem parte de sua vida e partilham sem pudor dos seus mais secretos
-instantes.
+They are part of their life and share shamelessly of their most secret
+Moments.
 
-Se não lhe agrada essa perspectiva, resta apenas uma alternativa: moralizar-se.
+If you don't like that perspective, there's only one alternative left: moralizing yourself.
 
-Reforme seu proceder e passe a viver com pureza e dignidade.
+Reform your proceed sand live with purity and dignity.
 
-Desse modo, apenas Espíritos enobrecidos terão acesso ao seu lar.
+In this way, only ennobled spirits will have access to their home.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

@@ -13,85 +13,85 @@ topics:
 - prayer
 ---
 
-Se alguém lhe atirasse uma pedra, o que você faria com ela?
+If someone threw a rock at you, what would you do to her?
 
-Você a ajuntaria e guardaria para atirar no seu agressor em momento oportuno  
-ou a jogaria fora?
+You would gather it and guard you to shoot your attacker in a timely manner  
+or would you throw it away?
 
-Trataria dos ferimentos e esqueceria a pedra no lugar em que ela caiu?
+Would you take care of her injuries and forget the stone where she fell?
 
-Se você respondeu que a guardaria para devolver em momento oportuno, então
-pense em como essa pedra irá atrapalhar você durante a caminhada.
+If you answered that you would store it to return at an appropriate time, then
+Think about how this stone will get in your way during the walk.
 
-Vamos supor que você a guarde no bolso da camisa, onde fique bem fácil pegá-la
-quando for preciso.
+Let's assume you keep it in your shirt pocket, where it's pretty easy to catch it.
+when you have to.
 
-Agora imagine como essa pedra lhe causará bastante desconforto.
+Now imagine how this stone will cause you a lot of discomfort.
 
-Primeiro, porque será um peso morto a lhe dificultar a caminhada exigindo maior
-esforço para mantê-la no lugar.
+First, because it will be a dead weight making it difficult for you to walk demanding greater
+effort to keep her in place.
 
-Segundo, porque cada vez que você for abraçar alguém, ambos sentirão aquele
-objeto estranho a machucar o peito.
+Second, because every time you go hug someone, you'll both feel that
+strange object to hurt the chest.
 
-Terceiro, porque se você ganhar uma flor, por exemplo, não poderá colocá-la no
-bolso já que ele estará ocupado com aquele peso inútil.
+Third, because if you win a flower, for example, you won't be able to put it in the
+pocket since he will be busy with that useless weight.
 
-Em quarto lugar, o seu agressor poderá desaparecer da sua vida e você nunca
-mais voltar a encontrá-lo e, nesse caso, terá carregado a pedra inutilmente.
+Fourth, your aggressor may disappear from your life and you will never
+more to find it again and in this case will have carried the stone uselessly.
 
-Fazendo agora uma comparação com uma ofensa qualquer que você venha a receber,
-podemos seguir o mesmo raciocínio.
+Making now a comparison with an offense you may receive,
+we can follow the same reasoning.
 
-Se você guardar a ofensa para revidar em momento oportuno, pense em como será
-um peso inútil a sobrecarregar você.
+If you save the offense to fight back at a timely time, think about what it will be like
+a useless weight overloading you.
 
-Pense em quanto tempo perderá mentalizando o seu agressor e imaginando planos
-para vingar-se.
+Think about how much time you'll lose by mentalizing your aggressor and imagining plans
+to get revenge.
 
-Pondere sobre quantas vezes você deixará de sorrir para alguém, pensando em
-como devolverá a ofensa.
+Ponder how many times you will stop smiling at someone, thinking about
+how it will return to offense.
 
-E se você insistir em alimentar a ideia de revide, com o passar do tempo se
-tornará uma pessoa amarga e infeliz, pois esse ácido guardado em sua intimidade
-apagará o seu brilho e a sua vitalidade.
+And if you insist on feeding the idea of vevide, over time if
+will make a person bitter and unhappy, for this acid stored in his intimacy
+its brightness and vitality.
 
-Mas se você pensa diferente e quando recebe uma pedrada trata dos ferimentos e
-joga a pedra fora, perceberá que essa é uma decisão inteligente, pois agirá da
-mesma forma quando receber outra ofensa qualquer.
+But if you think differently and when you get a stone it deals with the injuries and
+throws the stone away, you will realize that this is a smart decision, for it will act of the
+same way when receiving any other offense.
 
-Quem desculpa seu agressor é verdadeiramente uma pessoa livre, pois perdoar é
-libertar-se.
+Whoever excuses your aggressor is truly a free person, for for forgiving is
+break free.
 
-Ademais, quem procura a vingança se iguala ao seu agressor e perde toda razão
-mesmo que esteja certo.
+Moreover, those seeking revenge match their aggressor and lose all reason
+even if you're right.
 
-Somente pode considerar-se diferente quem age de forma diferente e não aquele
-que deseja fazer justiça com as próprias mãos.
+Only one can consider themselves different who acts differently and not that
+who wishes to do justice with his own hands.
 
-Em casos de agressões que mereçam providências, devemos buscar o apoio da
-justiça e deixar a cargo desta os devidos recursos.
+In cases of aggressions that deserve action, we must seek the support of the
+justice and leave the proper resources to it.
 
-Todavia, vale ressaltar que perdoar não é apenas esquecer temporariamente as
-ofensas, é limpar o coração de qualquer sentimento de vingança ou de mágoa.
+However, it is worth noting that forgiving is not just temporarily forgetting the
+offenses, is to wipe the heart of any feeling of revenge or hurt.
 
 *   *   *
 
-A pedra bruta perdoa as mãos que a ferem, transformando-se em estátua valiosa.
+The raw stone forgives the hands that hurt it, turning into a valuable statue.
 
-O grão de trigo perdoa o agricultor que o atira ao solo, multiplicando-se em
-muitos grãos que, esmagados, enriquecem a mesa.
+The grain of wheat forgives the farmer who throws it to the soil, multiplying in
+many grains that, crushed, enrich the table.
 
-O ferro deixa-se dobrar sob altas temperaturas e perdoa os que o modelam,
-construindo segurança e conforto.
+Iron is allowed to bend at high temperatures and forgivethose who model it,
+building safety and comfort.
 
-Perdoar, portanto, é impositivo para toda hora e todo instante, pois o perdão
-verdadeiro é como uma luz arremessada na direção da vida e que voltará sempre à
-fonte de onde saiu.
+Forgiving, therefore, is imposing for every hour and every moment, for forgiveness
+true is like a light flung in the direction of life and that will always return to the
+source from where it came from.
 
-Pense nisso!
+Think about it!
 
-                                                                               
+
 
 ## Source
 Redação do Momento Espírita com pensamentos extraídos

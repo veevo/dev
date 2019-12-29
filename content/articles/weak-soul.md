@@ -15,72 +15,72 @@ topics:
 ---
 
 
-Quando alguém procura uma desculpa para justificar suas fraquezas, é comum
-ouvirmos a afirmativa de que a carne é fraca.
+When someone seeks an excuse to justify their weaknesses, it is common
+let us hear the statement that meat is weak.
 
-A culpa, portanto, é da carne, ou seja, do corpo físico.
+The fault, therefore, is the flesh, that is, of the physical body.
 
-Esse é um assunto que merece mais profundas reflexões.
+This is a subject that deserves deeper reflections.
 
-Hahnemann, criador da medicina homeopática, fez a seguinte afirmativa:
+Hahnemann, creator of homeopathic medicine, made the following statement:
 
-O corpo não dá cólera àquele que não na tem, do mesmo modo que não dá os outros
-vícios. Todas as virtudes e todos os vícios são inerentes ao espírito. A não
-ser assim, onde estariam o mérito e a responsabilidade?
+The body does not give anger to the one who does not have it, just as it does not give others
+Vices. All virtues and all vices are inherent in the spirit. A no
+be like this, where would merit and responsibility be?
 
-Sábia consideração essa, pois encerra grandes verdades.
+Wise consideration of this, for it contains great truths.
 
-Culpar o corpo pelas nossas fraquezas equivaleria a culpar a roupa que estamos
-usando por um acesso de cólera.
+Blaming the body for our weaknesses would amount to blaming the clothes we're in.
+using by cholera access.
 
-Quando a boca de um guloso se enche de saliva diante de um prato apetitoso, não
-é a comida que excita o órgão do paladar, pois sequer está em contato com ele.
+When the mouth of a gluttonous fills with saliva before an appetizing dish, it does not
+it is the food that excites the organ of the palate, because it is not even in contact with it.
 
-É o Espírito, cuja sensibilidade é despertada, que atua sobre aquele órgão
-através do pensamento.
+It is the Spirit, whose sensitivity is awakened, that acts on that organ
+through thought.
 
-Se uma pessoa sensível facilmente verte lágrimas, não é a abundância das
-lágrimas que dá a sensibilidade ao Espírito, mas precisamente a sensibilidade
-desse que provoca a secreção abundante das lágrimas.
+If a sensitive person easily sheds tears, it is not the abundance of
+tears that gives sensitivity to the Spirit, but precisely the sensitivity
+of this which causes abundant secretion of tears.
 
-Assim, um homem é músico não porque seu corpo seja propenso à musicalidade, mas
-porque seu Espírito é musicista.
+So a man is a musician not because his body is prone to musicality, but
+because his Spirit is a musician.
 
-Como podemos perceber, a ação do Espírito sobre o corpo físico é tão evidente
-que uma violenta comoção moral pode provocar desordens orgânicas.
+As we can see, the Spirit's action on the physical body is so evident
+that a violent moral commotion can cause organic disorders.
 
-Quando sofremos um susto, por exemplo, logo em seguida vem a sudorese, o
-tremor, a diarreia.
+When we suffer a fright, for example, soon after comes to sweating, the
+tremor, diarrhea.
 
-Outras vezes, um acesso de ira pode provocar dor de cabeça, taquicardia, e até
-mesmo deixar manchas roxas pelo corpo.
+Other times, an access of anger can cause headache, tachycardia, and even
+even leave purple spots on the body.
 
-Quanto às disposições para a preguiça, a sensualidade, a violência, a
-corrupção, igualmente não podem ser lançadas à conta da carne, pois são
-tendências radicadas no Espírito imortal.
+As regards the provisions for laziness, sensuality, violence,
+corruption, also cannot be thrown into the meat account, as they are
+tendencies rooted in the immortal Spirit.
 
-Se assim não fosse, seria fácil, pois não teríamos nenhuma responsabilidade
-pelos nossos atos, desde que, uma vez enterrado o corpo, com ele sumiriam todas
-as fragilidades e os equívocos cometidos.
+If it wasn't, it would be easy, because we wouldn't have any responsibility
+by our acts, since once buried the body, with it would all disappear
+weaknesses and misconceptions committed.
 
-Toda responsabilidade moral dos atos da vida física competem ao Espírito
-imortal. Nem poderia ser diferente.
+All moral responsibility of the acts of physical life compete with the Spirit
+Immortal. It couldn't even be any different.
 
-Assim, quanto mais esclarecido for o Espírito, menos desculpável se tornam as
-suas faltas, uma vez que, com a inteligência e o senso moral, nascem as noções
-do bem e do mal, do justo e do injusto.
+Thus, the more enlightened the Spirit, the less excusable become the
+their faults, since, with intelligence and moral sense, the notions are born
+good and evil, just and the unjust.
 
                                    *   *   *
 
-Todos nós, sem exceção, possuímos na intimidade a centelha divina, a força
-capaz de conter os impulsos negativos e fazer vibrar as emoções nobres que o
-Criador depositou em nós.
+All of us, without exception, possess in intimacy the divine spark, the strength
+able to contain the negative impulses and make the noble emotions vibrate that the
+Creator has deposited in us.
 
-Fazendo pequenos esforços conquistaremos a verdadeira liberdade, a supremacia
-do Espírito sobre o corpo. E só então entenderemos porque Jesus afirmou: Vós
-sois deuses, podereis fazer o que eu faço, e muito mais.
+Making small efforts we will conquer true freedom, supremacy
+of the Spirit upon the body. And only then will we understand why Jesus said: You
+you are gods, you will be able to do what I do, and more.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. VII do livro

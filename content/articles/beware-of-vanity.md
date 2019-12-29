@@ -13,95 +13,95 @@ topics:
 - responsibility
 ---
 
-A vaidade é uma brecha moral que infelicita bastante a humanidade.
+Vanity is a moral loophole that greatly congratulates humanity.
 
-A luta por posições de realce ocupa muito tempo das criaturas.
+The struggle for highlight positions takes up a lot of time from creatures.
 
-Mesmo quem não tem vocação para encargos elevados, freqüentemente os procura.
+Even those who have no vocation for high burdens often seek them.
 
-E não o faz por espírito de serviço, mas para aparecer.
+And he doesn't do it out of a spirit of service, but to show up.
 
-Valoriza-se muito a vitória aparente no mundo, mesmo quando conquistada à custa
-da própria paz.
+The apparent victory in the world is highly valued, even when conquered at the expense of
+peace itself.
 
-Mas será que isso compensa?
+But does that make up for it?
 
-Não valerá mais a pena viver humildemente, mas com dignidade?
+It won't be worth living humbly anymore, but with dignity?
 
-Ocupar postos de destaque traz grande responsabilidade.
+Occupying prominent positions brings great responsibility.
 
-Para quem não está preparado, a derrocada moral pode ser grande.
+For those who are not prepared, the moral collapse can be great.
 
-Satisfazer a vaidade é um grande perigo.
+Satisfying vanity is a great danger.
 
-A tentação de evidenciar a própria grandeza pode fazer um homem cair no
-ridículo.
+The temptation to highlight one's own greatness can cause a man to fall into the
+Ridiculous.
 
-Há pouca coisa mais lamentável do que alguém despreparado desempenhando um
-grande papel.
+There is little more pitiful than someone unprepared playing a
+big role.
 
-A ausência de discernimento pode levar a ver virtudes onde elas não existem. A
-aceitar conselhos de quem não merece confiança. A tomar decisões sob falsas
-perspectivas.
+The absence of discernment can lead to seeing virtues where they do not exist. The
+accept advice from those who do not deserve trust. Making decisions under false
+Perspectives.
 
-A vaidade manifesta-se sob muitas formas. Está presente na vontade de dizer
-sempre a última palavra.
+Vanity manifests itself in many forms. You are present in the will to say
+always the last word.
 
-Por relevante que seja o argumento do outro, o vaidoso não consegue dar-lhe o
-devido valor.
+As relevant as the other's argument is, the vain cannot give him the
+due value.
 
-Imagina que, se o fizer, diminuirá seu próprio brilho.
+Imagine that if you do, it will lessen your own brightness.
 
-O vaidoso tem dificuldade em admitir quando erra, mesmo sendo isso evidente.
+The vain has difficulty admitting when he misses, even though that is evident.
 
-Ele não consegue perceber a grandeza que existe em admitir um equívoco. Que é
-mais louvável retificar o próprio caminho do que persistir no erro.
+He can't understand the greatness that exists in admitting a misunderstanding. That's
+more commendable to rectify the path itself than persist in error.
 
-A vaidade também dificulta o processo de perdoar.
+Vanity also makes it difficult for the process of forgiving.
 
-O vaidoso considera muito importante a própria personalidade.
+The vain considers the personality itself very important.
 
-Por conta disso, todas as ofensas que lhe são dirigidas são gravíssimas.
+Because of this, all the offenses addressed to him are very serious.
 
-Já os prejuízos que causa aos outros são sempre pequenos.
+The damage it causes to others is always small.
 
-Afinal, considera o próximo invariavelmente mais insignificante do que ele
-próprio.
+After all, it considers the next invariably more insignificant than he
+Own.
 
-A criatura acometida de vaidade dá-se uma importância desmedida. Imagina que os
-outros gastam horas refletindo sobre seus feitos.
+The creature affected by vanity gives itself a daunted importance. Imagine that
+others spend hours reflecting on their deeds.
 
-Por conta disso, sente-se compelida a parecer cada vez mais evidente.
+Because of this, it feels compelled to seem increasingly evident.
 
-Como todo vício moral, a vaidade impede uma apreciação precisa da realidade.
+Like all moral vice, vanity prevents an accurate appreciation of reality.
 
-Quem porta esse defeito não percebe que apenas se complica, ao cultivá-o. Que
-seria muito mais feliz ao viver com simplicidade.
+Those who carry this defect do not realize that it only gets complicated by cultivating it. That
+would be much happier to live with simplicity.
 
-Que ninguém se preocupa muito com sua pessoa e com sua pretensa importância.
+That no one cares much about their person and its alleged importance.
 
-Que, ao tentar brilhar cada vez mais, freqüentemente cai no ridículo e se torna
-alvo de chacota.
+That, in trying to shine more and more, often falls into ridicule and becomes
+laughing stock.
 
-Analise seu caráter e reflita se você não possui excesso de vaidade.
+Analyze your character and reflect if you don't have excess vanity.
 
-Você reconhece facilmente seus erros?
+Do you easily recognize your mistakes?
 
-Elogia as virtudes e os sucessos alheios?
+Do you praise the virtues and successes of others?
 
-Quando se filia a uma causa, o faz por ideal ou para aparecer?
+When you join a cause, do you do it for optimal or to appear?
 
-Admite quando a razão está com os outros?
+Do you admit when reason is with others?
 
-Caso se reconheça vaidoso, tome cuidado com seus atos.
+If you recognize yourself vain, be careful with your acts.
 
-Esforce-se por perceber o seu real papel do mundo.
+Strive to realize your real role in the world.
 
-Reflita que a vaidade é um peso a ser carregado ao longo do tempo.
+Reflect that vanity is a weight to be charged over time.
 
-Simplifique sua vida, valorize os outros, admita os próprios equívocos.
+Simplify your life, value others, admit your own misconceptions.
 
-Ao abrir mão da vaidade, seu viver se tornará muito mais leve e prazeroso.
+By giving up vanity, your living will become much lighter and more pleasurable.
 
 ## Source
 Equipe de Redação do Momento Espírita.

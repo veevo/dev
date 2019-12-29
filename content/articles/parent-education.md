@@ -14,76 +14,76 @@ topics:
 - mother
 ---
 
-Em uma revista de circulação internacional, lemos que uma senhora foi ao teatro
-com seus dois filhos.
+In an international circulation magazine, we read that a lady went to the theater
+with his two children.
 
-Narra ela que, logo que o espetáculo começou, outras duas crianças que estavam
-sentadas mais à frente começaram a chorar, em altos brados.
+She narrates that as soon as the show began, two other children who were
+seated later in front began to cry, in loud cries.
 
-Uma espectadora que estava próxima, falou para a mãe delas: Não seria melhor a
-senhora sair com as duas, até que se acalmem? Eu cuido dos seus lugares.
+A spectator who was close, told their mother: It would not be better to
+lady go out with both of them until they calm down? I take care of your seats.
 
-Mais do que depressa, a mulher respondeu: Claro que não vou sair. Comprei três
-ingressos. Minhas filhas e eu temos o direito de ficar até o fim do espetáculo.
-Os outros que aguentem.
+More than quickly, the woman replied, "Of course I'm not leaving. I bought three
+Tickets. My daughters and I have the right to stay until the end of the show.
+The others who hold on.
 
-São fatos de tal natureza que nos apontam o porquê da má educação de tantas
-crianças e jovens, na atualidade.
+These are facts of such a nature that we are told why the bad education of so many
+children and young people, nowadays.
 
-É que seus pais não estabelecem normas. Exatamente porque eles mesmos não têm
-normas.
+It's just that your parents don't set standards. Exactly because they themselves don't have
+Standards.
 
-E, para muitos pais, seus filhos sempre têm razão. Se o garoto ficou no banco
-de reservas no jogo da escola, partem com vigor para cima do técnico, desejando
-saber as razões do que chamam perseguição gratuita.
+And for many parents, their children are always right. If the kid stayed on the bench
+reservations in the school game, depart vigorously upon the coach, wishing
+know the reasons of what they call free pursuit.
 
-Com tal atitude, não exemplificam ao filho que há momento para participar
-ativamente e momento para aguardar, observar.
+With such an attitude, they do not exemplify the child that there is time to participate
+actively and time to wait, observe.
 
-Que uma equipe é o resultado do esforço de todos e de cada um, no momento
-oportuno.
+That a team is the result of the effort of each and every one at the moment
+Timely.
 
-Se o time mirim perde, eis novamente os pais culpando o técnico, o treinador.
-Afinal, todos têm má vontade com as suas crianças, não as preparam.
+If the junior team loses, here are again the parents blaming the coach, the coach.
+After all, everyone has a bad will with their children, they don't prepare them.
 
-Em nenhum momento cogitam de falar ao filho que há momento de ganhar e momento
-de perder. Que tudo é uma questão de treino, dedicação, esforço e que, numa
-disputa, naturalmente, o melhor deve vencer.
+At no point do you consider telling their son that there is a time to win and moment
+to lose. That everything is a matter of training, dedication, effort and that, in a
+dispute, of course, the best must win.
 
-A derrota deve ser vista como estímulo a mais treinamento, maior empenho.
+Defeat should be seen as a stimulus to more training, greater commitment.
 
-Com tal atitude, não é de estranharmos que tenhamos torcidas organizadas,
-compostas por pessoas que foram dessa forma educadas, que bloqueiem uma estrada
-e destruam um ônibus a pedradas e pauladas, desejando agredir os jogadores do
-seu time de futebol, que foi desclassificado do torneio esportivo.
+With such an attitude, it is not surprising that we have organized fans,
+composed of people who were educated in this way, who block a road
+and destroy a bus to stone and slap, wishing to assault the players of the
+his football team, which was disqualified from the sports tournament.
 
-Quando os filhos apresentam o boletim com notas baixas, a culpa sempre é dos
-professores ou da direção da escola.
+When children present the bulletin with low grades, the fault is always the
+teachers or the school board.
 
-Nunca dos seus rebentos que não estudaram ou quiçá tenham apresentado baixo
-desempenho escolar, por alguma problemática que estejam atravessando.
+Never of their sprouts that have not studied or perhaps presented low
+performance, by some problem they are going through.
 
-É tempo de pensar e tomar atitude. Antes de mais nada, exemplificar, como pais,
-a cortesia, a gentileza, a honestidade, o respeito, enfim, todos os valores que
-desejamos tenham os nossos filhos.
+It's time to think and take action. First of all, exemplify, as parents,
+courtesy, kindness, honesty, respect, in short, all the values that
+we wish to have our children.
 
-Não há mais tempo para se descurar da infância do hoje que se constituirá nos
-homens do amanhã, os cidadãos do mundo novo que todos aspiramos.
+There is no more time to neglect today's childhood that will be constituted in the
+men of tomorrow, the citizens of the new world that we all aspire to.
 
                                    *   *   *
 
-Pensemos: de forma muito frequente, o comportamento rude das crianças é
-resultado de falta de orientação.
+Let us think: very often, children's rude behavior is
+result of a lack of guidance.
 
-É que como pais nos descuidamos de estabelecer normas de comportamento, e eles,
-simplesmente, agem como observam outros agirem.
+It's just that as parents we neglect to establish standards of behavior, and they,
+simply act as others observe to act.
 
-Tenhamos em mente que críticas e xingamentos somente contribuem para tornar as
-crianças mais tensas e agressivas.
+Keep in mind that criticism swearing and name-calling only contributes to making
+more tense and aggressive children.
 
-Assim, a educação exige que se estabeleçam normas claras para as crianças
-seguirem. Normas ditadas pelas boas maneiras, respeito aos semelhantes,
-modéstia e justiça.
+Education therefore requires clear standards for children to be established
+Follow. Standards dictated by manners, respect for the like,
+modesty and justice.
 
 ## Source
 Redação do Momento Espírita, com base no artigo

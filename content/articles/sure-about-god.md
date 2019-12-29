@@ -10,82 +10,82 @@ topics:
 - wisdom
 ---
 
-O jovem acreditava ser uma mente brilhante. Elaborava ideias, imergia o
-pensamento nos livros buscando maior conhecimento. Orgulhava-se de seu saber.
+The young man believed to be a brilliant mind. He elaborated ideas, immersed the
+thought in books seeking greater knowledge. He was proud of his knowledge.
 
-Certo dia, deparou-se com um filósofo que, extasiado ante o espetáculo ímpar da
-natureza, expressava sua admiração ao Criador:
+One day, he came across a philosopher who, ecstatic in the face of the odd spectacle of
+nature, expressed his admiration for the Creator:
 
-Quem é Você que está por trás da cortina das nuvens? Por que silencia a Sua voz
-e grita através dos fenômenos da natureza?
+Who are you behind the cloud curtain? Why mute His voice
+and screams through the phenomena of nature?
 
-Por que gosta de se ocultar aos olhos humanos? Deixe-me descobri-lO.
+Why do you like to hide in human eyes? Let me find it.
 
-O rapaz, com ar de intelectual, lhe disse:
+The boy, with an air of intellectual, said to him:
 
-Você está totalmente equivocado. Deus não existe. Ele é uma invenção do cérebro
-humano para suportar as limitações da vida. A ciência é o Deus do ser humano.
+You're totally wrong. God doesn't exist. He's a brain invention
+human to bear the limitations of life. Science is the God of the human being.
 
-Sem se perturbar, o filósofo respondeu:
+Without disturbing himself, the philosopher replied:
 
-Se você me disser que é um ateu, que não crê em Deus, sua atitude é
-respeitável. Ela reflete sua opinião e sua convicção pessoal. Agora, dizer que
-Deus não existe é uma ofensa à inteligência, pois reflete uma afirmação
-irracional.
+If you tell me you're an atheist, who doesn't believe in God, your attitude is
+Respectable. It reflects your opinion and your personal conviction. Now, say that
+God does not exist is an offense to intelligence, for it reflects a statement
+Irrational.
 
-Não aja como um menino brincando com a ciência e construindo seu orgulho sobre
-a areia. Você nunca se indagou quem administra este imenso Universo? O porquê
-de tanta harmonia?
+Don't act like a boy playing with science and building his pride on
+the sand. Haven't you ever joined who runs this immense universe? Why
+of such harmony?
 
-Sua intelectualidade não lhe diz que todo efeito tem uma causa? E que se esse
-efeito é grandioso, imensurável deve ser a causa?
+Doesn't your intellectuality tell you that every effect has a cause? And that if that
+effect is great, immeasurable should be the cause?
 
-Percebeu alguma vez os detalhes das folhas de uma palmeira? A perfeição do ovo?
-O potencial de uma minúscula semente que traz em si a árvore gigantesca?
+Did you ever notice the details of the leaves of a palm tree? The perfection of the egg?
+The potential of a tiny seed that brings into you the gigantic tree?
 
-Já se perguntou quem deu origem a tantas espécies vegetais e animais? A tanta
-riqueza que se encontra no seio da terra e na profundeza dos mares?
+Have you ever wondered who gave rise to so many plant and animal species? So much
+wealth that lies within the earth and deep in the seas?
 
-Guarde a certeza de que você pode duvidar de que Deus existe. Mas Deus não
-duvida de que você existe.
+Keep sure that you can doubt that God exists. But God does not
+doubt that you exist.
 
-Muitos filósofos acreditavam em Deus. Não tinham medo de argumentar e discutir
-a respeito.
+Many philosophers believed in God. They weren't afraid to argue and argue
+about it.
 
-Afinal, não sabemos quase nada sobre a caixa de segredos da nossa existência.
-Milhões de livros são como uma gota no oceano.
+After all, we know almost nothing about the box of secrets of our existence.
+Millions of books are like a drop in the ocean.
 
-Somos, em verdade, uma grande pergunta procurando uma resposta. Ou muitas
-respostas: Quem somos? Para onde vamos? Por que fomos criados?
+We are, in fact, a big question looking for an answer. Or many
+answers: Who are we? Where are we going? Why were we raised?
 
-A ciência é um produto do homem. Use-a mas não se deixe contagiar pelo vírus do
-orgulho.
+Science is a product of man. Use it but do not allow yourself to be infected by the
+Pride.
 
-A sabedoria do ser humano não está no quanto ele sabe. Mas no quanto ele tem
-consciência de que não sabe. A nobreza de um ser humano está na sua capacidade
-de reconhecer a sua pequenez.
+The wisdom of the human being is not in as much as he knows. But how much he has
+awareness that you don't know. The nobility of a human being lies in his capacity
+to recognize their smallness.
 
-Silenciou o filósofo. O jovem ficou a pensar. Olhou o sol que brilhava forte,
-sentiu a brisa leve no rosto, ouviu o farfalhar das folhas que se perdiam pelo
-chão.
+Silenced the philosopher. The young man kept thinking. He looked at the sun that shone brightly,
+felt the light breeze on his face, heard the rustling of the leaves that were lost by the
+Floor.
 
-E continuou a pensar...
+And he kept thinking...
 
                                    *   *   *
 
-Deus está em toda parte e está dentro de nós. Quando tomamos de uma fruta e nos
-extasiamos com a sua cor, a sua textura, o seu sabor, estamos sentindo a
-Divindade.
+God is everywhere and is inside us. When we take a fruit and
+let us ecstatic with its color, its texture, its taste, we are feeling the
+Divinity.
 
-Quando contemplamos as nuvens imitando andarilhos pelo céu, e as vemos destilar
-lágrimas generosas sobre a terra, estamos contemplando o cuidado de Deus com
-Suas criaturas.
+When we contemplate the clouds imitating wanderers through the sky, and we see them distill
+generous tears upon the earth, we are contemplating God's care with
+Your creatures.
 
-No verde das árvores, no vermelho das rosas, nas cores do arco-íris, Deus se
-manifesta. No dia abençoado, na noite escura.
+In the green of the trees, in the red of roses, in the colors of the rainbow, God
+Manifest. On blessed day, dark night.
 
-No rosto das pessoas que passam, nas sementes que brotam - em tudo Deus está.
-Permitamo-nos descobri-lO.
+In the face of the passing people, in the seeds that spring - in everything God is.
+Let us find ourselves.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 10,

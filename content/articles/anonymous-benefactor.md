@@ -10,89 +10,89 @@ topics:
 - mother
 ---
 
-Não saiba a vossa mão esquerda o que faz a vossa mão direita. As palavras do
-Mestre de Nazaré foram colhidas pelo Apóstolo Mateus e inseridas no capítulo
-sexto do seu Evangelho.
+Don't know your left hand what your right hand does. The words of the
+Master of Nazareth were harvested by the Apostle Matthew and inserted in the chapter
+sixth of his Gospel.
 
-Certamente seguindo este especial ensinamento, é que aquele homem, muito rico,
-distribuía benefícios.
+Certainly following this special teaching, is that that man, very rich,
+distributed benefits.
 
-Primava pelo anonimato. Certa vez, chegando em uma pequena cidade, a negócios,
-entrou em uma lanchonete para um rápido lanche.
+I was prime of anonymity. Once, arriving in a small town, on business,
+entered a diner for a quick snack.
 
-Observou que entre os garotos que brincavam na rua, um mancava por causa de um
-dos pés deformado.
+He noted that among the boys who played in the street, one limped because of a
+of the deformed feet.
 
-Chamando-o, lhe perguntou se o pé o incomodava, ao que o menino respondeu que
-não podia correr, como os demais.
+Calling him, asked him if his foot bothered him, to which the boy replied that
+couldn't run, like the others.
 
-Também falou que precisava cortar um pedaço do sapato para poder pisar melhor.
+He also said he needed to cut a piece of the shoe so he could step on better.
 
-Você gostaria de ter seu pé curado? – Perguntou o homem.
+Would you like to have your foot healed? "The man asked.
 
-É claro! Respondeu o garoto, com os olhos brilhando.
+Yes, of course! Answered the boy, with his eyes shining.
 
-Pois eu vou providenciar que seu pé fique normal. – Prometeu o estranho.
+Well, I'm going to make sure your foot is normal. " You promised the stranger.
 
-Em seguida, pediu ao seu motorista que descobrisse o endereço do menino Jimmy,
-de oito anos.
+Then he asked his driver to find out the address of the boy Jimmy,
+eight years.
 
-Depois, que falasse com os seus pais, conseguindo autorização para a realização
-da cirurgia.
+Then, that he spoke to his parents, obtaining authorization for the realization
+surgery.
 
-Não foi tarefa difícil ao empregado, pois todos conheciam o garoto do pé
-defeituoso.
+It wasn't a difficult task for the employee, because everyone knew the boy in the foot
+Defective.
 
-Ele encontrou uma casa muito pobre, com vestidos remendados e algumas camisas
-velhas no varal.
+He found a very poor house, with patched dresses and some shirts
+old in the clothesline.
 
-Foi preciso conversar muito para convencer os pais que tudo não passava de
-armação.
+It took a lot of talk to convince parents that everything was just
+Frame.
 
-Afinal, disse a mãe, ninguém dá nada de graça.
+After all, mom said, nobody gives anything for free.
 
-Mas o meu patrão, afirmou o motorista, costuma fazer isso sempre.
+But my boss, the driver said, usually does that all the time.
 
-Jimmy foi para uma clínica especializada e submeteu-se a cinco cirurgias.
-Tornou-se o xodó da enfermagem.
+Jimmy went to a specialized clinic and underwent five surgeries.
+He became the nursing shawc.
 
-O fiel motorista acompanhou tudo, a pedido de seu empregador, providenciando o
-que fosse preciso.
+The faithful driver accompanied everything at the request of his employer, providing the
+that was necessary.
 
-Finalmente, chegou o dia de voltar para casa. Sapatos novos foram
-providenciados.
+Finally, the day came to return home. New shoes were
+Provided.
 
-Jimmy não cabia em si de contentamento e ansiedade.
+Jimmy didn't fit in himself with contentment and anxiety.
 
-Quando o luxuoso carro parou na porta da sua casa, ele disse:
+When the luxury car stopped at the door of his house, he said:
 
-Espere! Quero entrar sozinho.
+Wait! I want to go in alone.
 
-Os pais e os irmãos vieram à porta. E um menino de pés sem defeitos, calçando
-sapatos novos, desceu do automóvel e andou, sorridente, de braços abertos, ao
-encontro deles.
+The parents and brothers came to the door. And a boy with faultless feet, wearing
+new shoes, came down from the car and walked, smiling, with open arms, to the
+meeting of them.
 
-Naquele Natal, o empresário ainda providenciou que toda a família fosse levada
-a uma grande loja da cidade, para que cada um deles escolhesse um par de
-sapatos.
+That Christmas, the businessman still arranged that the whole family be taken
+to a large city shop, so that each of them would choose a couple of
+Shoes.
 
-Jimmy se tornou um bem sucedido homem de negócios, e jamais soube o nome do seu
-benfeitor.
+Jimmy became a successful businessman, and never knew the name of his
+Benefactor.
 
-Tudo porque seu benfeitor, Henry Ford, pioneiro da indústria automobilística
-americana, sempre dizia que é mais divertido fazer algo pelas pessoas quando
-elas não sabem quem lhes fez o bem.
+All because your benefactor, Henry Ford, pioneer of the auto industry
+american, always said that it's more fun to do something for people when
+they don't know who did them good.
 
                                    *   *   *
 
-Fazer o bem sem ostentação é grande mérito. Mais meritório ainda é ocultar a
-mão que dá.
+Doing good without ostentation is great merit. Even more meritorious is to hide the
+hand it gives.
 
-É mesmo marca de grande superioridade moral, porque renuncia à satisfação do
-aplauso dos homens.
+It is even a mark of great moral superiority, because it renounces the satisfaction of the
+applause from men.
 
-Os que assim agem, provam sua real modéstia e se enquadram exatamente no ensino
-evangélico: Não saber a mão esquerda o que dá a mão direita.
+Those who act like this, prove their real modesty and fall exactly into teaching
+evangelical: Do not know the left hand what gives the right hand.
 
 
 ## Source

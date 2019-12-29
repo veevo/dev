@@ -18,84 +18,84 @@ topics:
 - family
 ---
 
-Todos os seres vivos nascemos, vivemos um determinado tempo. E morremos um dia.
-Nada mais certo, nesta Terra. Fatal é o instante da morte.
+All living beings are born, we live a certain time. And we die one day.
+Nothing more right on this earth. Fatal is the instant of death.
 
-Contudo, muitos fatores podem determinar que aceleremos o momento da nossa
-morte ou a retardemos.
+However, many factors can determine that we accelerate the time of our
+death or delay.
 
-Alguns pensamos que existe um dia, com hora e segundo certo de morrer. No
-entanto, isso não retrata a verdade.
+Some think there is a day, with a right time and second to die. In
+however, this does not portray the truth.
 
-Vejamos que as flores que plantamos em nosso jardim dependem de nossos
-cuidados. Podemos lhes abreviar a vida, deixando de lhes fornecer a água de que
-necessitam.
+Let's see that the flowers we plant in our garden depend on our
+Care. We can shorten their lives by failing to provide them with the water that
+Need.
 
-Ou podemos, simplesmente, arrancá-las e jogá-las no lixo.
+Or we can just rip them out and throw them in the trash.
 
-Os animais domésticos igualmente aguardam que lhes providenciemos o alimento, a
-água, o abrigo. Quantos de nós lhes aceleramos o processo da morte por
-descuidos, abandono ou negligência?
+Domestic animals also await us to provide them with food,
+water, the shelter. How many of us have accelerated the process of death by
+carelessness, abandonment or neglect?
 
-Quantos não providenciamos os medicamentos e cuidados especiais que necessitam?
+How many do we not provide the special medicines and care they need?
 
-E nem temos ideia correta por quantas espécies animais extintas somos direta ou
-indiretamente responsáveis.
+And we have no correct idea how many extinct animal species we are direct or
+indirectly responsible.
 
-Se falarmos de nós mesmos, a questão não se faz muito diversa.
+If we talk about ourselves, the issue is not very different.
 
-Podemos acelerar nossa passagem por este planeta, nos entregando a vícios, por
-exemplo.
+We can accelerate our passage through this planet, handing us to vices, for
+Example.
 
-Alguns acreditamos que são simples hábitos, que não nos causarão maiores males.
+Some believe that they are simple habits, which will not cause us greater evils.
 
-Esquecemos de que uma gota de veneno pode causar a morte. E existem venenos que
-aceitamos, diariamente, como o fumo, o álcool.
+We forget that a drop of poison can cause death. And there are poisons that
+we accept, daily, such as smoking, alcohol.
 
-Um e outro podem nos ocasionar enfermidades que abreviarão a nossa estada nesta
-Terra. Ou irão, a pouco e pouco, minando cargas vitais, com igual resultado.
+One and the other can cause us infirmities that will abbreviate our stay in this
+Earth. Or they will, little by little, undermining vital loads, with equal results.
 
-Também nossa forma de reagir ao que nos ocorre depõe contra nossa vida.
+Also our way of reacting to what occurs to us testifies against our lives.
 
-Uma explosão de raiva pode destruir energias preciosas, causando danos ao
-cérebro, aos neurônios.
+An explosion of anger can destroy precious energies, causing damage to the
+brain, neurons.
 
-De acordo com um estudo realizado por cientistas americanos, o mau humor, a
-impaciência e a raiva podem causar ataque cardíaco.
+According to a study by American scientists, bad mood,
+impatience and rabies can cause heart attack.
 
-Afirmam que jovens, que reagem rapidamente ao estresse com raiva, tem três
-vezes mais chances de desenvolver doenças do coração.
+They claim that young people, who react quickly to stress with anger, have three
+times more likely to develop heart disease.
 
-Esses jovens têm cinco vezes mais chances do que as pessoas calmas de sofrer um
-ataque cardíaco prematuro, mesmo sem ter histórico de doenças cardíacas na
-família.
+These young people are five times more likely than calm people to suffer a
+premature heart attack, even without a history of heart disease in the
+Family.
 
-Conclui-se que temperamentos explosivos podem desenvolver doenças muito antes
-que qualquer outro fator de risco se torne aparente, como diabetes ou
-hipertensão.
+It is concluded that explosive temperaments can develop diseases long before
+that any other risk factor becomes apparent, such as diabetes or
+Hypertension.
 
-Verificamos, assim, que nossa vida depende de nós. Mais longa ou mais curta.
-Mais calma, com menos dores de cabeça, de estômago e problemas biliares.
+We thus verify that our lives depend on us. Longer or shorter.
+Calmer, with fewer headaches, stomach pains and biliary problems.
 
-Ou mais estressada, recheada de manifestações agressivas e ataques de raiva.
+Or more stressed, filled with aggressive demonstrations and anger attacks.
 
-A questão é como desejamos viver. E quanto mais desejamos viver.
+The question is how we want to live. And the more we want to live.
 
-Alguns homens na face da Terra atestam que respirar o saudável, em pensamentos
-e atos, coopera para a longevidade.
+Some men on the face of the Earth attest that breathing the healthy, in thoughts
+and acts, cooperates for longevity.
 
-Ultrapassando os noventa ou os cem anos, mantêm a lucidez, excelente memória. E
-cooperam com a Humanidade, onde se encontrem.
+Over the ninety or 100 years, they maintain lucidity, excellent memory. And
+cooperate with humanity, where they meet.
 
-Alguns constituíram família, criaram filhos e abençoaram os netos e bisnetos,
-deixando-lhes um exemplo de nobreza e dignidade.
+Some constituted family, raised children, and blessed their grandchildren and great-grandchildren,
+leaving them an example of nobility and dignity.
 
-Tudo recheado com muita calma e muito amor.
+All stuffed with great calm and lots of love.
 
-Pensemos nisso e nos amemos. Amemos nosso corpo, nosso instrumento de trabalho.
+Let's think about it and love each other. We love our body, our working instrument.
 
-Amemos nossa vida, talento divino que nos foi concedido para a realização do
-melhor.
+Let us love our life, divine talent that has been given to us for the realization of the
+Better.
 
 ## Source
 Redação do Momento Espírita.

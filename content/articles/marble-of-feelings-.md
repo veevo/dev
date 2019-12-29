@@ -8,79 +8,79 @@ topics:
 - prayer
 ---
 
-Conta-se que, nos primeiros dias do ano trinta, após algum tempo de meditação
-profunda no deserto da Judeia, Jesus foi visto em Jerusalém, próximo ao templo.
+It is said that, in the first days of the year thirty, after some time of meditation
+in the Judean desert, Jesus was seen in Jerusalem near the temple.
 
-Sentado, como um peregrino, o Rabi foi notado por um grupo de sacerdotes, que
-se sentiram atraídos pelos Seus traços de formosa originalidade e pelo Seu
-olhar lúcido e profundo.
+Sitting, like a pilgrim, the Rabbi was noticed by a group of priests, who
+were attracted by His traces of beautiful originality and His
+lucid and deep look.
 
-Alguns deles logo se afastaram, porém Hanan, que seria mais tarde o juiz
-inclemente de Sua causa, aproximou-se do desconhecido e disse com orgulho:
+Some of them soon walked away, but Hanan, who would later be the judge
+inclement of His cause, approached the unknown and proudly said:
 
-Galileu, que fazes na cidade?
+Galileo, what are you doing in town?
 
-Passo por Jerusalém, buscando a fundação do reino de Deus! Exclamou o Cristo,
-com modesta nobreza.
+I pass through Jerusalem, seeking the foundation of the kingdom of God! Exclaimed Christ,
+with modest nobility.
 
-Reino de Deus? – Tornou o sacerdote com acentuada ironia. E que pensas seja
-isso?
+Kingdom of God? " He made the priest with a sharp irony. And what do you think it is
+Right?
 
-Esse reino é a obra divina no coração dos homens! – Esclareceu Jesus, com
-grande serenidade.
+This kingdom is the divine work in the hearts of men! " Jesus clarified, with
+great serenity.
 
-Obra divina em tuas mãos? – Revidou Hanan, com uma gargalhada de desprezo. E
-continuou com várias observações irônicas.
+Divine work in your hands? "He fought Back Hanan, with a laugh of contempt. And
+continued with several ironic observations.
 
-Tu te propões realizar uma obra divina. Por acaso, já viste alguma estátua
-perfeita modelada em fragmentos de lama?
+You propose to perform a divine work. As a matter of fact, have you ever seen a statue
+perfect modeled on mud fragments?
 
-Sacerdote – replicou-lhe Jesus, com energia serena – nenhum mármore existe mais
-puro e mais formoso do que o do sentimento, e nenhum cinzel é superior ao da
-boa vontade sincera.
+Priest , jesus replied to him, with serene energy – no marble exists more
+pure and more forous than that of feeling, and no chisel is superior to that of the
+sincere goodwill.
 
-O sacerdote ainda se debateu entre um e outro aparte vaidoso, porém, acabou se
-retirando irritado, esbravejando.
+The priest still struggled between one and the other vain aside, but it was over
+pulling out angry, squealing.
 
-O momento passou, o sacerdote passou... A lição, no entanto, permaneceu
-imortalizada. Jesus deixava claro, desde as primeiras pregações, qual era o
-reino que desejava construir.
+The moment passed, the priest passed... The lesson, however, remained
+Immortalized. Jesus made it clear from the first preaching, what was the
+kingdom that he wished to build.
 
-Era Ele o escultor experiente que se sujeitara a nascer entre nós, os
-aprendizes das mãos, disposto a nos mostrar o caminho para aformosearmos nossas
-próprias almas, nossas obras maiores.
+He was the experienced sculptor who had subjected himself to being born among us, the
+apprentices of the hands, willing to show us the way to saverour our
+souls themselves, our greatest works.
 
-Era o professor e, ao mesmo tempo, a bela estátua, esculpida, tornada perfeita
-através das eras, através da lei do progresso.
+It was the teacher and, at the same time, the beautiful statue, carved, made perfect
+through the ages, through the law of progress.
 
-O sentimento do homem era ainda o bloco bruto, duro, aguardando o melhor cinzel
-para começar a lhe revelar a bela imagem que carrega em seu interior.
+Man feeling was still the rough, hard block, waiting for the best chisel
+to start revealing to you the beautiful image you carry inside.
 
-Esse instrumento seria a boa vontade, que o Mestre usaria para esculpir e nos
-mostraria como utilizar essa poderosa ferramenta para nosso próprio
-aprimoramento.
+This instrument would be goodwill, which the Master would use to carve and in the
+would show you how to use this powerful tool for our own
+Improvement.
 
-Dentro da boa vontade está o trabalho, a dedicação, a persistência e o tempo.
-Tornar formosa a alma é ofício não apenas para uma vida.
+Within goodwill is work, dedication, persistence and time.
+Making the soul beautiful is craft not just for a lifetime.
 
                                    *   *   *
 
-O mármore do sentimento e o cinzel da boa vontade – lembremos disso.
+The marble of feeling and the chisel of goodwill – let us remember that.
 
-Escultores milenares que somos, aprendizes do grande artífice que foi Jesus,
-estamos aqui para desenvolver os bons sentimentos.
+Millennial sculptors we are, apprentices of the great craftsman who was Jesus,
+we are here to develop good feelings.
 
-Os sentimentos inferiores, aqueles que ainda nos fazem sofrer tanto, esses vão
-caindo no chão naturalmente, como as sobras do mármore que o cinzel vai
-retirando.
+The inferior feelings, those that still make us suffer so much, these will
+falling to the ground naturally, like the remains of the marble that the chisel will
+Removing.
 
-Boa vontade para conosco, paciência, persistência e seriedade na tarefa são
-fundamentais.
+Goodwill for us, patience, persistence and seriousness in the task are
+Fundamental.
 
-Boa vontade para com o próximo, benevolência, indulgência e perdão, completam
-nosso ferramental precioso para construir essa tão importante obra.
+Goodwill towards others, benevolence, indulgence and forgiveness, complete
+our precious tooling to build this important work.
 
-Somos a nossa maior obra. Pensemos nisso.
+We are our greatest work. Let's think about it.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 3,

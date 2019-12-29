@@ -19,62 +19,62 @@ topics:
 ---
  
 
-Alguns dias na vida de todos nós se mostram verdadeiramente desafiadores.
+A few days in the life of all of us are truly challenging.
 
-Por mais tranquila que a vida siga seu curso, é natural surgir esse ou aquele
-desafio maior a nos exigir o esforço da fé e a coragem do enfrentamento lúcido.
+As quiet as life goes its course, it is natural to emerge this or that
+greater challenge to demand us the effort of faith and the courage of lucid coping.
 
-Inesperadamente, a saúde do corpo físico, que se mostrava sólida e inabalável,
-vê-se minada pelo diagnóstico de grave moléstia, exigindo longo e doloroso
-tratamento.
+Unexpectedly, the health of the physical body, which proved solid and unshakable,
+is undermined by the diagnosis of severe disease, requiring long and painful
+Treatment.
 
-A outrora relação familiar, harmônica e fraternal, é surpreendida pela visita
-da morte, a alcançar o ente querido, que sintetizava a estrutura emocional e a
-referência afetiva de tantos.
+The once-family, harmonic and fraternal relationship is surprised by the visit
+of death, to reach the loved one, who synthesized the emotional structure and
+affective reference of so many.
 
-A amizade cultivada desde há muito, na intimidade do coração, que a guardava
-qual joia em cofre valioso, vê-se violentada pela mesquinhez e traição,
-acompanhadas pela covardia e indiferença.
+The friendship cultivated long ago, in the intimacy of the heart, that kept it
+what jewel in valuable safe, finds herself raped by pettiness and betrayal,
+accompanied by cowardice and indifference.
 
-Outras vezes, a vida, que nos parecia tão rica e cheia de significados, nos
-elege para a solidão, impedindo a companhia de afetos ou o encontrar de alguém
-para ombrear e caminhar conosco nos dias mais difíceis.
+Other times, life, which seemed so rich and full of meanings, in the
+elects for solitude, preventing the company from affections or finding it from someone
+to shoulder and walk with us on the most difficult days.
 
-De outra feita, a calúnia nos visita os dias antes tranquilos, tecendo
-histórias e tramas que não nos pertencem, replicadas por bocas levianas e
-insensatas, magoando-nos a sensibilidade pela injúria e difamação.
+From another time, the slander visits us the days before quiet, weaving
+stories and plots that do not belong to us, replicated by frivolous mouths and
+foolish, hurting us the sensitivity to injury and defamation.
 
-Todas essas são as cruzes de provação de nossa caminhada. Todos nós, no mundo,
-carregamos o madeiro pesado das aflições e dificuldades, muitas vezes no
-silêncio da intimidade, e no desconhecimento aos olhos do mundo.
+All these are the ordeal crosses of our walk. All of us in the world,
+we carry the heavy logger of afflictions and difficulties, often in the
+silence of intimacy, and ignorance in the eyes of the world.
 
-A dor na Terra ainda é processo depurador de mil delitos que não foram
-justiçados e de vícios alarmantes que permaneceram ocultos.
+Pain on Earth is still a process of debugging a thousand offences that have not been
+justices and alarming vices that remained hidden.
 
-Assim, a misericórdia de Deus nos possibilita  recuperarmo-nos dos delitos de
-outrora, depurando, pelo sofrimento, as dificuldades por nós mesmos plantadas.
+Thus, God's mercy makes it possible for us to recover from the crimes of
+once, debugging, by suffering, the difficulties planted by ourselves.
 
-Será no padecimento que reconsideraremos atitudes, reprogramaremos atividades e
-nos alçaremos efetivamente para o bem.
+It will be in the country that we will reconsider attitudes, reschedule activities and
+we will effectively lift ourselves for good.
 
-Portanto, perante a dor e a dificuldade, evitemos o desânimo ou a revolta.
+Therefore, in the face of pain and difficulty, let us avoid discouragement or revolt.
 
-Lembremo-nos de que o adágio popular ganha razão quando diz que Deus dá a cruz
-conforme a capacidade de nossos ombros.
+Let us remember that popular adage gains reason when he says that God gives the cross
+according to the ability of our shoulders.
 
-Jamais desdigamos as provações que nos cheguem, convidando à renovação e à
-reestruturação de nossa intimidade.
+We will never dislike the trials that come to us, inviting the renewal and
+restructuring of our intimacy.
 
-Antes, façamos dessas dores nosso instrumento de redenção e ressarcimento dos
-débitos de antes.
+First, let us make these pains our instrument of redemption and reimbursement of
+debts from before.
 
-Desse modo, ao nos sentirmos atados às cruzes das provações dolorosas,
-adornemo-nos com as flores do amor fraternal, transformando as dores de hoje na
-esperança em relação aos dias vindouros.
+Thus, as we feel tied to the crosses of painful trials,
+we adorn ourselves with the flowers of brotherly love, transforming today's pains into the
+hope over the days to come.
 
-Com resignação dinâmica, conseguiremos superar os dias mais graves, tendo
-sempre em mente que, dos braços da cruz em que nos encontramos atados,
-conseguiremos alçar mais rapidamente às elevadas esferas da libertação.
+With dynamic resignation, we will be able to overcome the most serious days, having
+always in mind that, from the arms of the cross on which we find ourselves tied,
+we will be able to lift the high spheres of liberation faster.
 
 
 ## Source

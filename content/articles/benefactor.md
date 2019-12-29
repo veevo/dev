@@ -14,91 +14,91 @@ topics:
 ---
 
 
-A dor tem sido, em todas as épocas da Humanidade, uma constante entre os seres.
+Pain has been, in all times of humanity, a constant among beings.
 
-Instala-se de forma inesperada e passa, a partir daí, a ser o centro das
-atenções, modificando planos, alterando rumos.
+It installs unexpectedly and becomes, from there, to be the center of
+attention, modifying plans, changing directions.
 
-Quando detestada, suas reações são violentas, tornando-se ainda mais forte.
-Quando aceita, seus efeitos são mais brandos.
+When hated, their reactions are violent, becoming even stronger.
+When accepted, its effects are milder.
 
-A verdade é que a dor se faz conhecida de todos e ninguém pode lhe impedir a
-presença.
+The truth is that pain is made known to everyone and no one can prevent you from
+Presence.
 
-Ela assume as mais variadas facetas e depois que encerra um ciclo, prepara,
-para um novo cometimento, a sua oportuna aparição.
+It takes on the most varied facets and after it ends a cycle, prepares,
+for a new beginning, his timely appearance.
 
-Ora são as dificuldades econômicas que afligem, ora a solidão afetiva que o
-dinheiro não consegue aplacar.
+Now it is the economic difficulties that afflict, sometimes the affective loneliness that the
+money can't placate.
 
-Ali é o ódio que dilacera os tecidos íntimos do ser, acolá são as garras das
-enfermidades irreversíveis que reduzem a pó as mais sinceras esperanças.
+There is hatred that tears apart the intimate tissues of being, there are the claws of
+irreversible diseases that reduce dust the most sincere hopes.
 
-São amores que partem para o outro plano da vida, sem nem mesmo um último
-adeus. São mentiras que destroem sonhos e afastam corações amigos.
+They are loves who leave for the other plan of life, without even one last
+Goodbye. These are lies that destroy dreams and ward off friends hearts.
 
-A dor, como ferramenta divina de depuração, submete e atinge, sem exceção,
-todas as criaturas.
+Pain, as a divine tool of purification, submits and reaches, without exception,
+all creatures.
 
-Os prepotentes, que a desconsideram, não chegam ao termo da jornada sem lhe
-experimentar a companhia.
+The boastful, who disregard her, do not reach the end of the journey without
+experience the company.
 
-Os orgulhosos, que a desprezam, considerando-se inalcançáveis, encontram-na
-logo adiante.
+The proud, who despise her, considering herself unreachable, find her
+just ahead.
 
-Seu cerco é invencível.
+Your siege is invincible.
 
-Instrumento da Lei de Deus, a dor serve como benfeitora anônima que a todos
-visita.
+Instrument of God's Law, pain serves as an anonymous benefactor that to all
+Visit.
 
-Sua ação não é resultado do acaso, tampouco pode ser considerada como uma
-ocorrência injusta.
+Its action is not the result of chance, nor can it be considered as a
+unfair occurrence.
 
-Nossas atribulações nada mais são do que consequências de equívocos do passado,
-exigindo a cabível reparação e o devido resgate.
+Our tribulations are nothing more than consequences of misconceptions of the past,
+requiring the proper repair and proper redemption.
 
-São repercussões da violação das Leis Divinas.
+These are repercussions of the violation of divine laws.
 
-São ocasiões benditas de aprendizado e refazimento.
+These are benditas occasions of learning and redoing.
 
-A dor, que a muitos amesquinha, humilha e atordoa, deve constituir estímulo de
-crescimento e evolução, a fim de que alcancemos a grande vitória sobre nós
-mesmos.
+The pain, which to many amoesquinha, humiliates and stuns, must be a stimulus of
+growth and evolution, so that we achieve the great victory over us
+Same.
 
-Não temamos. Não nos deixemos dominar pelo sofrimento e pela sensação de
-autocomiseração.
+We don't be afraid. Let us not allow ourselves to be overwhelmed by suffering and the feeling of
+self-commiseration.
 
-Quando um motivo de dor ou de contrariedade nos atingir, elevemo-nos acima das
-circunstâncias, dominando os impulsos de impaciência, de cólera ou de
-desespero.
+When a cause of pain or contravenity strikes us, we raise ourselves above the
+circumstances, dominating the impulses of impatience, anger or
+Despair.
 
-Podemos, pela própria vontade, domar ou vencer a dor, ou, pelo menos, fazer
-dela meio de elevação.
+We can, by their own will, tame or overcome pain, or at least make
+her means of elevation.
 
-A dor serve para polir, lapidar, esculpir e edificar as verdadeiras qualidades
-do Espírito imortal.
+Pain is used to polish, cut, sculpt and build true qualities
+of the immortal Spirit.
 
-Lembremo-nos: bem-aventurados os aflitos porque têm a oportunidade de provar a
-sua fé, a sua firmeza, a sua perseverança e a sua submissão à vontade de Deus.
-E porque passada a tempestade, eles terão as alegrias que lhes faltam na Terra.
+Let us remember: blessed are the afflicted because they have the opportunity to prove the
+his faith, his firmness, his perseverance and his submission to God's will.
+And because after the storm, they will have the joys that they lack on Earth.
 
                                    *   *   *
 
-A felicidade não é deste mundo.
+Happiness is not from this world.
 
-A dor será necessária enquanto os homens não pautarem seus atos, pensamentos e
-palavras de acordo com as Leis eternas.
+Pain will be necessary until men guide their acts, thoughts and
+words according to eternal laws.
 
-Todas as aflições do presente são frutos de um passado equivocado.
+All the afflictions of the present are the fruit of a mistaken past.
 
-Nem a fortuna, nem o poder, nem mesmo a juventude em flor são condições
-essenciais à felicidade.
+Neither fortune, nor power, not even youth in bloom are conditions
+essential to happiness.
 
-Há pessoas que detêm tudo o que falta a outros e também não se sentem felizes.
+There are people who hold everything that is missing from others and also do not feel happy.
 
-Utilizemos a fé como remédio certo para o sofrimento. Ela aponta sempre os
-horizontes do infinito, ante os quais se esvaem os poucos dias de sombra do
-presente.
+Let us use faith as the right remedy for suffering. It always points out the
+horizons of infinity, before which the few days of shadow of the
+This.
 
 ## Source
 Redação do Momento Espírita, com base no cap.4, Do livro Momentos

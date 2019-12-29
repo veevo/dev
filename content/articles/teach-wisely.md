@@ -7,79 +7,79 @@ topics:
 - wisdom
 ---
 
-        Você já teve alguma dificuldade para convencer seu filho a fazer alguma
-coisa que ele não desejava ou se sentia incapaz de fazer?
+        Have you ever had any difficulty convincing your son to do some
+thing he didn't want or felt unable to do?
 
-        Em caso afirmativo, qual foi a tática usada para esse convencimento?
+        If so, what was the tactic used for this conviction?
 
-        As respostas são as mais variadas possíveis, mas, geralmente, não
-usamos estratégias eficientes porque a nossa paciência não o permite.
+        The answers are as varied as possible, but generally not
+we use efficient strategies because our patience does not allow it.
 
-        Todavia, para que consigamos um resultado satisfatório na educação dos
-filhos, é preciso ensinar com sabedoria.
+        However, in order for us to achieve a satisfactory result in the education of
+children, you have to teach wisely.
 
-        Uma pequena história de dois irmãos nos dará mostra disso.
+        A little story of two brothers will show us that.
 
-        O menino, parado diante da alta montanha, disse à irmã mais velha:
+        The boy, standing in front of the high mountain, told his older sister:
 
-        “Não consigo subir este morro. É impossível! O que vai acontecer
-comigo? Vou passar a vida inteira aqui no pé do morro? Isso é terrível demais!”
+        "I can't climb this hill. It's impossible! What's going to happen
+Me? Am I going to spend my whole life here at the foot of the hill? That's too terrible!"
 
-        “Que pena!” Disse a irmã. “Mas olhe, maninho, descobri uma brincadeira
-ótima!”
+        "What a pity!" Said sister. "But look, little brother, I discovered a joke
+great!"
 
-        No mesmo instante, pisou com força no solo e desafiou o irmão: "Duvido
-que você consiga deixar uma pegada tão nítida, na terra, quanto a minha."
+        At the same moment, he stepped the ground and challenged his brother: I doubt
+that you can leave a footprint as sharp on earth as mine."
 
-        O menino aceitou o desafio e deu um passo à frente. Colocou o pé no
-chão e respondeu com alegria:
+        The boy accepted the challenge and took a step forward. He put his foot in the
+ground and replied with joy:
 
-        “Veja! A minha pegada está igual à sua!”
+        "Look! My footprint is just like yours!"
 
-        “Você acha?” Perguntou a irmã. “Olhe a minha de novo. Agora eu vou
-pisar mais fundo, porque sou mais pesada que você.
+        "Do you think?" He asked his sister. "Look at mine again. Now I'm going to
+step deeper, because I'm heavier than you.
 
-        Tente outra vez, e veja se consegue pisar mais forte”, continuou a
-irmã.
+        Try again, and see if you can step on stronger," continued the
+Sister.
 
-        “Agora a minha está tão funda quanto a sua”, gritou o menino com
-alegria.
+        "Now mine is as deep as yours!" cried the boy with
+Joy.
 
-        E, com satisfação continuou a dar passos e fazer pegadas cada vez mais
-fortes.
+        And with satisfaction continued to take steps and make footprints more and more
+Strong.
 
-        “Olhe, mana! Esta, esta e esta, estão o mais fundo possível.”
+        "Look, sis! This, this and this, are as deep as possible."
 
-        “É, está muito bom mesmo”, disse a irmã. “Mas agora é minha vez, deixe
-eu tentar de novo e vamos ver.”
+        "yes, it's really good, " said the sister. "But now it's my turn, let
+I try again and let's see."
 
-        E eles continuaram, passo a passo, comparando as pegadas e rindo da
-nuvem de poeira que deixavam para trás.
+        And they continued, step by step, comparing the footprints and laughing at the
+cloud of dust they left behind.
 
-        Não demorou muito tempo e o menino olhou para cima.
+        It didn't take long and the boy looked up.
 
-        “Ei”, disse ele, “nós estamos no alto do morro.”
+        "Hey, " he said, "we're high on the hill."
 
-        “Nossa!” Disse a irmã. “Estamos mesmo.”
+        "Wow!" Said sister. "We are."
 
-        A garota, usando a sabedoria, conseguiu convencer o irmão que não
-estava disposto a enfrentar a caminhada morro acima.
+        The girl, using wisdom, managed to convince her brother that he did not
+was willing to face the hill walk up.
 
-        Sua tática foi a de caminhar à sua frente e desafiá-lo a fazer o mesmo,
-em forma de brincadeira.
+        His tactic was to walk in front of him and challenge him to do the same,
+in the form of a joke.
 
-        Mas, ao contrário da sua atitude, muitos de nós usamos a maneira mais
-difícil, que é a do empurrão. Desejamos que os filhos vençam as dificuldades e
-as limitações na base da chantagem ou do tradicional "sopapo".
+        But, contrary to your attitude, many of us use the most
+difficult, that's the push. We want children to overcome difficulties and
+limitations on the basis of blackmail or traditional "sopapo".
 
-        Talvez esse seja o motivo pelo qual nossas tentativas muitas vezes não
-dão bom resultado.
+        Perhaps that's why our attempts often don't
+give good results.
 
-        Por essa razão, vale a pena pensar na melhor forma de conduzir nossos
-educandos para que eles consigam chegar ao ponto que desejamos, sem cicatrizes
-e sem traumas.
+        For this reason, it is worth thinking about how best to drive our
+education so that they can get to the point we desire, without scars
+and no trauma.
 
-        Pensemos nisso!
+        Let's think about it!
 
 ## Source
 Redação do Momento Espírita, com base no cap. O morro, de Laura E. Richards,

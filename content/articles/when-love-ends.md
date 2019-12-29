@@ -15,93 +15,93 @@ topics:
 ---
 
 
-De repente, o que era luz se faz sombra. A época do namoro, as delicadezas e
-olhares apaixonados dão lugar à amargura, à aridez dos dias.
+Suddenly, what was light is made shadow. The time of dating, delicacies and
+passionate looks give way to bitterness, the aridity of the days.
 
-E muita gente afirma: O amor acabou!
+And a lot of people say, love is over!
 
-Uma sentença que cai pesada sobre os ombros de quem ouve. O fim do amor talvez
-seja a mais triste notícia para um ser humano. Afinal, o amor move o mundo e
-enche a vida de alegria.
+A sentence that falls heavy on the shoulders of those who listen. The end of love perhaps
+be the saddest news for a human being. After all, love moves the world and
+fills life with joy.
 
-Mas, será que o amor acaba? Afinal, é um sentimento tão forte que ultrapassa a
-barreira dos relacionamentos pessoais e deságua nas relações sociais.
+But does love end? After all, it is a feeling so strong that it goes beyond the
+barrier of personal relationships and water out in social relationships.
 
-Onde há um grupamento humano há a necessidade de amor.
+Where there is a human groupthere is the need for love.
 
-Amor de pais, de filhos, de amigos. Amor entre um homem e uma mulher. Que
-importa de que tipo é o amor?
+Love of parents, children, friends. Love between a man and a woman. That
+care what kind is love?
 
-Basta que ele exista para que seu perfume imediatamente transforme os
-ambientes, ilumine os olhos, torne o ar mais leve.
+It is enough that it exists for your perfume to immediately transform the
+environments, light enonise the eyes, make the air lighter.
 
-E se é tão essencial o amor, por que o deixamos acabar? Por que permitimos que
-ele se amesquinhe e seja sufocado?
+And if love is so essential, why do we let it end? Why do we allow
+he gets anamesquine and suffocated?
 
-É que nem sempre sabemos priorizar o que realmente é importante. Nem sempre
-sabemos cuidar das pessoas que mais amamos.
+It's just that we don't always know how to prioritize what's really important. Not always
+we know how to take care of the people we love the most.
 
-Por vezes tratamos mal justamente aqueles a quem mais queremos bem. São nossos
-pais, irmãos, esposos e filhos...
+Sometimes we treat just those we want most well. They are ours
+parents, siblings, spouses and children...
 
-Eles deveriam ser nossa prioridade, mas parecem estar sempre em último lugar.
-Para eles deveríamos guardar os gestos de delicadeza, os afagos, as palavras
-gentis.
+They should be our priority, but they always seem to be in last place.
+For them we should keep the gestures of delicacy, the cuddles, the words
+Tribe.
 
-Pior ainda é quando permitimos que os abismos e silêncios aconteçam em nossa
-casa.
+Even worse is when we allow the abysses and silences to happen in our
+Home.
 
-É como um câncer, que começa devagarzinho, vai se instalando e se torna
-incontrolável.
+It's like a cancer, which starts slowly, installs itself and becomes
+Uncontrollable.
 
-E tudo começa porque deixamos de conversar, de trocar experiências, de
-compartilhar o espaço que chamamos lar. E assim vamos nos afastando dos seres
-amados.
+And it all starts because we stopped talking, exchanging experiences,
+share the space we call home. And so we're moving away from beings
+Loved.
 
-E ainda há a negligência. Deixamos de falar, de sorrir, de dar atenção aos de
-casa.
+And there's still negligence. We stopped talking, smiling, paying attention to those of
+Home.
 
-Concentrados em pessoas com as quais temos contato meramente social, aos poucos
-substituímos o grupo familiar pelos amigos, colegas de trabalho e até por gente
-que acabamos de conhecer.
+Concentrated on people with whom we have purely social contact, gradually
+we replaced the family group with friends, co-workers and even people
+that we just met.
 
-Assim vamos deixando a vida seguir. De repente, quando percebemos, o tempo
-passou, os filhos estão adultos, os irmãos casaram, os pais morreram.
+So let's let life go on. Suddenly, when we realize, time
+passed, the children are adults, the brothers married, the parents died.
 
-Ou estão idosos demais sequer para ter uma conversa divertida num fim de tarde.
-O trem da vida seguiu e nós nem o vimos passar.
+Or they're too old to have a fun conversation in the afternoon.
+The train of life followed and we didn't even see him pass.
 
-É quando chega o arrependimento, a saudade, a vontade de ficar junto mais um
-pouco.
+That's when repentance comes, longing, the will to stay together another
+Little.
 
-Nem sempre é preciso esperar: alguém que morre repentinamente, um acidente, uma
-doença inesperada.
+It is not always necessary to wait: someone who dies suddenly, an accident, a
+unexpected illness.
 
-E percebemos, então, que desperdiçamos o tempo que estivemos ao lado daquela
-pessoa especial; daquele filho divertido; daquela mãe dedicada; daquele pai
-amoroso; daquele companheiro que estava bem ao lado, caminhando junto.
+And we realized, then, that we wasted the time we were next to that
+special person; of that fun son; of that devoted mother; that father
+loving; of that companion who was right next door, walking along.
 
-Não. O amor não morre. Nós o deixamos murchar, apagar-se. É nosso desleixo,
-desatenção e preguiça que sufocam o amor.
+No. Love doesn't die. We let him wither, go out.
+inattention and laziness that stifle love.
 
-Mas basta regar com cuidado, sorrisos e carinho, para que ele reviva.
+But just water carefully, smiles and affection, so that he revives.
 
-Como planta ressequida, o amor bebe as palavras que lhe dirigimos e se reergue.
+As a ricket plant, love drinks the words we direct and rises.
 
-O amor não morre nunca. Mesmo que acreditemos que ele está morto e enterrado,
-que desapareceu, ele apenas aguarda que um gesto o faça reviver.
+Love never dies. Even if we believe he's dead and buried,
+who disappeared, he just waits for a gesture to revive him.
 
-Experimente! Olhe para as pessoas de sua família, para o seu amor, e lembre-se
-das belas coisas que viveram.
+Try! Look at the people in your family, for your love, and remember
+of the beautiful things they lived.
 
-Não deixe que as más lembranças o contaminem. Focalize toda a sua atenção nos
-momentos mais felizes.
+Don't let bad memories contaminate you. Focus all your attention on the
+happier moments.
 
-Abrace, afague, sorria junto, diga o quanto os ama.
+Embrace, cuddle, smile along, tell them how much you love them.
 
-E se, de repente, seu coração acelerar, seus olhos ficarem úmidos e uma
-indescritível sensação de felicidade tomar conta de você, não tenha dúvida: são
-os efeitos contagiantes e deliciosos do amor.
+And if suddenly your heart accelerates, your eyes turn damp and a
+indescribable sense of happiness take care of you, have no doubt: are
+the contagious and delicious effects of love.
 
 ## Source
 Redação do Momento Espírita.

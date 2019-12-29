@@ -15,82 +15,82 @@ topics:
 - respect
 ---
 
-A vida de Ana se tornara muito ruim, desde o momento em que começara a
-desconfiar que Artur, seu marido, tinha outra mulher.
+Ana's life had become very bad, from the moment she had begun to
+suspect that Arthur, her husband, had another wife.
 
-Ana olhava para ele e se sentia traída. Toda vez que Artur chegava atrasado do
-trabalho, mesmo que dissesse que fora o trânsito complicado ou uma reunião de
-última hora, ela pensava: Demorou por causa da outra. Devem ter se encontrado
-hoje. Por isso se atrasou.
+Ana looked at him and felt betrayed. Every time Arthur arrived late from the
+even if i said that out the complicated traffic or a meeting of
+last minute, she thought, it took me a while because of the other. They must have found themselves
+Today. That's why you were late.
 
-A paz do lar ficou comprometida. Ele chegava cansado, ela estava mal-humorada e
-procurava todos os motivos para reclamar.
+The peace of the home was compromised. He came in tired, she was grumpy and
+i was looking for all the reasons to complain.
 
-Por vezes, ela surpreendia Artur dispersivo. O pensamento distante. Era o
-suficiente para pensar consigo mesma: Olhe só como está pensativo! Aposto que
-está pensando nela.
+Sometimes she surprised dispersive Arthur. Distant thinking. It was the
+enough to think to yourself: Look at how thoughtful you are! I bet
+you're thinking about her.
 
-Finalmente, um dia, ela resolveu seguir o marido para o surpreender.
+Finally, one day, she decided to follow her husband to surprise him.
 
-Esperou-o na saída do trabalho. Ele pegou o carro, andou algumas quadras e
-parou na floricultura. Ela viu quando ele escolheu as maravilhosas flores e
-saiu carregando-as com carinho.
+He waited for him on his way out of work. He took the car, walked a few blocks and
+stopped at the flower shop. She saw when he chose the wonderful flowers and
+came out carrying them with affection.
 
-Mau caráter, pensou ela. Gastando com outra.
+Bad character, she thought. Spending on someone else.
 
-Aquilo a deixou de tal forma desconcertada, que começou a chorar. Foi para casa
-e se jogou na cama.
+That left her so disconcerted, she started crying. He went home
+and threw himself into bed.
 
-Chorou muito.
+He cried a lot.
 
-Pouco depois, ela ouviu a porta abrir e seu marido chegar. Escutou os passos
-dele na escada, subindo até o quarto do casal, onde ela estava.
+Shortly after, she heard the door open and her husband arrived. You heard the steps
+him on the stairs, climbing up to the couple's room, where she was.
 
-Mal o viu adentrar o quarto, ela se sentou na cama, os olhos vermelhos de
-chorar, os cabelos em desalinho e desabafou:
+As soon as he saw him enter the room, she sat on the bed, the red eyes of
+crying, his hair in disarray and vented:
 
-Eu vi tudo. Você não pode negar. Comprou flores para ela. Rosas vermelhas
-maravilhosas. Você me traiu. Traiu o nosso amor.
+I've seen it all. You can't deny it. She bought her flowers. Red roses
+Wonderful. You betrayed me. You betrayed our love.
 
-Alterada, ela se levantou e avançou na direção dele. Para sua surpresa,
-verificou que ele trazia nas mãos o lindo ramalhete de rosas vermelhas.
+Altered, she got up and advanced toward him. To your surprise,
+verified that he carried in his hands the beautiful bouquet of red roses.
 
-Um pouco chateado, estendendo o ramalhete para ela, ele falou:
+A little upset, extending the bouquet to her, he said:
 
-Ana, hoje é dia do nosso aniversário de casamento. Você não lembrou?
-
-                                   *   *   *
-
-O ciúme cria quadros exagerados, fomentando desconfiança. Atestado de
-insegurança, destrói o relacionamento pelo clima de tensão que cria a todo
-momento.
-
-Cultivador da infelicidade, o ciúme altera a correta visão dos fatos,
-aumentando a importância de pequenos atrasos, desejos não atendidos,
-esquecimentos de datas e compromissos a dois.
-
-Criando azedume, envenena a alma e desassossega o pensamento.
-
-Colocando óculos escuros na visão mental, tudo faz parecer sombrio, devastador.
-
-Uma distração é tida à conta de desinteresse. O atraso para um encontro é
-considerado desrespeito.
-
-Fora da realidade sempre, o ciúme provoca cenas desastrosas e desgastantes, em
-situações onde uma leve indagação ou uma conversa a dois, com toda a certeza,
-resolveria.
+Ana, today is our wedding anniversary. Didn't you remember?
 
                                    *   *   *
 
-Nunca deixemos que o ciúme nos atormente. Ele é o responsável pela devastação
-de corações e de lares.
+Jealousy creates exaggerated cadres, fostering mistrust. Certificate of
+insecurity, destroys the relationship by the climate of tension that creates the whole
+Moment.
 
-Se nos sentimos inseguros, fortifiquemos a relação a dois com diálogos mais
-profundos, com saídas para um passeio ao luar ou um final de semana a sós.
+Cultivator of unhappiness, jealousy alters the correct view of the facts,
+increasing the importance of small delays, unattended desires,
+forgetting of dates and commitments to two.
 
-Se o outro estiver, verdadeiramente, permitindo que a relação esfrie, que o
-amor amorne, providenciemos o melhor para o estreitamento dos laços afetivos,
-guardando a certeza de que é nos pequenos gestos que a relação se fortalece.
+Creating azedume, poisonthe soul and unassothe thought.
+
+Putting sunglasses in mental vision, everything makes it look bleak, devastating.
+
+A distraction is taken into account of disinterest. The delay for a meeting is
+considered disrespectful.
+
+Out of reality always, jealousy provokes disastrous and exhausting scenes, in
+situations where a slight inquiry or a conversation to two, with certainty,
+Solve.
+
+                                   *   *   *
+
+Let's never let jealousy stun us. He's responsible for the devastation
+of hearts and homes.
+
+If we feel insecure, we will fortise the relationship to two with more
+deep, with exits for a moonlight ride or a lonely weekend.
+
+If the other is truly allowing the relationship to cool down, that the
+love, we provide the best for the narrowing of affective bonds,
+keeping sure it is in the small gestures that the relationship strengthens itself.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 48,

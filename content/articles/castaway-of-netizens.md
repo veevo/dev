@@ -7,87 +7,87 @@ topics:
 - wisdom
 ---
 
-Alice estava desnorteada, e encontrando um gato sentado sobre o galho de uma
-árvore, perguntou-lhe:
+Alice was bewildered, and finding a cat sitting on the branch of a
+tree, asked him:
 
-O senhor poderia me dizer, por favor, qual o caminho tomar para sair daqui?
+Could you tell me, please, what way to get out of here?
 
-Isso depende muito de onde você quer ir... – Respondeu o gato com um sorriso
-enigmático de orelha a orelha.
+It depends a lot on where you want to go... - Answered the cat with a smile
+enigmatic from ear to ear.
 
-Não me importa muito para onde... – Afirmou Alice.
+I don't care much where... - Alice said.
 
-O felino sentenciou: Então não importa o caminho que você escolher. Para quem
-não sabe para onde ir, qualquer caminho serve.
+The feline sentenced: So no matter what path you choose. For whom
+don't know where to go, any path serves.
 
                                    *   *   *
 
-Nesses tempos de informações abundantes, de possibilidades infinitas, de
-tecnologia surpreendente, fazem-se necessários alguns cuidados.
+In these times of abundant information, of infinite possibilities, of
+amazing technology, some care is needed.
 
-Cada dia fala-se mais e mais, sobre a triunfal entrada da Humanidade na era do
-conhecimento.
+Each day there is more and more talk about humanity's triumphant entry into the era of
+Knowledge.
 
-Exalta-se a capacidade humana de estar vivendo, a partir deste momento, um
-período no qual o conhecimento será a primeira riqueza.
+The human capacity to be living, from this moment on, a
+period in which knowledge will be the first wealth.
 
-Tudo é fonte para o conhecimento, e a principal delas é a internet.
+Everything is a source for knowledge, and the main one is the internet.
 
-É neste ponto que precisamos ir devagar com as coisas.
+That's where we need to slow things down.
 
-Não se deve confundir informação com conhecimento.
+Information should not be confused with knowledge.
 
-A internet, dentre as mídias contemporâneas, é a mais fantástica e estupenda
-ferramenta para acesso à informação.
+The internet, among contemporary media, is the most fantastic and stupendous
+information access tool.
 
-No entanto, transformar informação em conhecimento exige, antes de tudo,
-critérios de escolha e seleção, dado que o conhecimento – ao contrário da
-informação – não é cumulativo, mas seletivo.
+However, turning information into knowledge requires, first of all,
+criteria of choice and selection, as knowledge – unlike the
+information – is not cumulative, but selective.
 
-Seria como alguém que entra numa dessas grandes livrarias, sem saber muito bem
-o que deseja.
+It would be like someone who gets into one of these great bookstores, not knowing very well
+what you want.
 
-Corre o risco de entrar em pânico, tendo a sensação de débito intelectual, sem
-ter clareza de por onde começar e imaginando que precisa ler tudo aquilo.
+You run the risk of panicking, having the feeling of intellectual debt, without
+have clarity of where to start and imagining that you need to read all that.
 
-Faz-se fundamental o critério, isto é, saber o que se procura, para poder
-escolher, em função da finalidade que se tenha.
+The criterion is essential, that is, to know what is being sought, in order to be able to
+depending on the purpose you have.
 
-Os computadores e a internet têm um caráter ferramental que não pode ser
-esquecido.
+Computers and the internet have a tooling character that cannot be
+Forgotten.
 
-Ferramenta não tem objetivo em si mesmo. É instrumento para outra coisa, para
-outro fim.
+Tool has no purpose in itself. It is an instrument for something else, for
+another end.
 
-O critério, o equilíbrio nos permitirão, assim, poder utilizar desse
-ferramental com sabedoria, na dosagem certa, no momento adequado.
+The criterion, balance will thus allow us to be able to use this
+tooling wisely, at the right dosage at the right time.
 
-Sem critérios seletivos, muitos ficam sufocados por uma ânsia precária de ler
-tudo, acessar tudo, ouvir tudo, assistir tudo.
+Without selective criteria, many are suffocated by a precarious eagerness to read
+everything, access everything, listen to everything, watch everything.
 
-Esquecem-se de se perguntar: Eu quero isso para mim? Eu preciso disso? Para que
-serve? Aonde desejo ir?
+They forget to ask yourself: Do I want this for me? Do I need this? Why
+Serves? Where do I want to go?
 
-Nos tempos de hoje, se não formos muito cuidadosos, corremos o risco de navegar
-na internet, e naufragar.
+In today's times, if we are not very careful, we run the risk of navigating
+on the internet, and sink.
 
-Sêneca, sabiamente, já havia dito, que nenhum vento é a favor, para quem não
-sabe para onde ir.
+Seneca, wisely, had said, that no wind is in favor, for those who do not
+know where to go.
 
                                     *  *  *
 
-David Hume, afirmava: Por conhecimento, entendo a certeza que nasce da
-comparação de ideias.
+David Hume said: Out of knowledge, I understand the certainty that is born of the
+comparison of ideas.
 
-Para que nasça o conhecimento é necessário pensar, comparar, conectar ideias.
+For the idea to be born, it is necessary to think, compare, connect ideas.
 
-Nenhuma informação poderá ser tomada por verdade, por conhecimento, antes de
-amadurecer dentro da alma humana.
+No information can be taken by truth, by knowledge, before
+mature within the human soul.
 
-Sabedoria não se transmite. É preciso que nós mesmos a descubramos depois de
-uma caminhada que ninguém pode fazer em nosso lugar.
+Wisdom is not transmitted. We need to find out ourselves after
+a walk that no one can do in our place.
 
-                                                                               
+
 
 ## Source
 Redação do Momento Espírita com base no texto O naufrágio de

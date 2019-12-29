@@ -8,79 +8,79 @@ topics:
 - trial
 ---
 
-Qual o segredo para um casamento feliz?
+What's the secret to a happy marriage?
 
-Todo relacionamento é desafiador. Quanto mais íntimo se faz, mais dedicação nos
-exige.
+Every relationship is challenging. The more intimate you do, the more dedication in
+Requires.
 
-Assim, a vida a dois, o compartilhar a nossa existência com outrem, demanda
-empenho e atenção.
+Thus, life for two, sharing our existence with others, demands
+commitment and attention.
 
-Porém, será possível entender quais as melhores virtudes para construir um
-casamento feliz?
+However, it will be possible to understand the best virtues to build a
+happy marriage?
 
-Se a paixão inicial, e logo em seguida o amor, são fatores indispensáveis,
-haverá outros valores que necessitam permear a relação?
+If the initial passion, and soon after love, are indispensable factors,
+will there be other values that need to permeate the relationship?
 
-Pensando nisso, dois psicólogos americanos, John e Julie Gottman, fizeram um
-estudo com casais para entender o sucesso ou fracasso de um casamento.
+Thinking about it, two American psychologists, John and Julie Gottman, made a
+study with couples to understand the success or failure of a marriage.
 
-Analisaram o comportamento de cento e trinta casais, como eles se relacionavam,
-como reagiam entre si, em atitudes corriqueiras, como cozinhar, limpar a casa,
-fazer as refeições.
+They analyzed the behavior of one hundred and thirty couples, as they related,
+how they reacted to each other, in common attitudes, such as cooking, cleaning the house,
+dine.
 
-Baseados em suas percepções, os pesquisadores classificaram os casais em dois
-grupos básicos.
+Based on their perceptions, the researchers ranked couples in two
+basic groups.
 
-Passados seis anos, os psicólogos voltaram a analisar os mesmos casais.
+Six years later, psychologists have re-examined the same couples.
 
-Perceberam que os pertencentes ao primeiro grupo continuavam casados e felizes.
+They realized that those belonging to the first group remained married and happy.
 
-Porém, aqueles que foram classificados no segundo grupo, ou estavam separados,
-ou permaneciam juntos, porém, infelizes.
+However, those who were classified in the second group, or were separated,
+or remained together, however, unhappy.
 
-Ao analisar as causas de sucesso do primeiro grupo, o casal Gottman percebeu
-que duas virtudes preponderavam na vida desses casais: a bondade e a
-generosidade.
+By analyzing the causes of success of the first group, the Gottman couple realized
+virtues preponderad in the lives of these couples: the goodness and
+Generosity.
 
-Os psicólogos perceberam que, a longo prazo, torna-se fundamental e
-significativo que nas ações diárias, mesmo nas mais corriqueiras, a
-generosidade e a bondade estejam presentes.
+Psychologists realized that, in the long run, it becomes fundamental and
+significant than in daily actions, even in the most common place, the
+generosity and kindness are present.
 
-Por exemplo, a esposa se atrasa para um compromisso porque despendeu um tempo
-maior se arrumando.
+For example, the wife is late for a commitment because she spent time
+bigger getting ready.
 
-A reação do marido poderá ser a de brigar, resmungar e reclamar que ela sempre
-se atrasa, que nunca consegue cumprir horários.
+Her husband's reaction may be to fight, grumble and complain that she always
+is late, which can never meet schedules.
 
-Ou ele poderá perceber nisso um zelo e cuidado dela para se apresentar em sua
-companhia, de um jeito especial e da melhor forma.
+Or he may perceive in this a zeal and care of her to present himself in his
+company, in a special way and in the best way.
 
-Se o marido vai ao supermercado e esquece a compra de alguns itens, trazendo
-metade do relacionado, a esposa pode reclamar, dizer que ele não dá valor às
-coisas da casa, chamá-lo de distraído e descuidado.
+If the husband goes to the supermarket and forgets to buy some items, bringing
+half of the related, the wife can complain, say that he does not value the
+things of the house, call it distracted and careless.
 
-Ou ela poderá lhe agradecer por ter ido ao supermercado, e apenas refazer a
-lista com o que faltou.
+Or she can thank you for going to the supermarket, and just redo the
+list with what was missing.
 
-São nos detalhes, nas pequenas observações, nas respostas às perguntas mais
-simples que conseguimos alimentar a relação com demonstrações de generosidade e
-de amor.
+They are in the details, in the short observations, in the answers to the most
+that we can feed the relationship with demonstrations of generosity and
+of love.
 
-Como um lubrificante a facilitar o movimento das engrenagens, esses sentimentos
-permitem que a vida a dois ganhe profundidade e solidez.
+As a lubricant to facilitate the movement of gears, these feelings
+allow life to two to gain depth and solidity.
 
-Assim, em nome do casamento que elegemos para nós, analisemos quanto de bondade
-e generosidade temos para com nosso cônjuge.
+So in the name of the marriage we elected to us, let's look at how much kindness
+and generosity we have towards our spouse.
 
-Frente à resposta ríspida, utilizemo-nos da bondade da palavra suave e
-compreensiva.
+In the face of the harsh response, let us use the goodness of the word soft and
+Understanding.
 
-Substituamos o julgamento severo e rígido, muitas vezes já desgastado pelo
-tempo, pela generosidade de quem percebe e reconhece valores em quem nos
-acompanha.
+We replace severe and rigid judgment, often already worn by the
+time, by the generosity of those who perceive and recognize values in whom we
+Accompanies.
 
-Pensemos nesses detalhes.
+Let's think about those details.
 
 ## Source
 Redação do Momento Espírita.  

@@ -17,80 +17,80 @@ topics:
 - prayer
 ---
 
-Você já percebeu que há pessoas que nos exigem um pouco mais de esforço para
-serem amadas?
+Have you ever realized that there are people who require us a little more effort to
+be loved?
 
-Enquanto alguns têm acesso fácil ao nosso coração, conferindo-nos alegria e
-prazer em compartilhar o convívio, outros nos solicitam empenho pessoal para
-poucos momentos de relacionamento.
+While some have easy access to our hearts, giving us joy and
+pleasure in sharing the conviviality, others ask us for personal commitment to
+few moments of relationship.
 
-Nós os encontramos no ambiente de trabalho, no seio familiar, na vizinhança ou
-nas relações sociais mais diversas.
+We find them in the workplace, in the family, in the neighborhood or
+in the most diverse social relations.
 
-Trazem valores que não são compatíveis com os nossos, têm atitudes que nos
-desagradam, usam de linguajar que nos parece inadequado.
+They bring values that are not compatible with ours, have attitudes that
+displease, use language that seems inappropriate to us.
 
-Seus conceitos nos parecem absurdos, seu modo de vida um tanto esdrúxulo, e
-seus parâmetros morais nos chocam.
+His concepts seem absurd to us, his somewhat sdrúxulo way of life, and
+their moral parameters shock us.
 
-São esses que nos exigem esforço para que os possamos amar.
+These are the ones that require us to strive for us to love them.
 
-Porque ainda caminham distantes das estradas que elegemos para nós mesmos, a
-convivência com muitos deles nos parece um grande sacrifício.
+Because they still walk away from the roads we elect to ourselves, the
+coexistence with many of them seems to us a great sacrifice.
 
-Porém, quando Jesus nos ensina que devemos amar os nossos inimigos, é a esses
-também que o Mestre se refere.
+However, when Jesus teaches us that we must love our enemies, it is these
+master refers to.
 
-Muitas vezes, imaginamos que inimigo seja somente aquele pelo qual nutrimos
-ódio, desejo de vingança, rancor profundo.
+We often imagine that enemy is only the one for which we nurture
+hatred, desire for revenge, deep grudge.
 
-É verdade que esses o são. Porém, esses outros, os que ainda não conseguimos
-amar e querer bem, representam o mesmo convite que a vida nos faz para
-aprendermos a amar.
+It's true that these are. However, these others, those who have not yet been able to
+love and want well, represent the same invitation that life makes us to
+we learn to love.
 
-É verdade que, de rompante, não conseguiremos tê-los como amigos, recebendo-os
-na intimidade de nosso lar.
+It is true that, from breaking, we will not be able to have them as friends, receiving them
+in the intimacy of our home.
 
-Não será em alguns dias que os teremos abrigados em nosso coração.
+It won't be in a few days that we'll have sheltered them in our hearts.
 
-E nem ocorrerá da noite para o dia a transformação de nosso sentimento, de um
-antagonismo intenso para a simpatia irrestrita.
+And it will not even occur overnight the transformation of our feeling, of a
+intense antagonism for unrestricted sympathy.
 
-Porém, à medida que entendemos o ensinamento de Jesus, temos condição de
-dedicar algo mais do que nossa antipatia, a esses que nos parecem pedras de
-tropeço na jornada.
+However, as we understand The Teaching of Jesus, we are able to
+devote something more than our dislike, to those that seem to us stones of
+Stumble on the journey.
 
-Assim, à medida que procuramos compreender sua limitação, a tolerância começa a
-compartilhar espaço onde antes só havia implicância.
+Thus, as we seek to understand its limitation, tolerance begins to
+share space where before there was only implication.
 
-Quando conseguimos perceber seus dramas íntimos, a impaciência perde lugar para
-a indulgência.
+When we can perceive their intimate dramas, impatience loses place to
+indulgence.
 
-Quando conhecemos um pouco de suas histórias de vida, seus dramas e
-dificuldades, as palavras ríspidas vão sendo substituídas pelo silêncio, quando
-não, por palavras de apoio.
+When we know a little of their life stories, their dramas and
+difficulties, the harsh words are being replaced by silence, when
+not for words of support.
 
-É assim, no exercício da aproximação sadia, da compreensão do próximo, que o
-amor inicia seu trajeto.
+Thus, in the exercise of sound approach, understanding of others, that the
+love begins its journey.
 
-Inicialmente se faz na forma de algumas virtudes, que lhe são filhas diletas,
-como a benevolência, a indulgência, o perdão.
+Initially it is done in the form of some virtues, which are devoted daughters to him,
+benevolence, indulgence, forgiveness.
 
-Aos poucos vai ganhando forma, permitindo uma convivência mais salutar e
-enriquecedora.
+Gradually it is gaining form, allowing a more healthy coexistence and
+Enriching.
 
-Por fim, na medida em que permitirmos, o sentimento se transformará em empatia
-e compreensão.
+Finally, to the extent that we allow, the feeling will turn into empathy
+and understanding.
 
-Portanto, nessas relações difíceis que se apresentam em nossos caminhos,
-percebamos o grandioso convite que a vida nos faz para exercitarmos o amor ao
-próximo.
+Therefore, in these difficult relationships that present themselves in our ways,
+let us realize the great invitation that life makes us to exercise love for
+Next.
 
-Mesmo sabendo que ainda uma longa caminhada nos espera até que aprendamos,
-efetivamente, a amá-los, será nos pequenos passos de hoje que conquistaremos
-esse amor para com esses difíceis de amar.
+Even though i still know that a long walk awaits us until we learn,
+effectively, to love them, it will be in the small steps of today that we will conquer
+this love for these difficult to love.
 
-Exercitemos o amor.
+Let's exercise love.
 
 ## Source
 Redação do Momento Espírita.

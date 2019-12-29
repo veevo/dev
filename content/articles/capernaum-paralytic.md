@@ -13,92 +13,92 @@ topics:
 - respect
 ---
 
-afarnaum era uma cidadezinha que se situava no lado setentrional do lago de
+afarnaum was a small town that was situated on the northern side of lake
 Genesaré.
 
-Seus vales eram frescos, cortados por arroios cantantes.
+Their valleys were fresh, cut by cantantes streams.
 
-Em suas praias as águas eram boas para a pesca e, por essa razão, disputadas
-pelos pescadores.
+On its beaches the waters were good for fishing and, for this reason, disputed
+fishermen.
 
-O casario era baixo, cercado por árvores frondosas, coloridas por trepadeiras
-de flores miúdas.
+The housewas low, surrounded by leafy trees, colored by vines
+of fine flowers.
 
-Jesus amava aquela cidade e a escolheu para o início de Seu ministério de amor.
+Jesus loved that city and chose it for the beginning of His ministry of love.
 
-Corria de boca a ouvido a notícia das curas e dos maravilhosos feitos do Mestre
-Nazareno, atraindo curiosos e aflitos das cercanias.
+He ran from mouth to ear the news of the healings and the wonderful deeds of the Master
+Nazarene, attracting curious and distressed from the surroundings.
 
-A casa de Simão Pedro havia sido invadida por grande número de pessoas que
-buscavam Jesus.
+Simon Peter's house had been invaded by a large number of people who
+they sought Jesus.
 
-O sol estava alto, quando um grupo, carregando um paralítico, tentou
-aproximar-se da porta.
+The sun was high, when a group, carrying a paralytic, tried
+approaching the door.
 
-A multidão era tão compacta que não foi possível.
+The crowd was so compact that it was not possible.
 
-Porém, tamanha era a aflição do doente, há muito preso ao leito, que seus
-amigos ergueram-no ao terraço e desceram-no pelo teto da sala onde estava o
+However, such was the affliction of the sick, long attached to the bed, that his
+friends lifted him to the terrace and descended him down the ceiling of the room where the
 Rabi.
 
-Abriu-se um pequeno espaço na apinhada sala, e o Mestre, sem demonstrar
-qualquer surpresa, olhou demoradamente para o enfermo.
+A small space has opened in the crowded room, and the Master, without demonstrating
+any surprise, looked to the sick.
 
-Natanael ben Elias, crês que eu possa te curar? – Perguntou Jesus, olhando-o
-nos olhos.
+Natanael ben Elias, do you think I can cure you? " Jesus asked, looking at him
+in the eyes.
 
-Sim, creio. – Respondeu rapidamente.
+Yes, I do. "He answered quickly.
 
-Tomado de súbito estremecimento, perguntou:
+Taken sudden ly trembling, he asked:
 
-Senhor! Como sabes o meu nome? Conheces-me?
+Sir! How do you know my name? Do you know me?
 
-Sim, eu te conheço desde sempre. – Respondeu Jesus. – Sou o bom Pastor que
-conhece todas as ovelhas que o Pai me confiou.
+Yes, I've known you forever. "Jesus answered. " I am the good Shepherd who
+he knows all the sheep the Father has entrusted to me.
 
-Antes mesmo que Natanael pudesse refletir a respeito daquelas palavras, Jesus
-estendeu as mãos sobre ele e disse-lhe com voz firme e imperiosa:
+Even before Nathaniel could reflect on those words, Jesus
+reached out on him and said to him with a firm and imperious voice:
 
-Levanta-te, toma tua cama e vai para a tua casa.
+Get up, take your bed and go to your house.
 
-Natanael ergueu-se e deu um grito de euforia ao perceber-se livre da moléstia
-que o infelicitou por longo período.
+Nathaniel stood up and gave a cry of euphoria as he perceived himself free from the disease
+who congratulated him for a long time.
 
-Sem muita demora abandonou a casa de Pedro, na companhia dos companheiros,
-ainda sem compreender bem o que lhe acontecera.
+Without much delay he left Peter's house, in the company of his companions,
+still without understanding what had happened to him well.
 
-À noite, quando Jesus buscava refazimento à beira do lago de Genesaré, Pedro o
-encontrou com os olhos imersos em lágrimas.
+At night, when Jesus sought redoing on the lakeside of Genesaré, Peter the
+found with his eyes immersed in tears.
 
-Rabi, estás chorando? De felicidade, suponho, depois de tantos eventos
-felizes...
+Rabbi, are you crying? Of happiness, I suppose, after so many events
+Happy...
 
-Choro, mas de tristeza. – Afirmou o Mestre.
+I cry, but with sadness. " Said the Master.
 
-Choro, Simão, porque neste momento, muitos daqueles que hoje curei se encontram
-entregues a antigos vícios. Recobraram o ânimo, a voz, a saúde, para se
-precipitarem outra vez nos despenhadeiros da insensatez.
+I cry, Simon, because at this moment, many of those I healed today meet
+delivered to old vices. They regained the mood, the voice, the health, to
+precipitate again in the crashes of folly.
 
-Não tardará que se vejam enredados em novos desequilíbrios, prejudicando
-dolorosamente suas próprias existências.
+It will not be long before they are entangled in new imbalances, harming
+painfully their own existences.
 
-Enquanto isso, não longe dali, Natanael ben Elias comentava sua cura, com
-infantil alegria, entre amigos embriagados e mulheres infelizes.
+Meanwhile, not far from there, Natanael ben Elias commented on his healing, with
+childish joy, among drunken friends and unhappy women.
 
-Exatamente como o Mestre descreveu, Natanael, como tantos outros, sem valorizar
-a nova chance que recebera, entregava-se ao equívoco e ao vício.
+Just as the Master described, Nathaniel, like so many others, without valuing
+the new chance he had received, was indulging in misunderstanding and addiction.
 
                                    *   *   *
 
-A proposta do Cristo jamais teve a intenção de oferecer ao homem alegrias
-superficiais.
+Christ's proposal never intended to offer man joys
+Superficial.
 
-As dores que nos chegam – usualmente causadas pela nossa própria negligência -
-são métodos severos, porém, eficazes para curar e disciplinar nossos Espíritos
-reincidentes no erro.
+The pains that come to us - usually caused by our own negligence -
+are harsh methods, however, effective to heal and discipline our Spirits
+repeat offenders in the error.
 
-Somente a efetiva compreensão e aplicação dos ensinamentos do Mestre Nazareno
-nos possibilitarão alcançar a felicidade verdadeira.
+Only the effective understanding and application of the teachings of the Nazarene Master
+will enable us to achieve true happiness.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 7,  do livro Primícias do Reino,

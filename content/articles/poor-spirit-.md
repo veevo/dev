@@ -16,105 +16,105 @@ topics:
 ---
 
 
-No Sermão da Montanha, o Mestre Jesus afirmou: Bem-aventurados os pobres de
-Espírito, porque deles é o reino dos céus.
+In the Sermon on the Mountain, Master Jesus said: Blessed are the poor of
+Spirit, because of them is the kingdom of heaven.
 
-Ainda hoje muito se fala sobre tal ensinamento, eis que grande interesse
-desperta em todos os que tomaram conhecimento dos ensinos de Jesus.
+Even today much is said about such a teaching, behalf that great interest
+awakens in all who have become aware of Jesus' teachings.
 
-No entanto, tal ensino, como tantos outros, resta ainda incompreendido pelos
-homens.
+However, such teaching, like so many others, remains ununderstood by the
+Men.
 
-O que, afinal, o Mestre pretendia proclamar?
+What, after all, did the Master intend to proclaim?
 
-Jesus proclama que Deus quer Espíritos ricos de amor e pobres de orgulho.
+Jesus proclaims that God wants rich spirits of love and poor of pride.
 
-Os Espíritos ricos são aqueles que acumulam os tesouros que não se confundem
-com as riquezas da Terra.
+Rich spirits are those who accumulate treasures that are not confused
+with the riches of the Earth.
 
-Seus bens não são jamais corroídos pelas traças, tampouco podem ser subtraídos
-pelos ladrões.
+Their goods are never corroded by moths, nor can they be subtracted
+by the thieves.
 
-Os pobres de Espírito são os que não têm orgulho. São os humildes, que não se
-envaidecem pelo que sabem, e que nunca exibem o que têm.
+The poor of spirit are those who are not proud. It is the humble, who do not
+they're sick of what they know, and they never show what they have.
 
-A modéstia é o seu distintivo, porque os verdadeiros sábios são aqueles que têm
-idéia do quanto não sabem.
+Modesty is your badge, because the true sages are those who have
+idea of how much they don't know.
 
-Por isso, a humildade é considerada requisito indispensável para alcançar-se o
-reino dos céus.
+Therefore, humility is considered an indispensable requirement to achieve the
+kingdom of heaven.
 
-Sem a humildade nenhuma virtude se mantém.
+Without humility no virtue remains.
 
-A humildade é o propulsor de todas as grandes ações, em todas as esferas de
-atuação do homem.
+Humility is the driving force of all great actions, in all spheres of
+man's performance.
 
-Os humildes são simples no falar.
+The humble are simple in speaking.
 
-São sinceros e francos no agir.
+They're sincere and frank in acting.
 
-Não fazem ostentação de saber, nem de santidade.
+They do not make ostentation of knowing or holiness.
 
-A humildade, tolerante em sua singeleza, compadece-se dos que pretendem
-afrontá-la com o seu orgulho.
+Humility, tolerant in its simplicity, sympathizes with those who intend to
+confront her with her pride.
 
-Cala-se diante de palavras loucas.
+Shut up in the face of crazy words.
 
-Suporta a injustiça.
+It supports injustice.
 
-Vibra com a verdade.
+It vibrates with the truth.
 
-A humildade respeita o homem não pelos seus haveres, mas por suas reais
-virtudes.
+Humility respects man not for his possessions, but for his real
+Virtues.
 
-A pobreza de paixões e de vícios é a que deve amparar o viajor que busca
-sinceramente a perfeição.
+The poverty of passions and vices is the one that must support the path that seeks
+sincerely perfection.
 
-Foi esta a pobreza que Jesus proclamou: a pobreza de sentimentos baixos,
-representada pelo desapego às glórias efêmeras, ao egoísmo e ao orgulho.
+This was the poverty that Jesus proclaimed: the poverty of low feelings,
+represented by detachment from ephemeral glories, selfishness and pride.
 
-Há muitos pobres de bens terrenos que se julgam dignos do reino dos céus, mas
-que, no entanto, têm a alma endurecida e orgulhosa.
+There are many poor earthly goods who consider themselves worthy of the kingdom of heaven, but
+who, however, have their soul hardened and proud.
 
-Repudiam a Jesus e se fecham nos redutos de uma fé que obscurece seus
-entendimentos e os afasta da verdade.
+They repudiate Jesus and close themselves in the strongholds of a faith that obscures his
+understandings and keeps them away from the truth.
 
-Não é a ignorância nem tampouco a miséria que garantem aos seres a felicidade
-prometida por Jesus.
+It is neither ignorance nor the misery that guarantees to beings happiness
+promised by Jesus.
 
-O que nos encaminha para tal destino são os atos nobres, embasados na caridade
-e no amor incondicional.
+What directs us to such destiny are noble acts, based on charity
+and unconditional love.
 
-Precisamos, também, adquirir conhecimentos que nos permitam alargar o plano da
-vida, em busca de horizontes mais vastos.
+We also need to acquire knowledge that will enable us to extend the
+in search of wider horizons.
 
-Pobres de Espírito são os simples e nobres.
+Poor spirit are the simple and noble.
 
-Não os orgulhosos e velhacos.
+Not the proud and rogue.
 
-Pobres de Espírito são os bons, que sabem amar a Deus e ao próximo, tanto
-quanto amam a si próprios.
+Poor spirit are the good, who know how to love God and others, both
+how much they love themselves.
 
-São aqueles que observam e vivem as Leis de Deus. Estudam com humildade.
+They are those who observe and live the Laws of God. They study with humility.
 
-Reconhecem o quanto ainda não sabem. Imploram a Deus o amparo indispensável às
-suas almas.
+They recognize how much they don't know yet. God implores the necessary support for
+their souls.
 
-Era a respeito desses homens que o Mestre Nazareno, em Suas bem-aventuranças,
-estava se referindo.
+It was about these men that the Nazarene Master, in His beatitudes,
+was referring.
 
-Muitos são os que confundem humildade com servilismo.
+Many are those who confuse humility with servivilism.
 
-Ser humilde não significa aceitar desmandos e compactuar com equívocos.
-Ser humilde é reconhecer as próprias limitações, buscando vencê-las, sem
-alarde, nem fantasias.
+Being humble does not mean accepting dismay and complaced with misconceptions.
+To be humble is to recognize one's own limitations, seeking to overcome them, without
+fanfare, no fantasies.
 
-É buscar, incansavelmente, a verdade e o progresso pessoal, nas trilhas dos
-exemplos nobres e dignos.
+It is tirelessly seeking the truth and personal progress in the trails of the
+noble and worthy examples.
 
-Pense nisso.
+Think about it.
 
-                                        
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. Pobres de Espírito e Espíritos

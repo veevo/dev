@@ -17,82 +17,82 @@ topics:
 - kindness
 ---
 
-Dois grandes vultos da música brasileira, certa vez, compuseram os seguintes
-versos:
+Two major figures of Brazilian music once composed the following
+Verses:
 
-Toda pedra do caminho você pode retirar. Numa flor que tem espinho, você pode
-se arranhar. Se o bem e o mal existem, você pode escolher. É preciso saber
-viver.
+Every stone in the way you can remove. In a flower that has thorn, you can
+scratch yourself. If good and evil exist, you can choose. You need to know
+Live.
 
-A canção expressa uma grande verdade. A vida é feita de escolhas.
+The song expresses a great truth. Life is made of choices.
 
-Todos nós, diariamente, nos deparamos com pessoas, com situações e fatos que
-nos instigam, exigindo-nos um posicionamento.
+All of us, daily, come across people, situations and facts that
+instigate us, demanding a positioning.
 
-Não há quem transite pelas estradas do mundo sem pedras em seu caminho.
+There are no one who passes the roads of the world without stones in their way.
 
-Nenhum de nós pode alimentar a ilusão de que não haverá espinhos que nos
-poderão ferir, mesmo que levemente.
+None of us can fuel the illusion that there will be no thorns that
+may hurt, even if lightly.
 
-O que nos cabe é escolher como encarar tais situações, como lidar com pedras e
-espinhos.
+What is up to us is to choose how to face such situations, such as dealing with stones and
+Thorns.
 
-Alguns de nós acreditamos que a melhor forma de enfrentar essas situações é
-tendo como lema o olho por olho, dente por dente, conforme os registros do
-Antigo Testamento.
+Some of us believe that the best way to face these situations is to
+having as motto the eye by eye, tooth by tooth, according to the records of the
+Old Testament.
 
-Em outras palavras, se alguém nos dificulta a vida, fazermos o mesmo, tanto
-quanto possível.
+In other words, if someone makes life difficult for us, do the same, both
+as much as possible.
 
-Se somos vítimas de maledicência, traição, calúnia, arquitetarmos situações
-para retribuir da mesma forma.
+If we are victims of malevolence, betrayal, slander, to architect situations
+to reciprocate in the same way.
 
-Se é a grosseria, a má educação, a falta de civilidade que alguém nos impõe,
-imediatamente adotarmos a mesma postura, repetindo aquilo de que fomos alvo.
+If it is rudeness, bad education, the lack of civility that someone imposes on us,
+immediately adopt the same posture, repeating what we were targeted at.
 
-No entanto, nos esquecemos de que, conforme cantam os poetas, se o mal e o bem
-existem, podemos fazer nossa opção.
+However, we forget that, as poets sing, evil and good are
+there are, we can make our option.
 
-Se somos vítimas do mal, se alguma situação inconveniente nos alcança, quer
-sejam coisas corriqueiras ou graves, vale a pena refletir.
+If we are victims of evil, if any inconvenient situation catches us, either
+whether ordinary or serious things are worth reflecting.
 
-É importante parar e analisar a ocorrência. É valioso ponderar antes de agir.
+It is important to stop and analyze the occurrence. It's valuable to ponder before you act.
 
-Muitas vezes, nos sentimos provocados por situações desagradáveis, reagimos por
-impulso para, no momento seguinte, nos arrependermos pelas consequências que
-nos alcançam.
+Often, we feel provoked by unpleasant situations, we react by
+impulse to, at the next moment, repent for the consequences that
+catch up with us.
 
-Sem a reflexão, a ponderação, sobram-nos os instintos e os comportamentos menos
-nobres, que ainda trazemos como padrões de atitude e de ação.
+Without reflection, weighting, we have the less instincts and behaviors
+noble, which we still bring as patterns of attitude and action.
 
-Portanto, o que nos cabe, como sugere a canção, é saber viver.
+So what's up to us, as the song suggests, is knowing how to live.
 
-Entre tantas possibilidades de agir, é necessário saber escolher.
+Among so many possibilities to act, it is necessary to know how to choose.
 
-Se nos deixamos levar pelo atropelo das circunstâncias, pelas limitações e
-dificuldades dos outros, não teremos outro resultado que não sejam dificuldades
-e problemas.
+If we let ourselves be carried away by the trampling of circumstances, by the limitations and
+difficulties of others, we will have no other result other than difficulties
+and problems.
 
-Saber viver talvez possa ser simplesmente mudar nossa postura perante a vida.
+Knowing how to live may simply be changing our attitude towards life.
 
-Perante a calúnia, nos mantermos dignos, agindo corretamente, apoiados na
-consciência tranquila.
+In the face of slander, we remain worthy, acting properly, supported by the
+quiet conscience.
 
-Frente à grosseria e à descompostura de alguém, oferecermos a paciência que
-aguarda, a gentileza ou o silêncio, que desarmam as pessoas.
+In the face of someone's rudeness and decomposure, we offer the patience that
+awaits, kindness or silence, that disarm people.
 
-Diante da traição, da covardia e do erro, oferecermos a compreensão, que
-alivia; trabalharmos o perdão, que dulcifica; aguardarmos o tempo, que oferece
-ponderação.
+In the face of betrayal, cowardice and error, we offer understanding, which
+relieves; we work forgiveness, which dulcifies; we wait for the time, which offers
+Weighting.
 
-Recordemos as palavras sábias do Amigo Jesus: 
-> Já ouvistes: amarás o teu próximo e odiarás o teu inimigo. Eu, porém, vos
-> digo, amai os vossos inimigos e orai pelos que vos perseguem.
+Let us remember The Wise Words of Friend Jesus: 
+> You've heard: you'll love your neighbor and hate your enemy. I, however,
+> I mean, love your enemies and pray for those who persecute you.
 
-Tudo isso, conclui o Mestre da Galileia, para que nos tornemos filhos de nosso
-Pai.
+All this, concludes the Master of Galilee, that we may become children of our
+Father.
 
-Em síntese, vivamos bem para vivermos mais tranquilos e mais felizes.
+In short, we live well to live more peaceful and happier.
 
 ## Source
 Redação do Momento Espírita.

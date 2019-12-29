@@ -13,73 +13,73 @@ topics:
 - family
 ---
 
-Muitas vezes, no nosso dia-a-dia, costumamos reclamar de algumas pessoas que
-nos atendem em lojas, supermercados, ao telefone, enfim, aquelas que nos
-atendem de alguma forma.
+Often, in our daily lives, we usually complain about some people who
+we serve in stores, supermarkets, on the phone, finally, those that
+meet in some way.
 
-O que não nos damos conta é que também estamos entre essas pessoas. E que, como
-elas, também estamos nos relacionando com várias outras pessoas.
+What we don't realize is that we're also among these people. And that, like
+them, we are also relating to several other people.
 
-Devemos pensar duas vezes antes de nos irritarmos.
+We should think twice before we get mad.
 
-A irritação, a intolerância, fazem com que provoquemos males ainda maiores na
-sociedade em que vivemos.
+Irritation, intolerance, cause us to cause even greater ills in the
+society in which we live.
 
-São os pequenos desentendimentos que geram os grandes conflitos da Humanidade.
+It is the small disagreements that generate the great conflicts of humanity.
 
-Por isso, não negue consideração e carinho diante de balconistas fatigados ou
-irritadiços. Pense nas provações que, sem dúvida, os atormentam nas retaguardas
-da família ou do lar.
+Therefore, do not deny consideration and affection before fatigued clerks or
+cranky. Think of the trials that undoubtedly torment them in the rearguards
+family or home.
 
-A pessoa que se revela mal humorada, em seus contatos públicos, provavelmente
-carrega um fardo pesado de inquietação e doença.
+The person who proves grumpy, in his public contacts, probably
+carries a heavy burden of restlessness and illness.
 
-Aprender a pedir um favor aos que trabalham em repartições, armazéns, lojas ou
-bares é obrigação.
+Learn to ask for a favor from those working in offices, warehouses, shops or
+bars is must.
 
-Embora estejam sendo pagos para cumprir suas tarefas ou sejam subordinados a
-nós, são seres humanos como nós mesmos.
+Although they are being paid to fulfill their tasks or are subordinate to
+we, are human beings like ourselves.
 
-Lembre-se que todas as criaturas trazem consigo as imperfeições e fraquezas que
-lhes são peculiares, tanto quanto, ainda desajustados, trazemos também as
-nossas.
+Remember that all creatures bring with them the imperfections and weaknesses that
+peculiar to them, as far as, still misfit, we also bring the
+Our.
 
-Muitas vezes, nós mesmos, atormentados por algum problema a resolver, tratamos
-mal alguém que nos venha pedir um favor com delicadeza.
+Often, ourselves, plagued by some problem to solve, we treat
+evil someone who comes to us for a favor with delicacy.
 
-O que aconteceria se essa pessoa também nos tratasse mal? Ficaríamos ainda mais
-irritados. No entanto, se essa pessoa, apesar da nossa má vontade, nos tratasse
-bem, com cortesia e gentileza, pensaríamos melhor no que estamos fazendo,
-podendo até mudar de atitude.
+What would happen if this person treated us badly too? We'd get even more
+Angry. However, if this person, despite our ill will, treated us
+Well, with courtesy and kindness, we'd think better about what we're doing,
+may even change attitudes.
 
-Em muitos casos, o que nos falta é um pouco de tolerância.
+In many cases, what we lack is a little tolerance.
 
-Ter tolerância é ter paciência e saber entender os problemas alheios.
+To have tolerance is to have patience and know how to understand the problems of others.
 
-A tolerância deve ser aplicada indistintamente entre todos e em qualquer lugar.
-É lição viva de fé e elevação e não pode ser esquecida.
+Tolerance must be applied indistinctly between everyone and anywhere.
+It is a living lesson in faith and elevation and cannot be forgotten.
 
-Tolerar, no entanto, não significa conivir.
+Tolerating, however, does not mean conivir.
 
-Desculpar o erro não é concordar com ele. Entender e perdoar a ofensa, não
-representa ratificá-la, mas sim ser caridoso e compreensivo.
+To excuse the mistake is not agreeing with him. Understand and forgive offense, not
+represents ratifying it, but rather being charitable and understanding.
 
-É indispensável não entrar em área de atrito, quando puder contornar o mal
-aparente a favor do bem real.
+It is essential not to enter an area of friction when you can get around the evil
+apparent in favor of the real good.
 
-Perdoe as ofensas e tente entender os problemas alheios sem julgá-los
+Forgive the offenses and try to understand the problems of others without judging them
 preconceituosamente.
 
-Faça aos outros o que gostaria que fizessem para você.
+Do to others what you'd like them to do for you.
 
-Seja uma pessoa amistosa para com todos.
+Be a friendly person to everyone.
 
-Contribua sempre com um pouco de amor para vencer o mal do mundo.
+Always contribute a little love to overcome the evil of the world.
 
                                    *   *   *
 
-Tolerância é caridade em começo. Exercitando-a, em regime de continuidade, você
-defrontará com os excelentes resultados do bem onde esteja, com quem conviva.
+Tolerance is charity at first. Exercising it, on a continuity basis, you
+will face the excellent results of the good wherever you are, with whom you live.
 
 ## Source
 Redação do Momento Espírita com base no cap. 14

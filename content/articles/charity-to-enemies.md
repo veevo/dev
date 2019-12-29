@@ -15,82 +15,82 @@ topics:
 - prayer
 ---
 
-Por que caridade para com alguém que agiu tão mal? Que despedaçou vidas, que
-trouxe profunda infelicidade para tanta gente?
+Why charity for someone who did so badly? That shattered lives, which
+did you bring deep unhappiness to so many people?
 
-Talvez estes sejam os pensamentos da maioria de nós, quando somos convidados a
-agir com benevolência para com esses que vilipendiam o mundo com seus gestos de
-maldade.
+Perhaps these are the thoughts of most of us when we are invited to
+act with benevolence towards those who vilified the world with their gestures of
+Evil.
 
-Por que ser bom com quem não foi? Por que agir bem com quem nos feriu?
+Why be good with who you didn't go with? Why act well with those who hurt us?
 
-Até hoje essas ideias não encontram eco em nossas almas. Vimos de tempos do
-olho por olho, de tempos de pagar o bem com o bem e o mal com mal. São milênios
-de primitivismo falando em nosso íntimo.
+To this day these ideas can't find echo in our souls. We've seen from times of the
+eye for an eye, of time to pay good with good and evil with evil. It's millennia
+of primitivism speaking in our hearts.
 
-Compreensível que tenhamos ainda tanta dificuldade em assimilar ideias e
-propostas diferentes dessas.
+Understandable that we still have so much difficulty in assimilating ideas and
+different proposals from these.
 
-No entanto, é preciso amadurecer. Nossa inteligência já é capaz de ligações, de
-entendimentos, que antes não nos eram possíveis.
+However, it is necessary to mature. Our intelligence is already capable of connections, of
+understandings, which were not possible for us before.
 
-Jesus foi o primeiro a revolver a intimidade humana propondo um tratamento
-diferente aos considerados maus.
+Jesus was the first to revolving human intimacy by proposing treatment
+different from those considered bad.
 
-Primeiro mostrando que todos trazemos dificuldades, que caímos e ainda podemos
-cair. Evidenciando que o mal é doença que pode alcançar a todos.
+First showing that we all bring difficulties, that we fall and we can still
+Fall. Evidencing that evil is a disease that can reach everyone.
 
-Por isso alertou sobre os julgamentos: Aquele que estiver sem pecado atire a
-primeira pedra.
+Therefore he warned of judgments: He who is without sin shoots the
+first stone.
 
-Propôs o perdão das ofensas para nos livrarmos do ódio que consome
-primeiramente a quem o traz na alma.
+He proposed the pardon of offenses to get rid of the hatred he consumes
+first to those who bring it into the soul.
 
-Por fim, propondo o amor aos inimigos, talvez o ensinamento mais difícil de
-vivenciarmos. Algo fora da realidade de nosso planeta.
+Finally, proposing love to enemies, perhaps the most difficult teaching of
+experience it. Something out of the reality of our planet.
 
-Como amar alguém que não suportamos nem ver, que nos causa mal, que nos
-prejudica?
+How to love someone we can neither support nor see, who causes us harm, who
+Harms?
 
-Bem, precisamos utilizar a inteligência e entender o espírito por trás da
-letra: Não pretendeu Jesus, assim falando, que cada um de nós tenha para seu
-inimigo a mesma ternura que dispensamos a um amigo ou um irmão.
+Well, we need to use intelligence and understand the spirit behind the
+letter: Jesus did not intend, so speaking, that each of us has for his
+enemy the same tenderness that we dispense to a friend or brother.
 
-Ternura pressupõe confiança. Ora, ninguém pode depositar confiança numa pessoa
-sabendo que esta lhe quer mal.
+Tenderness presupposes confidence. Now, no one can place trust in a person
+knowing that she wants you badly.
 
-Ainda há a questão de afinidade e de vínculo, por vezes impossível.
+There is still the question of affinity and bonding, sometimes impossible.
 
-A pobreza de nossa linguagem obriga que nos sirvamos do mesmo termo para
-exprimir matizes diversos de um sentimento. A razão, então, estabelecerá as
-diferenças.
+The poverty of our language requires us to serve as a term for
+express various nuances of a feeling. The reason will then establish the
+Differences.
 
-Amar aos inimigos não é, portanto, ter-lhes uma afeição que não está na
-natureza, visto que o contato de um inimigo nos faz bater o coração diferente.
+Loving enemies is therefore not having an affection that is not in the
+nature, since the contact of an enemy makes us beat a different heart.
 
-Amar aos inimigos é não lhes guardar ódio, nem rancor, nem desejo de vingança.
-É perdoar-lhes sem pensamento oculto e condições, o mal que nos causaram.
+To love enemies is not to keep hatred, no grudge, no desire for revenge.
+It is forgiving them without hidden thinking and conditions, the evil they have caused us.
 
-É também não opor nenhum obstáculo à reconciliação com eles. É desejar-lhes o
-bem e não o mal. É experimentar júbilo, em vez de pesar, com o bem que os
-alcance.
+It is also not to oppose any obstacle to reconciliation with them. It is to wish them the
+well and not evil. It is to experience joy, rather than grief, with the good that
+Reach.
 
-Por fim, é socorrê-los, em se apresentando ocasião e retribuir o mal com o bem,
-sem a intenção de humilhar.
+Finally, it is to help them, in presenting themselves occasion and reciprocate evil with good,
+without the intention of humiliating.
 
                                    *   *   *
 
-O amor aos inimigos parece distante de nossas possibilidades. Se impossível
-fosse, porém, Jesus, o Modelo e Guia da Humanidade, não o teria proposto com
-tanta objetividade.
+Love for enemies seems far from our possibilities. If impossible
+whether, however, Jesus, the Model and Guide of Humanity, would not have proposed it with
+so objectivity.
 
-Tudo que temos a fazer é dar um passo de cada vez. Hoje é o evitar a vingança.
-Amanhã, deixar de odiar. Mais tarde, até desejar o bem e, quem sabe, poder
-ajudar.
+All we have to do is take it one step at a time. Today is to avoid revenge.
+Tomorrow, stop hating. Later, until you wish for good and, who knows, power
+Help.
 
-Dessa forma, estaremos seguindo rumo a essa nuance de amor  tão diferente e
-rara ainda na Terra.
- 
+In this way, we will be moving towards this nuance of love so different and
+rare still on Earth.
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. XII, item 3,

@@ -14,98 +14,98 @@ topics:
 ---
  
 
-Os adultos geralmente não leem revistas em quadrinhos mas algumas delas trazem
-ensinamentos profundos, de maneira lúdica e inteligente.
+Adults usually don't read comic books but some of them bring
+deep teachings, in a playful and intelligent way.
 
-Com desenhos bem feitos e cores vivas, os personagens criados pelos artistas
-vão passando lições de filosofia e conceitos importantes para a formação de uma
-geração mais consciente.
+With well-made designs and vivid colors, the characters created by the artists
+are passing philosophy lessons and important concepts for the formation of a
+more conscious generation.
 
-Por vezes, numa única página encontramos grandes lições.
+Sometimes on a single page we find great lessons.
 
-E uma dessas começa com o personagem chamado Horácio, um pequeno dinossauro
-verde, que caminha por entre as rochas e, de repente, se vê diante de um grande
-espelho.
+And one of these begins with the character named Horace, a small dinosaur
+green, which walks through the rocks and suddenly sees himself before a great
+Mirror.
 
-Olha para sua imagem refletida diante de si, e algo lhe chama a atenção.
+Look at your reflected image before you, and something catches your eye.
 
-Depois de uma observação atenta, exclama para si mesmo: Perninhas curtinhas...
+After an attentive observation, exclaim to yourself: Little legs...
 
-Olha mais detidamente e pensa: Bracinhos minúsculos!
+Look more closely and think: Tiny little arms!
 
-Uma olhada a mais e se dá conta: Olhos esbugalhados e um cabeção enorme!
+One more look and realizes: Bulging eyes and a huge head!
 
-Observa-se um pouco mais e depois se vai, feliz da vida, pensando consigo
-mesmo:
+It is observed a little more and then goes, happy of life, thinking to you
+Same:
 
-Ah, tudo bem! Deve ser um daqueles espelhos que deformam a gente!
+Oh, it's okay! It must be one of those mirrors that deform us!
 
-Nós também nos deparamos constantemente com o espelho da nossa própria
-consciência, que não só aponta as nossas deformidades morais, como indica a
-melhor conduta que deveríamos adotar.
+We also constantly come across the mirror of our own
+conscience, which not only points out our moral deformities, but also indicates the
+better conduct we should adopt.
 
-Quando não é o espelho da consciência, são as pessoas que convivem conosco que
-nos falam sobre os nossos defeitos.
+When it is not the mirror of consciousness, it is the people who live with us who
+we're told about our flaws.
 
-No entanto, muitos de nós fazemos como Horácio. Damos as costas e dizemos que a
-deformidade é culpa do espelho.
+However, many of us do as Horace. We turn our backs and say that the
+deformity is the fault of the mirror.
 
-Quando a consciência nos alerta sobre a inveja que enfeia a nossa imagem, nós
-nos desculpamos dizendo que o outro não tem direito ou merecimento e que fomos
-preteridos pela Divindade.
+When the consciousness alerts us about the envy that entangles our image, we
+we apologize that the other has no right or deserving and that we were
+depreced by divinity.
 
-Se o ciúme projeta uma imagem deformada e o espelho íntimo nos assinala o
-problema dizemos que é excesso de amor ou bem-querer, e que temos o direito de
-exigir posse exclusiva.
+If jealousy projects a deformed image and the intimate mirror marks us the
+problem we say it's over-love or well-wanting, and that we have the right to
+require exclusive possession.
 
-Se a avareza mostra sua face distorcida em nosso espelho íntimo, conformados,
-nos consolamos:  Sou apenas econômico e previdente!
+If avarice shows its distorted face in our intimate mirror, conformed,
+we console ourselves: I am only economical and foresight!
 
-Quando o orgulho alardeia sua soberania, e a consciência faz o alerta, a
-desculpa surge de imediato:  Em mim só há dignidade!
+When pride trumpets its sovereignty, and consciousness makes the alert, the
+excuse arises immediately: In me there is only dignity!
 
-Mas se as nossas deformidades morais são apontadas pelos outros, que são nossos
-espelhos externos, nós dizemos que isso não passa de inveja, ciúme, despeito...
+But if our moral deformities are pointed out by others, which are our
+external mirrors, we say that this is nothing but envy, jealousy, spite...
 
-Não há dúvida de que o autoengano é uma realidade e ocorre em nível
-inconsciente, mas existem maneiras de verificar se nossa conduta está ou não
-equivocada.
+There is no doubt that self-deception is a reality and occurs at the level
+unconscious but there are ways to check whether or not our conduct is
+Wrong.
 
-Também não há dúvida de que o autoconhecimento é a chave do progresso
+There is also no doubt that self-knowledge is the key to progress
 individual.
 
-Para quem deseja realmente se autoconhecer, para fazer em si a reforma moral
-necessária à felicidade eterna, eis algumas dicas do grande filósofo Santo
-Agostinho:
+For those who really want to know themselves, to make moral reform
+necessary for eternal happiness, here are some tips from the great philosopher Saint
+Augustine:
 
-Quando estiver indeciso sobre o valor de uma de suas ações, pergunte como a
-qualificaria se fosse praticada por outra pessoa.
+When you are undecided about the value of one of your actions, ask how the
+would qualify if it were practiced by another person.
 
-Se você a censura noutrem, não a pode ter por legítima quando for o seu autor,
-pois Deus não usa de duas medidas na aplicação de Sua justiça.
+If you censor you noutrem, you may not have it legitimate when you are your author,
+for God does not use two measures in the application of His righteousness.
 
-Procure também saber o que dela pensam os seus semelhantes e não despreze a
-opinião dos seus inimigos.
+Also try to know what their fellow people think of her and not despise the
+opinion of his enemies.
 
-Os inimigos nenhum interesse têm em mascarar a verdade e Deus muitas vezes os
-coloca ao seu lado como um espelho, a fim de que seja advertido com mais
-franqueza do que o faria um amigo.
+Enemies have no interest in masking the truth and God often
+puts at your side like a mirror in order to be warned with more
+frankness of what a friend would do.
 
-Todo aquele que se sinta possuído do desejo sério de melhorar-se, a fim de
-extirpar de si os maus pendores, como do seu jardim arranca as ervas daninhas,
-deve indagar a sua consciência sempre e sem receio de ouvi-la.
+Anyone who feels possessed of the serious desire to improve himself in order to
+extirpar of himself the bad pendores, as from his garden plucks the weeds,
+you must ask your conscience always and without fear of hearing it.
 
-É justo que se gastem alguns minutos para conquistar uma felicidade eterna.
+It is only fair that you spend a few minutes to conquer eternal happiness.
 
-Não trabalhamos todos os dias com o objetivo de juntar haveres que nos garantam
-repouso na velhice, que geralmente é cheia de dores e sofrimentos?
+We do not work every day with the aim of joining thereres that guarantee us
+rest in old age, which is usually full of pain and suffering?
 
-Seguramente valerá muito mais a pena investir alguns esforços para conquistar a
-felicidade sem fim.
+It will certainly be worth investing a few more efforts to win the
+endless happiness.
 
-Pensemos nisso!
+Let's think about it!
 
-                                                                               
+
 
 ## Source
 Redação do Momento Espírita com base no item 919 de  O livro dos Espíritos, de

@@ -12,82 +12,82 @@ topics:
 - family
 ---
 
-Há poucos dias eu me mudara para minha nova casa.
+A few days ago I moved into my new home.
 
-Os móveis haviam chegado e precisavam ser montados. Contratei, portanto, os
-serviços de um marceneiro.
+The furniture had arrived and needed to be assembled. I therefore hired the
+services of a joiner.
 
-Era um homem experiente e esforçado. Em apenas três dias conseguiu montar
-sozinho os móveis do quarto, sala e cozinha.
+He was an experienced, hard-working man. In just three days managed to assemble
+single-handed bedroom furniture, living room and kitchen.
 
-E gostava muito de conversar também. Entre uma martelada e outra, um parafuso
-ajustado, puxava os mais diversos assuntos.
+And I'd really like to talk too. Between one hammered and another, a screw
+adjusted, pulled the most diverse subjects.
 
-De vez em quando falava de política. Em outros momentos, discorria sobre as
-vantagens de seu time favorito de futebol. Ainda, falava sobre o tempo,
-atualidades e a última notícia sensacionalista dos jornais.
+Every once in a while, i was talking politics. At other times, he discussed the
+advantages of your favorite football team. Still, he talked about time,
+and the latest sensationalist news from the newspapers.
 
-Mas, sem dúvida, seu assunto predileto era sua família. Gostava de contar sobre
-a dedicação de sua esposa e da inteligência e educação dos seus filhos. Seus
-olhos brilhavam de orgulho e felicidade.
+But undoubtedly his favorite subject was his family. I'd like to tell you about
+the dedication of his wife and the intelligence and education of his children. Your
+eyes shone with pride and happiness.
 
-Entretanto, naquele terceiro dia, ao chegar à minha casa para concluir a
-montagem dos móveis, percebi que havia algo diferente no seu semblante.
+However, on that third day, upon arriving at my home to complete the
+assembly of the furniture, I realized that there was something different in your countenance.
 
-Trabalhou o dia todo praticamente em silêncio e, porque me preocupei com tal
-mudança de comportamento, questionei-o sobre o que estava acontecendo.
+He worked all day practically in silence and, because I worried about such
+change of behavior, I questioned him about what was going on.
 
-Aquele não havia sido um dia fácil para ele: de manhã, seu veículo de trabalho
-havia apresentado problemas e, por isso, ficaria vários dias na oficina
-mecânica.
+That had not been an easy day for him: in the morning, his work vehicle
+had presented problems and therefore would stay several days in the workshop
+Mechanical.
 
-Quando estava no ponto de ônibus, aguardando o transporte que o traria à minha
-casa, um assaltante lhe furtou a caixa de ferramentas.
+When I was at the bus stop, waiting for the transport that would bring you to my
+house, a burglar stole his toolbox.
 
-E, como se não bastasse, sua carteira estava na caixa. Dessa forma, todos os
-seus documentos haviam sido extraviados também.
+And as if that wasn't enough, your wallet was in the box. In this way, all
+his documents had been misplaced as well.
 
-Por isso, ele estava extremamente irritado, o que justificava o seu silêncio.
+Therefore, he was extremely angry, which justified his silence.
 
-Quando ele terminou seu trabalho, em solidariedade aos acontecimentos tristes
-daquele dia, lhe ofereci uma carona para casa, pois sabia que ele estava muito
-cansado. Agradecido, ele aceitou.
+When he finished his work, in solidarity with the sad events
+of that day, I offered him a ride home, for I knew he was very
+Tired. Thank you, he said yes.
 
-Ao chegarmos, ele me convidou para entrar, a fim de que eu conhecesse sua
-família.
+Upon arriving, he invited me in, so that I would know his
+Family.
 
-Em frente à residência, havia uma majestosa árvore. Antes de abrir a porta de
-sua casa, o trabalhador se recostou nela por breves momentos e, depois disso,
-seu semblante mudou, o que me causou grande espanto.
+In front of the residence, there was a majestic tree. Before opening the
+his house, the worker leaned back on her for brief moments and, after that,
+his countenance changed, which caused me great astonishment.
 
-Entrou em casa sorrindo, beijando a esposa e os filhos, e, para variar, falando
-muito.
+He came into the house smiling, kissing his wife and children, and, for a change, speaking
+Very much.
 
-Ela me convidou para o jantar e a noite foi muito agradável.
+She invited me to dinner and the evening was very nice.
 
-Ao me despedir, envolto pela curiosidade, o questionei sobre a árvore e aquela
-mudança radical de atitude.
+As I said goodbye, surrounded by curiosity, I questioned him about the tree and that
+radical change of attitude.
 
-Sorrindo, ele me respondeu: Aquela é minha árvore dos problemas. Quando chego à
-minha casa, eu deixo todos os meus problemas nela, de forma que não os desconte
-em minha família, pois de nada eles têm culpa.
+Smiling, he answered me, That's my trouble tree. When I get to
+my house, I leave all my problems in it, so that does not discount them
+in my family, for they are of no nothing fault.
 
-Amanhã, quando eu for trabalhar, os pego novamente e, com a ajuda de Deus, saio
-para resolvê-los.
+Tomorrow, when I go to work, I catch them again and, with God's help, I leave
+to solve them.
 
 *   *   *
 
-Embora as situações difíceis que se apresentam no dia a dia, cultivemos sempre
-o bom ânimo com aqueles que estão ao nosso redor.
+Although the difficult situations that present themselves on a daily basis, we have always cultivated
+the good cheer with those around us.
 
-Não deixemos que nossos problemas se transformem em palavras rudes,
-impaciência, falta de carinho, amor, compreensão, ternura.
+Let's not let our problems turn into rude words,
+impatience, lack of affection, love, understanding, tenderness.
 
-Pois o dinheiro, o estresse, as metas a se alcançar vão-se embora... Mas a
-família, os amigos, momentos de cumplicidade ao lado daqueles que nos amam e a
-quem amamos, esses sim são eternos...
+Because the money, the stress, the goals to be achieved are gone... But the
+family, friends, moments of complicity alongside those who love us and
+who we love, these yes are eternal...
 
-Pensemos nisso... Mas pensemos agora!
+Let's think about it. But let's think about it now!
 
 ## Source
 Redação do Momento Espírita,

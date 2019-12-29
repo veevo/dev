@@ -6,74 +6,74 @@ topics:
 - envy
 ---
 
-Festas ricas tornam-se tão pobres,quando a riqueza repousa somente sobre
-brasões nobres...
+Rich parties become so poor, when wealth rests only on
+noble coats of arms...
 
-Suntuosas honrarias... Suntuosidades vazias...
+Sumptuous honors... Empty sumptuousities...
 
-Salões de ausência, imprudência, carência...
+Absence halls, recklessness, lack...
 
-Dançam na luminosidade de seus diamantes brutos na falsidade de seus audazes
-sorrisos curtos...
+Dance in the luminosity of their rough diamonds in the falsehood of their daring
+short smiles...
 
-De que forma utilizam vossas belezas, vistosas damas?
+How do you use your beauties, showy ladies?
 
-Atraindo corpos ou sentimentos - chamas?
+Attracting bodies or feelings - flames?
 
-De que maneira conquistam vossas beldades, caríssimos cavalheiros?
+How do you conquer your beauties, dear gentlemen?
 
-Promessas que inspiram verdades, ou encantares passageiros?
+Promises that inspire truths, or delight passengers?
 
-Por que tocam Chopin, se Chopin não foi convidado?
+Why do Chopin play if Chopin wasn't invited?
 
-E mesmo se convite tivesse recebido, convite teria recusado...
+And even if i had received an invitation, i would have refused...
 
-Por que trouxeram cordas, sopros, metais,
+Why did they bring ropes, puffs, metals,
 
-Se vossos corações não os ouvem mais?
+If your hearts don't listen to them anymore?
 
-Aquecem-se no fogo, mas o fogo não enxergam.
+They heat up in the fire, but the fire can't see.
 
-Banham-se de noite, mas vosso sono a ela não entregam...
+They bathe at night, but your sleep doesn't give her...
 
-O espírito adormece sob efeito de palavras venenosas.
+The spirit falls asleep under the effect of poisonous words.
 
-Acorda em desventuras trevosas.
+Wake up in clover misadventures.
 
-Será que não veem que bailam em vazios, e vazios vos tornam?
+Don't you see that they dance in voids, and voids make you?
 
-Que sem a fonte pura da água, os rios, os rios não se formam?
+That without the pure source of water, the rivers, the rivers do not form?
 
-Por Deus, ouçam esta sombra invisível que vos visita.
+For God's sake, listen to this invisible shadow that visits you.
 
-Por mais brilhante que seja, a riqueza da pedra... nunca será rica.
+As bright as it is, the richness of stone... you will never be rich.
 
                                    *   *   *
 
-Allan Kardec pergunta aos Espíritos, em O livro dos Espíritos:
+Allan Kardec asks the Spirits in The Book of Spirits:
 
-O que pensar do homem que procura nos excessos de toda espécie, um refinamento
-para seus prazeres?
+What to think of the man looking for in the excesses of every kind, a refinement
+for your pleasures?
 
-A Espiritualidade superior oferece a seguinte resposta:
+Superior Spirituality offers the following answer:
 
-Pobre infeliz digno de lástima e não de inveja. está bem próximo da morte!
+Poor unhappy worthy of shame and not envy. you're very close to death!
 
-Entendendo que os Espíritos falavam da morte física e da moral, o Codificador
-do Espiritismo conclui:
+Understanding that spirits spoke of physical death and morality, the Encoder
+of Spiritism concludes:
 
-O homem que procura nos excessos de toda espécie um requinte de prazeres
-coloca-se abaixo do animal, porque o animal sabe deter-se na satisfação da sua
-necessidade.
+The man looking for in the excesses of every kind a refinement of pleasures
+falls below the animal, because the animal knows how to stop in the satisfaction of its
+Need.
 
-Despreza o homem a razão que Deus lhe deu por guia, e, quanto maiores os seus
-excessos, mais domínio exerce sua natureza primitiva sobre sua natureza
-espiritual.
+Despises man the reason God gave him by guide, and the greater his
+excesses, more dominion exerts its primitive nature over its nature
+Spiritual.
 
-As doenças, a decadência, a morte prematura decorrentes dos abusos, são a
-consequência da transgressão da Lei Divina.
+Diseases, decay, premature death from abuses are the
+the transgression of the Divine Law.
 
-A riqueza da pedra, realmente, nunca será rica...
+The richness of the stone, really, will never be rich...
 
 ## Source
 Redação do Momento Espírita, com base no poema A riqueza da pedra,

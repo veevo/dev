@@ -15,72 +15,72 @@ topics:
 ---
 
 
-Você já teve a sensação de que não fechou a porta, não desligou o ferro
-elétrico, não travou o carro, não apagou a luz?
+You've had the feeling that you didn't close the door, you didn't turn off the iron.
+electric, you didn't brake the car, didn't you turn off the light?
 
-Essas situações surgem, pondo em dúvida o que, há poucos minutos, tínhamos como
-uma certeza.
+These situations arise, questioning what, a few minutes ago, we had as
+a certainty.
 
-Se nós nos deixamos atormentar por tais idéias, elas passam a fazer parte do
-nosso cotidiano, transformando-se em neuroses que, em escala maior, causam-nos
-prejuízos. É a chamada idéia fixa, fixação mental ou monoidéia.
+If we allow ourselves to be tormented by such ideas, they become part of the
+our daily lives, transforming into neuroses that, on a larger scale, cause us
+Losses. It is the so-called fixed idea, mental fixation or monoidea.
 
-Nessa mesma linha de raciocínio, os sentimentos de ciúme, de inveja, o
-fanatismo político, religioso e esportivo, considerados os graus de
-intensidade, podem causar danos à nossa economia espiritual.
+In this same line of reasoning, feelings of jealousy, envy, the
+political, religious and sporting fanaticism, considered the degrees of
+intensity, can cause damage to our spiritual economy.
 
-Causados por essas idéias fixas, surgem as ansiedades, os medos, as
-inseguranças, as mágoas guardadas, entre outros males.
+Caused by these fixed ideas, anxieties arise, fears,
+insecurities, the sorrows stored, among other evils.
 
-Quando agasalhamos esses sentimentos em nossa intimidade, de maneira a nos
-deixar atormentar por eles, a tal ponto que se constituam em idéia fixa ou
-monoidéia, poderemos gerar desequilíbrios e perturbações de difícil remoção.
+When we wrap these feelings in our intimacy, so that we
+allow them to torment, to the point that they constitute a fixed idea or
+monoidea, we can generate imbalances and disturbances of difficult removal.
 
-Se percebermos as insinuações dessas idéias negativas tentando instalação em
-nossas mentes, envidemos esforços para expulsá-las imediatamente.
+If we realize the insinuations of these negative ideas trying to install in
+our minds, we make efforts to expel them immediately.
 
-Empreguemos a vontade firme, a iniciativa, a perseverança nos bons propósitos,
-a fé e a paciência, como verdadeiros antídotos para expulsar essas idéias
-perniciosas.
+We employ the firm will, initiative, perseverance in good purposes,
+faith and patience as true antidotes to expel these ideas
+Pernicious.
 
-A transformação moral, a ação no bem, os nobres ideais do sentimento, da arte,
-da cultura, são medidas eficientes na prevenção de idéias indesejáveis.
+Moral transformation, action in good, noble ideals of feeling, art,
+of culture, are efficient measures in the prevention of undesirable ideas.
 
-Se, por vezes, nos encontramos enredados nas teias de circunstâncias
-perturbadoras, façamos uma análise dos pensamentos que alimentamos, pois neles
-estão a causa desses desequilíbrios.
+If sometimes we find ourselves entangled in the webs of circumstances
+disturbing, let us analyze the thoughts we feed, for in them
+are the cause of these imbalances.
 
-Portanto, manter a mente e as mãos ocupadas no trabalho nobre são medidas
-profiláticas, que nos fortalecem espiritualmente, predispondo-nos à libertação
-definitiva dessas verdadeiras prisões mentais.
+Therefore, keeping the mind and hands occupied in noble work are measured
+prophylactic, which strengthen us spiritually, predisposing us to the liberation of
+definite of these true mental prisons.
 
-Busquemos arejar a nossa mente com o otimismo, com leituras edificantes, com fé
-em Deus, permitindo-nos ser felizes tanto quanto se pode ser feliz sobre a
-Terra.
+Let us seek to air our minds with optimism, with uplifting readings, with faith
+in God, allowing us to be happy as much as one can be happy about the
+Earth.
 
-Jesus asseverou que onde estiver nosso tesouro, aí estará nosso coração.
+Jesus asserted that wherever our treasure is, there will be our hearts.
 
-Que a esperança seja o nosso grande tesouro e que nosso coração possa estar
-sempre balsamizado por suas luzes, iluminando-nos a alma e ajudando-nos a
-libertar-nos, em definitivo, das prisões mentais que tanto nos infelicitam.
+May hope be our great treasure and may our hearts be
+always balsamized by its lights, illuminating our souls and helping us to
+to free us definitively from the mental prisons that congratulate us so much.
 
                                    *   *   *
 
-Nos momentos em que nos permitimos fixações mentais desajustadas, Espíritos
-infelizes podem sugerir-nos idéias maléficas, aumentando nosso desequilíbrio.
+At times when we allow ourselves misfits mental fixations, Spirits
+unhappy may suggest us evil ideas, increasing our imbalance.
 
-Nessas situações, podem incitar-nos o orgulho, a sede de vingança, o ciúme, as
-fobias, entre outros males.
+In these situations, we can incite our pride, the thirst for revenge, jealousy,
+phobias, among other evils.
 
-Não foi outro o motivo pelo qual Jesus recomendou vigilância e oração.
+It was no other reason why Jesus recommended vigilance and prayer.
 
-A vigilância sobre os pensamentos que emitimos, a fim de que possamos
-controlá-los, não nos permitindo cair nas sugestões infelizes de Espíritos
-atormentados.
+Vigilance over the thoughts we issue so that we can
+control them, not allowing us to fall into the unfortunate suggestions of Spirits
+Tormented.
 
-E a oração, na busca de inspirações nobres vindas do Alto.
+And prayer, in the search for noble inspirations from above.
 
- 
+
 ## Source
 Redação do Momento Espírita com base no artigo Fixação mental, de Orson Peter
 Carrara, da Revista Reformador, de setembro de 1996, ed. Feb.

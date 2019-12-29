@@ -21,87 +21,87 @@ topics:
 - mother
 ---
 
-Há um antigo conto popular japonês que narra a história de uma moça tiranizada
-pela sogra.
+There is an ancient Japanese folk tale that tells the story of a bullied girl
+by his mother-in-law.
 
-Tudo era motivo para ela brigar e xingar. A jovem sofria calada, sem responder.
+Everything was a reason for her to fight and swear. The young woman was silent, without answering.
 
-Certo dia, um monge andarilho bateu à porta da casa e a nora lhe deu um bolinho
-de arroz.
+One day, a wanderer monk knocked on the door of the house and the daughter-in-law gave him a cupcake
+rice.
 
-Quando soube, a velha senhora ficou furiosa e a mandou buscar o alimento de
-volta.
+When she heard, the old lady was furious and told her to get the food of
+Time.
 
-Muito constrangida, ela obedeceu. Procurou o homem e explicou que teria de
-levar o bolinho.
+Very embarrassed, she obeyed. He sought the man and explained that he would have to
+Take the cupcake.
 
-O monge sorriu e devolveu. Também deu a ela uma toalha que deveria ser usada
-para enxugar o rosto e amenizar o peso da convivência com a mãe do marido.
+The monk smiled and returned. He also gave her a towel that should be used
+to dry the face and soften the weight of living with her husband's mother.
 
-A partir desse dia, a irritadiça mulher começou a notar que sua nora ficava
-cada vez mais linda. Isso alimentou sua raiva e inveja.
+From that day on, the angry woman began to notice that her daughter-in-law was
+more and more beautiful. It fueled your anger and envy.
 
-Numa manhã, viu-a enxugar o rosto com a toalha e observou que ela ficava mais
-bela e radiante.
+One morning, she saw her wipe her face with her towel and observed that she was more
+beautiful and radiant.
 
-Acreditou tratar-se de um objeto mágico e planejou pegá-lo para si.
+He believed it was a magical object and planned to catch it for himself.
 
-No dia seguinte, enquanto a jovem foi ao mercado, ela roubou o presente.
+The next day, while the young woman went to the market, she stole the gift.
 
-Lavou o rosto e o enxugou uma vez. Nada aconteceu.
+He washed his face and wiped it out once. Nothing happened.
 
-Esfregou o rosto com mais força. Sua aparência começou a se alterar.
-Entretanto, em vez de rejuvenescer, como esperava, assumiu a aparência de um
-monstro.
+He rubbed his face harder. His appearance began to change.
+However, instead of rejuvenating, as he hoped, assumed the appearance of a
+Monster.
 
-Horrorizada, deu um grito e desmaiou.
+Horrified, he screamed and fainted.
 
-Quando a nora chegou em casa e viu o que parecia ser uma criatura monstruosa,
-tentou fugir. A mulher, chorando, implorou por socorro.
+When the daughter-in-law came home and saw what appeared to be a monstrous creature,
+tried to escape. The woman, crying, begged for help.
 
-Reconhecendo a voz da sogra, ela se comoveu.
+Recognizing her mother-in-law's voice, she moved.
 
-Saiu pelo vilarejo em busca do monge. Ele saberia, com certeza, como reverter
-aqueles efeitos da toalha.
+He left for the village in search of the monk. He would surely know how to reverse
+those effects of the towel.
 
-Quando, finalmente, o encontrou e contou o sucedido, o andarilho sorriu e
-disse:
+When he finally found him and told him what happened, the wanderer smiled and
+Said:
 
-Quando uma pessoa usa a toalha, revela a aparência de sua alma. Para que ela
-volte a ser como antes, basta enxugar o rosto com o outro lado do tecido.
+When a person wears the towel, it reveals the appearance of his soul. So that she
+go back to as before, just wipe your face with the other side of the fabric.
 
-Assim foi feito e a velha senhora recuperou a forma anterior.
+So it was done and the old lady recovered the previous form.
 
-O mais interessante é que algo se modificou nela, depois do ocorrido. Parou de
-ofender a nora, alterando a maneira de tratamento para com ela.
+The interesting thing is that something changed in it after it happened. Stopped
+offend her daughter-in-law by altering the way she treats her.
 
-Compreendeu que o aspecto monstruoso, provocado pela toalha mostrava, em
-verdade, a pequenez de sua alma. Envergonhou-se da maneira cruel com que
-tratava a esposa do filho e se esforçou para mudar.
+Understood that the monstrous appearance, caused by the towel showed, in
+truth, the smallness of his soul. He was ashamed of the cruel way in which
+treated his son's wife and struggled to change.
 
-Envelheceu feliz, abandonando a raiva, a inveja e a maldade.
+He aged happily, abandoning anger, envy and wickedness.
 
                                     *  *  *
 
-Quando cultivamos o orgulho, o egoísmo, a raiva, a inveja, a maledicência,
-moldamos nossa alma com uma aparência feia, monstruosa.
+When we cultivate pride, selfishness, anger, envy, malevolence,
+we shape our soul with an ugly, monstrous appearance.
 
-Se aplicamos o amor, a caridade, a amizade, a solidariedade, a bondade,
-assumimos formas luminosas de inigualável beleza.
+If we apply love, charity, friendship, solidarity, kindness,
+we take luminous forms of unparalleled beauty.
 
-É possível modificar a alma por meio da autotransformação, da mudança de padrão
-vibratório.
+It is possible to modify the soul through self-transformation, change of pattern
+Vibrating.
 
-Isso requer coragem: olhar-se, ver-se por dentro e assumir o que precisa ser
-mudado.
+This requires courage: to look at yourself, see yourself inside and assume what needs to be
+Changed.
 
-Depois, é preciso fortalecer os bons sentimentos, que trazemos no íntimo,
-alguns mais desenvolvidos, outros menos.
+Then it is necessary to strengthen the good feelings that we bring in the intimate,
+some more developed, others less.
 
-Assim, não importa a idade e a aparência física que tenhamos, nossa alma
-assumirá o aspecto inconfundível das pessoas de consciência leve.
+So no matter how old and physical appearance we have, our soul
+will take on the unmistakable aspect of people of light conscience.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no conto

@@ -13,95 +13,95 @@ topics:
 - mother
 --- 
 
-Cresce o número de adolescentes grávidas...
+The number of pregnant adolescents grows...
 
-Adolescentes são vítimas do alcoolismo.
+Teenagers are victims of alcoholism.
 
-Cresce o número de crimes praticados por jovens...
+The number of crimes committed by young people grows...
 
-Aumenta o consumo de álcool e cigarro entre os adolescentes...
+Increases alcohol and cigarette consumption among adolescents...
 
-Estas são algumas das notícias que estampam os jornais nos últimos tempos.
+This is some of the news that has been printing the newspapers in recent times.
 
-Onde foi parar a liberdade?
+Where did freedom end up?
 
-Juventude é sinônimo de liberdade. É o que cantam os jovens.
+Youth is synonymous with freedom. That's what young people sing.
 
-Ser jovem é ser livre, dizem.
+Being young is being free, they say.
 
-Será que os nossos jovens sabem o que é ser livre?
+Do our young people know what it's like to be free?
 
-Ou será que estão buscando a liberdade entregando-se ao jugo das drogas e da
-libertinagem?
+Or are they seeking freedom by indulging in the yoke of drugs and
+Debauchery?
 
-Parece que há uma confusão muito grande na cabeça do jovem moderno, que luta
-tanto pela liberdade e se entrega sem reflexão à dependência química.
+It seems that there is a very big mess in the head of the modern young man, who fights
+freedom and surrenderwithout reflection to chemical dependence.
 
-Pois, em nome dessa pseudoliberdade apertam os grilhões que os manterão presos
-por muito tempo.
+For in the name of this pseudofreedom they squeeze the shackles that will keep them trapped
+for a long time.
 
-Dos homens de Malboro que conhecemos outrora e cujos outdors eram mostrados em
-nossas cidades, todos já se despediram da vida física, sendo que a maioria
-deles corroídos por cânceres variados.
+Of the men of Malboro we once knew and whose outors were shown in
+our cities, all have already said goodbye to physical life, and most of them
+eroded by varied cancers.
 
-Será que a juventude não consegue distinguir o que seja a verdadeira liberdade?
+Can't youth distinguish what true freedom is?
 
-Tão logo o adolescente pode, corta o cordão umbilical que o une aos pais.
-Afinal, é careta ser chamado de filhinho da mamãe, por depender da sua amorosa
-proteção.
+As soon as the teenager can, cut the umbilical cord that binds him to his parents.
+After all, it's grimace to be called mom's little boy, because it depends on her loving
+Protection.
 
-Mas, será que careta não é ser dependente do cigarro, do álcool ou de outras
-drogas?
+But, does it go to the case is not to be dependent on cigarettes, alcohol or other
+Drugs?
 
-Será que não é melhor seguir as orientações dos pais que verdadeiramente o
-amam, ao invés de se entregar aos interesses mundanos dos traficantes e dos
-comerciantes inescrupulosos?
+Is it not better to follow the guidelines of parents that truly
+rather than surrender to the mundane interests of traffickers and
+unscrupulous traders?
 
-Em nome da liberdade, os jovens entregam-se aos desejos carnais, permitindo que
-a gravidez lhes traga responsabilidades precoces.
+In the name of freedom, young people surrender to carnaive desires, allowing
+pregnancy brings them early responsibilities.
 
-Em nome da liberdade, deixam os filhos, gerados sem responsabilidade, entregues
-a si mesmos, quando não os matam ainda no ventre.
+In the name of freedom, they leave their children, generated without responsibility, delivered
+themselves, when they don't kill them in their womb yet.
 
-Em nome da liberdade, buscam o cigarro, os alcoólicos, dos quais não conseguem
-libertar-se, tornando-se escravos desses venenos livres.
+In the name of freedom, they seek cigarettes, alcoholics, of whom they cannot
+free, becoming slaves to these free poisons.
 
-Em nome da liberdade, deixam-se dominar pela fúria e caem nas malhas dos
+In the name of freedom, they allow themselves to be overwhelmed by fury and fall into the meshes of the
 crimes.
 
-Nós perguntamos: isso tudo é liberdade ou é escravidão?
+We ask: is this all freedom or slavery?
 
-Que futuro podemos esperar se os jovens, que são a concretização do futuro, se
-degradam dia a dia?
+What a future can we expect if young people, who are the realisation of the future,
+degrade day by day?
 
-Com que mãos firmes poderemos contar no amanhã, se as dos nossos jovens estão
-trêmulas pelos efeitos das drogas?
+With which firm hands we can count on tomorrow, if our young people's are
+trembling about the effects of drugs?
 
-Será que poderemos contar com cérebros brilhantes se os nossos jovens destroem
-seus neurônios sob a ação do álcool?
+Can we count on shiny brains if our young people destroy
+your neurons under the action of alcohol?
 
-Cabe aos pais e educadores a grande tarefa de orientar e mostrar novos rumos
-aos jovens de hoje, para que nossa sociedade não apodreça nas bases.
+It is up to parents and educators to great task of guiding and showing new directions
+young people today, so that our society does not rot on the ground.
 
-Cabe aos jovens discernir o que é lícito e o que convém ao verdadeiro cristão.
+It is up to young people to discern what is lawful and what is appropriate for the true Christian.
 
-No dizer de Paulo, o Apóstolo, tudo me é permitido, mas nem tudo me convém. Aí
-está a chave para quem anseia por ser verdadeiramente livre.
+In Paul's words, the Apostle, everything is allowed to me, but not everything suits me. There
+is the key to those who long to be truly free.
 
-Busquemos a libertação física pela limitação dos apetites.
+Let us seek physical liberation by limiting appetites.
 
-A libertação intelectual pelo conhecimento da verdade, e, por fim, a liberdade
-moral pela conquista das virtudes. Só dessa forma seremos soberanamente livres.
+Intellectual liberation by knowledge of truth, and, finally, freedom
+moral by the conquest of virtues. Only in this way will we be sovereignly free.
 
                                    *   *   *
 
-Em grande parte dos acidentes de trânsito os motoristas estão embriagados.
+In most traffic accidents drivers are drunk.
 
-O grande incentivo ao uso do álcool surge no ambiente familiar.
+The great incentive to use alcohol arises in the family environment.
 
-Por ser o álcool uma droga socialmente aceita, os pais não se dão conta de que
-estão permitindo que seus filhos adentrem por caminhos de difícil volta.
- 
+Because alcohol is a socially accepted drug, parents do not realize that
+are allowing their children to enter through difficult paths around.
+
 
 ## Source
 Redação do Momento Espírita, com base em

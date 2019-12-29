@@ -19,86 +19,86 @@ topics:
 - family
 ---
 
-A Lei de Talião representou um progresso nos costumes da Humanidade.
+The Law of Talião represented progress in the customs of humanity.
 
-Em decorrência dela, a vingança passou a ter limites.
+As a result of it, revenge has come to have limits.
 
-Antes, por conta de uma ofensa, considerava-se justo dizimar toda a família do
-ofensor.
+Before, because of an offence, it was considered fair to decimate the whole family of the
+Offender.
 
-Depois, passou a ser olho por olho e dente por dente.
+Then it became an eye for an eye and tooth for tooth.
 
-Ou seja, o mal que se retribuía não podia ser maior do que o recebido.
+That is, the evil that was reciprocated could not be greater than that received.
 
-Jesus Cristo veio trazer a contribuição definitiva nessa seara.
+Jesus Christ came to bring the definitive contribution in this sand.
 
-Assentou que não se deveria resistir ao mal.
+He said you shouldn't resist evil.
 
-Que se alguém batesse na face direita, era preciso oferecer também a esquerda.
+That if someone hit the right face, you had to offer the left, too.
 
-Que se alguém tomasse a vestimenta, convinha deixar também a capa.
+That if someone took the garment, they might also leave the cape.
 
-Que se alguém obrigasse a andar uma milha, era para andar com ele duas.
+That if someone made him walk a mile, it was to hang out with him two.
 
-São palavras fortes e plenas de simbolismo.
+They are strong words full of symbolism.
 
-Por certo não significam se deva permitir que a agressividade e a violência
-tomem conta da Terra.
+Certainly do not mean whether to allow aggression and violence to be
+take over the Earth.
 
-Não constituem autorização ou incentivo a que os fracos se transformem em besta
-de carga dos fortes.
+They are not an authorisation or incentive for the weak to become a beast
+load of the forts.
 
-Seu significado profundo parece ser o de que apenas o amor é eficiente no
-enfrentamento com o mal e os maus.
+Its deep meaning seems to be that only love is efficient in the
+face with evil and evil.
 
-O revide, o ressentimento e o desejo de vingança apenas prolongam os
-desequilíbrios humanos.
+The review, resentment and desire for revenge only prolong the
+human imbalances.
 
-Sob a égide do Cristo, deve instalar-se uma nova ordem de paz e generosidade.
+Under the aegis of Christ, a new order of peace and generosity must be installed.
 
-O discípulo de Jesus é pacífico e pacificador.
+Jesus' disciple is peaceful and peacemaker.
 
-Ele é manso, compreensivo, ordeiro e confiante na Justiça Divina.
+He is meek, understanding, commanding and confident in Divine Justice.
 
-Perante uma ofensa, em geral três condutas são possíveis: revidar, fugir ou
-oferecer a outra face.
+Before an offense, in general three conducts are possible: to fight back, escape or
+offer the other face.
 
-O revide implica a continuação da luta e do desequilíbrio.
+The review implies the continuation of the struggle and imbalance.
 
-A fuga transfere o clima de ódio para solução futura e denota fraqueza moral,
-que estimula o violento.
+The escape transfers the climate of hatred to future solution and denotes moral weakness,
+that stimulates the violent.
 
-A última alternativa é, sem dúvida, a mais difícil.
+The last alternative is undoubtedly the most difficult.
 
-Perante a ofensa, oferecer a face contrária, a do perdão.
+Faced with offense, offer the opposite face, that of forgiveness.
 
-Esse ato de grandeza, consistente na imediata compreensão do desequilíbrio que
-há em qualquer ato mau, desestabiliza o agressor.
+This act of greatness, consistent in the immediate understanding of the imbalance that
+there in any bad act, destabilizes the aggressor.
 
-De repente, ele se vê lamentável como é, perante a serenidade do ofendido.
+Suddenly, he finds himself pitiful as he is, in the face of the serenity of the offended.
 
-A violência tende a morrer asfixiada no algodão da paz que envolve quem ama.
+Violence tends to die asphyxiated in the cotton of peace that involves those who love.
 
-É impossível vencer alguém com grandeza moral.
+It's impossible to beat someone with moral greatness.
 
-Em face dele, toda vitória é aparente e com sabor de cinzas.
+In his face, every victory is apparent and gray-flavored.
 
-Alguém em paz e pronto a desapegar-se da manta e da capa.
+Someone in peace and ready to let go of the blanket and the cape.
 
-Que tem paciência e caminha mais do que o solicitado ao lado de quem lhe impõe
-o esforço.
+Who is patient and walks more than requested alongside those who impose it on him
+effort.
 
-Certamente não é fácil adotar esse gênero de conduta.
+It's certainly not easy to adopt this kind of conduct.
 
-Entretanto, Jesus não apenas ensinou, como exemplificou.
+However, Jesus not only taught, but exemplified.
 
-Soube doar-Se em holocausto e Sua proposta vitoriosa segue transformando
-lentamente a Humanidade.
+He was able to donate himself into a holocaust and His victorious proposal continues to transform
+slowly humanity.
 
-E é dEle o convite que ressoa através dos séculos:
+And it is from Him the invitation that resonates through the centuries:
 
-Se alguém quiser vir após mim, negue-se a si mesmo, tome a sua cruz e siga-me!
- 
+If anyone wants to come after me, deny yourself, take your cross and follow me!
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. 13,

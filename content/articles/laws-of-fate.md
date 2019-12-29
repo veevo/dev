@@ -15,99 +15,99 @@ topics:
 ---
 
 
-Há quem pense que o Criador, por vezes, sentencia Suas criaturas a sofrimentos
-eternos.
+Some think that the Creator sometimes sentences His creatures to suffering
+Eternal.
 
-Contudo, tanto quanto se pode perceber, o Pai Celestial se manifesta através de
-leis que expressam ser Seu objetivo o bem supremo.
+However, as far as one can see, Heavenly Father manifests himself through
+laws that express being His goal the supreme good.
 
-Essas leis podem ser observadas mesmo nos processos rudimentares do campo
-físico.
+These laws can be observed even in the rudimentary processes of the field
+Physical.
 
-O fogo é agente precioso da evolução, nos limites em que deve ser conservado.
+Fire is a precious agent of evolution, at the limits at which it must be conserved.
 
-Entretanto, se colocamos a mão no braseiro, é natural que venhamos a sofrer
-dolorosas consequências.
+However, if we put our hands on the brazier, it is natural that we will suffer
+painful consequences.
 
-A máquina é parte acessória do progresso.
+The machine is ancillary part of progress.
 
-Mas em mãos que não a saibam manusear, pode se converter em instrumento de
-destruição.
+But in hands that do not know how to handle it, it can become an instrument of
+Destruction.
 
-Negligência, imperícia ou indisciplina na sua utilização causam resultados
-desastrosos.
+Negligence, malpractice or indiscipline in its use cause results
+Disastrous.
 
-Ocorre o mesmo nos planos da consciência.
+The same occurs in the planes of consciousness.
 
-Na matemática do Universo, o destino sempre dá para a criatura o que ela lhe
-der.
+In the mathematics of the Universe, fate always gives the creature what it gives you
+The.
 
-É inútil que autoridades de um ou outro princípio religioso pintem o Todo
-Poderoso com as tintas das paixões humanas.
+It is pointless that authorities of one or another religious principle paint the Whole
+Powerful with the paints of human passions.
 
-Com frequência, ouvimos interpretações que assemelham Deus a um soberano
-rodeado de púrpura e riquezas.
+We often hear interpretations that resemble God to a sovereign
+surrounded by purple and riches.
 
-A alguém que fica simplesmente governando Seus súditos à distância.
+To someone who simply rules His subjects from a distance.
 
-Segundo esses relatos, Ele se enraivece por falta de louvores ou pela
-desobediência dos Seus filhos.
+According to these accounts, He is angry by a lack of praise or by the
+disobedience of His children.
 
-Também se envaidece com adulações.
+It also besits with adulnations.
 
-Os que assim apresentam a Divindade podem estar movidos de santos propósitos.
+Those who present the Divinity may be moved from holy purposes.
 
-Talvez raciocinem sob o influxo de lendas e tradições respeitáveis do passado
-longínquo.
+Perhaps they reason under the influx of respectable legends and traditions of the past
+Distant.
 
-Mas se esquecem de que, mesmo perante as leis dos homens, pessoa alguma
-consegue furtar, moralmente, o merecimento ou a culpa de outra.
+But they forget that even before the laws of men, any person
+can morally steal the meritory or guilt of another.
 
-Deus é amor.
+God is love.
 
-Amor que se expande do átomo aos astros.
+Love that expands from atom to stars.
 
-Mas é justiça também.
+But it's justice too.
 
-Justiça que atribui a cada Espírito segundo o que ele próprio escolheu.
+Justice he attributes to each Spirit according to what he himself chose.
 
-Nosso Mestre Jesus disse que a cada um seria dado segundo as suas obras.
+Our Master Jesus said that each one would be given according to his works.
 
-Sendo amor, Deus concede à consciência transviada tantas experiências quantas
-necessite, a fim de retificar o próprio caminho.
+Being love, God grants the misplaced conscience as many experiences as
+need in order to rectify the path itself.
 
-Sendo justiça, ignora privilégios de qualquer ordem. Para Ele, todos são
-iguais, filhos do Seu amor.
+Being justice, you ignore privileges of any order. For Him, everyone is
+the same, children of His love.
 
-Jamais afirmemos, portanto, que Deus privilegia a uns e condena a outros.
+Let us never say, therefore, that God privileges one and condemns to others.
 
-Recordemos que não podemos raciocinar pelo cérebro alheio.
+Let's just remember we can't reason for someone else's brains.
 
-Também não podemos nos alimentar pela boca do próximo. Cada um é o responsável
-pelas suas próprias ações.
+We can't feed through the mouth of the next one either. Each is responsible for
+for their own actions.
 
-Deus nos criou a todos para que nos engrandeçamos, para que realizemos o
-progresso, de ordem intelectual e de ordem moral.
+God created us all so that we may be great, so that we may carry out the
+progress, intellectual order and moral order.
 
-Em uma palavra, para que alcancemos a felicidade no mais amplo sentido.
+In a word, so that we can reach happiness in the broadest sense.
 
-Para isso, sendo amor, nos proporciona um caminho de bênçãos e de luzes.
+For this, being love, it provides us with a path of blessings and lights.
 
-Sendo justiça, determinou que cada Espírito possuísse vontade e razão.
+Being justice, he determined that each Spirit possess ed will and reason.
 
-Assim, nenhum de nós é vítima senão de si mesmo.
+So none of us are a victim but yourself.
 
-Cada qual nos adiantamos ou nos atrasamos, conforme queiramos, no decorrer de
-incontáveis existências.
+Each one that advances or is late, as we wish, in the course of
+countless existences.
 
-O livre-arbítrio vigora amplamente no Universo.
+Free will is widely in the Universe.
 
-Apenas é necessário arcar com as consequências das próprias opções.
+It is only necessary to bear the consequences of the options themselves.
 
-Dessa forma, nossa vida, aqui ou no Além, será sempre o que quisermos, ou seja,
-o que dela fizermos.
+In this way, our life, here or in the Beyond, will always be whatever we want, that is,
+whatever we do.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita, com base no cap. LI, do livro

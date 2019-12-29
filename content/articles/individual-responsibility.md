@@ -10,76 +10,76 @@ topics:
 ---
 
 
-Fotos e vídeos de diferentes partes do mundo vêm mostrando imensos danos que o
-acúmulo de lixo tem causado na natureza.
+Photos and videos from different parts of the world have shown immense damage that the
+accumulation of garbage has caused in nature.
 
-Praias abarrotadas de resíduos plásticos, animais marinhos e aves mortos por
-terem ingerido grandes quantidades desses materiais, confundindo-os com
-alimentos.
+Beaches crammed with plastic waste, marine animals and birds killed by
+ingested large quantities of these materials, confusing them with
+Food.
 
-Outros com os movimentos comprometidos, enrolados em redes de pesca, sacolas
-plásticas e resíduos descartados indevidamente.
+Others with compromised movements, wrapped in fishing nets, bags
+plastic and improperly discarded waste.
 
-Vemos tartarugas com canudos plásticos enterrados nas narinas, morrendo por
-asfixia... enfim, uma série de cenas que chocam e entristecem.
+We see turtles with plastic straws buried in the nosorines, dying for
+Asphyxiation... anyway, a series of scenes that shock and grieve.
 
-Campanhas alertam para não jogar esses materiais nas praias, nos rios, nas
-ruas.
+Campaigns warn you not to throw these materials on beaches, rivers,
+Streets.
 
-Outras conclamam a deixarmos de utilizar materiais plásticos ou reduzir
-drasticamente sua utilização, e mesmo, reciclar, reutilizar, reaproveitar.
+Others call on us to stop using plastic materials or reduce
+drastically use, and even recycle, reuse, reuse.
 
-Há quem considere o plástico como vilão, no entanto, ele não é o vilão real. Os
-copos plásticos e os canudos, por exemplo, ajudaram a reduzir enormemente as
-contaminações hospitalares por conta de copos mal lavados e infectados,
-salvando assim inúmeras vidas.
+Some consider plastic as a villain, however, he is not the real villain. The
+plastic cups and straws, for example, helped greatly reduce the
+hospital contaminations due to poorly washed and infected glasses,
+thus saving countless lives.
 
-O grande responsável pela poluição e pela morte de milhares de animais é, na
-verdade, o ser humano, que age de maneira descuidada.
+The great responsible for the pollution and death of thousands of animals is, in the
+truth, the human being, who acts carelessly.
 
-Culpar canudos, potes, tampas e sacolas plásticas é uma forma de desviar a
-responsabilidade do real culpado.
+Blaming straws, pots, lids and plastic bags is a way to divert the
+responsibility of the real culprit.
 
-Quando jogamos um papel de bala na rua, ele vai parar na galeria de esgotos e
-vai desembocar em um rio e no mar.
+When we throw a bullet paper into the street, it will stop at the sewer scan and
+will flow into a river and in the sea.
 
-Uma sacola plástica não vai por vontade própria para o mar. Ela é um objeto
-inanimado, não tem pernas nem escolhe sua destinação.
+A plastic bag doesn't go of its own free will to the sea. She's an object
+inanimate, has no legs or chooses its destination.
 
-A ação humana, por negligência, é que a coloca na rota do mar, e no estômago de
-algum animal faminto.
+Human action, by negligence, is that it puts it on the sea route, and in the stomach of
+some hungry animal.
 
-Nós, seres humanos, precisamos ampliar nossa visão de mundo, indo além de nosso
-entorno, prestando atenção nas consequências de nossos atos, mesmo aqueles que,
-nos momentos em que os realizamos, nos pareçam insignificantes.
+We human beings need to broaden our worldview, going beyond our
+around, paying attention to the consequences of our acts, even those that,
+at times when we carry them out, they seem insignificant to us.
 
-Ano após ano, é preciso investir recursos, que poderiam ser utilizados em
-outras áreas, para desenvolver tecnologias e ações para resolver problemas
-causados por nós, em diferentes setores da sociedade.
+Year after year, it is necessary to invest resources, which could be used in
+other areas, to develop technologies and actions to solve problems
+caused by us in different sectors of society.
 
-Verificamos que tais tecnologias não têm sido suficientes para solucionar todos
-os problemas que se originam, na maioria das vezes, da nossa
-irresponsabilidade.
+We found that such technologies have not been sufficient to solve all
+the problems that most often arise from our
+Irresponsibility.
 
-A questão do lixo é apenas uma delas.
+The issue of garbage is just one of them.
 
-Enquanto não nos conscientizarmos de que a natureza não existe para nos servir,
-que somos parte integrante dela, assim como as plantas e os animais, criaremos
-sempre novos e mais sérios problemas.
+As long as we do not become aware that nature does not exist to serve us,
+that we are an integral part of it, as well as plants and animals, we will create
+always new and more serious problems.
 
-Abandonar o uso de embalagens plásticas e reciclar o lixo diminui muito o
-problema da poluição dos oceanos e das praias.
+Abandoning the use of plastic packaging and recycling garbage greatly decreases the
+pollution of oceans and beaches.
 
-No entanto, se continuarmos focados apenas em nós, ignorando a natureza que nos
-cerca, corremos o risco de não darmos conta dos problemas e ainda criarmos
-outros, comprometendo severamente a existência de tudo o que tem vida na Terra.
+However, if we remain focused only on us, ignoring the nature that
+about, we run the risk of not realizing the problems and still creating
+others, severely compromising the existence of everything that has life on Earth.
 
-Que possamos ter um olhar mais abrangente, respeitoso e responsável para com a
-natureza e que consigamos desenvolver um senso de responsabilidade sobre tudo o
-que nos cerca.
+May we have a more comprehensive, respectful and responsible look at the
+nature and that we can develop a sense of responsibility over all
+that surrounds us.
 
-Pensemos nisso porque, afinal, trata-se da sobrevivência de toda espécie de
-vida, sobre a Terra.
+Let us think about it because, after all, it is about the survival of all kinds of
+life, upon the Earth.
 
 ## Source
 Redação do Momento Espírita.

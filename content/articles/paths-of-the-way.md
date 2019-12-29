@@ -14,80 +14,80 @@ topics:
 - mother
 ---
 
-Você já deve ter reparado, no curso das rodovias federais e estaduais, um sem
-fim de cruzes espalhadas ao longo dos inúmeros quilômetros que ligam as pontas
-de nosso país.
+You may have already noticed, in the course of federal and state highways, one without
+end of crosses scattered along the numerous kilometers that connect the tips
+of our country.
 
-Em geral, elas assinalam um acontecimento trágico ocorrido naquele trecho da
-estrada: um atropelamento, um choque entre veículos, um tombamento de caminhão,
-cujo desfecho é a morte de uma ou mais pessoas.
+In general, they point to a tragic event that occurred in that excerpt from the
+road: a hit-and-run, a vehicle shock, a truck tipping,
+the outcome of which is the death of one or more people.
 
-Elas também registram, de forma singela, a tristeza, o pesar daqueles que
-padecem a saudade da ausência física de seus amores.
+They also record, in a simple way, the sadness, the sorrow of those who
+suffer the longing for the physical absence of their loves.
 
-Estradas, tantos quilômetros... e tantas cruzes.
+Roads, so many miles... and so many crosses.
 
-Silenciosas, discretas... Ali está o memorial em respeito à lembrança de
-alguém. Para nós, um desconhecido, mas que foi muito amado por ser filho,
-filha, esposo, esposa, pai, mãe.
+Silent, discreet... There's the memorial in respect of the memory of
+Someone. For us, a stranger, but who was much loved for being a son,
+daughter, husband, wife, father, mother.
 
-Erigidas em meio à pressa, à velocidade, erguem-se em respeito à saudade, às
-recordações, às lágrimas.
+Erected in the midst of haste, at speed, they rise in respect for longing,
+memories, tears.
 
                                    *   *   *
 
-Quantas cruzes deixamos às margens do nosso caminho?
+How many crosses do we leave on the shores of our path?
 
-Quantas lágrimas deixamos correr soltas, quantos arrependimentos sepultados,
-amarguras, desilusões, frustrações?
+How many tears we let run loose, how many buried regrets,
+bitterness, disappointments, frustrations?
 
-Jesus, o Mestre Nazareno, sentenciou: Se alguém quiser me seguir, negue a si
-mesmo, tome a sua cruz e me siga.
+Jesus, the Nazarene Master, condemned: If anyone wants to follow me, deny themselves
+even, take your cross and follow me.
 
-Cada cruz que deixamos em nossos caminhos, ainda que referenciem as dores e os
-sofrimentos pelos quais passamos, ajudam a contar os passos que demos para
-chegar onde estamos e para sermos o que somos.
+Every cross we leave in our ways, even if they refer to the pains and
+sufferings we have been through, help to count the steps we have taken to
+get where we are and to be who we are.
 
-As cruzes deixadas representam a morte de um antigo eu, a fim de que possamos
-renascer mais experientes, mais sábios, mais preparados para os novos desafios.
+The crosses left represent the death of an ancient self, so that we may
+be reborn more experienced, wiser, more prepared for the new challenges.
 
-Na Epístola aos Efésios, colhemos: Renunciai à vida passada, despojai-vos do
-homem velho. Renovai sem cessar o sentimento da vossa alma e revesti-vos do
-homem novo, criado à imagem de Deus, em verdadeira justiça e santidade.
+In the Epistle to the Ephesians, we harvest: Renounce past life, strip yourselves of the
+old man. Renew without ceasing the feeling of your soul and coat you from the
+young man, created in the image of God, in true righteousness and holiness.
 
                                   *    *    *
 
-Para cada cruz em nossa jornada, uma despedida.
+For every cross on our journey, a farewell.
 
-Ainda que com lágrimas, pouco a pouco damos adeus ao nosso orgulho, à nossa
-maledicência, à vaidade, ao desamor, à falta de caridade e fé.
+Although with tears, little by little we say goodbye to our pride, to our
+malevolence, vanity, unlove, lack of charity and faith.
 
-Em toda cruz, paulatinamente, vamos deixando para trás o homem velho, os velhos
-hábitos, os antigos preconceitos.
+On every cross, gradually, we leave behind the old man, the old
+habits, the old prejudices.
 
-A cada cruz, a exemplo do Rabi da Galileia, entregamos nas mãos do Pai nosso
-Espírito em marcha, o qual ruma em direção à verdade, ao bem e à felicidade.
+With each cross, like the Rabbi of Galilee, we deliver in the hands of the Father our
+Spirit on the march, which leads towards truth, good and happiness.
 
-As cruzes, ao longo das rodovias, representam apenas um breve adeus, uma vez
-que a vida jamais cessa, os laços fraternos jamais se desfazem e não há dúvidas
-quanto ao reencontro com nossos amores, no outro plano da existência.
+The crosses along the highways represent only a brief goodbye, once
+that life never ceases, fraternal bonds never fall apart and there is no doubt
+on the reunion with our loves, in the other plane of existence.
 
-Da mesma forma, as cruzes que deixamos no curso de nosso caminho representam
-lágrimas passageiras, dores que não são eternas, visto que o norte de nossa
-jornada é a felicidade, o bem, a paz.
+Similarly, the crosses we leave in the course of our path represent
+passing tears, pains that are not eternal, since the north of our
+journey is happiness, good, peace.
 
                                   *    *   *
 
-Tomemos as nossas cruzes, os nossos desafios, os nossos medos, os nossos
-infortúnios e sigamos o Cristo.
+Let us take our crosses, our challenges, our fears, our
+misfortunes and follow Christ.
 
-As cruzes às margens de nossas jornadas e as que carregamos são os desafios que
-a Providência Divina sabe sermos capazes de superar. Com elas aprendemos e
-através delas nos renovamos.
+The crosses on the margins of our journeys and the ones we carry are the challenges that
+Divine Providence knows how to be able to overcome. From them we learn and
+through them we renew ourselves.
 
-Pensemos nisso! Confiemos!
+Let's think about it! Trust!
 
-Escute o áudio deste texto
+Listen to the audio of this text
 
 # Source
 Redação do Momento Espírita, com citações do

@@ -17,83 +17,83 @@ topics:
 - family
 ---
 
-O que faríamos se, de repente, por uma circunstância qualquer, tivéssemos nas
-mãos a possibilidade de decidir a respeito do destino de uma pessoa que nos
-provocou muitos problemas?
+What would we do if, suddenly, by some circumstances, we had in the
+the possibility of deciding on the fate of a person who
+caused a lot of problems?
 
-Alguém que estendeu o manto da calúnia e destruiu nosso bom nome perante os
-amigos. Alguém que se apossou da empresa, fruto do nosso labor de tantos anos.
+Someone who extended the robe of slander and destroyed our good name before the
+Friends. Someone who took over the company, the fruit of our labor of so many years.
 
-Alguém que tenha ferido brutalmente a um membro da nossa família.
+Someone who brutally hurt a member of our family.
 
-Será que lembraríamos da lição do perdão, ensinada por Jesus? Será que viriam à
-nossa mente as palavras do Mestre Galileu: Bem-aventurados os misericordiosos,
-porque alcançarão misericórdia?
+Would we remember the lesson of forgiveness taught by Jesus? Would they come to
+our mind the words of Master Galileo: Blessed are the merciful,
+why will they achieve mercy?
 
-Ou, ainda, a exortação a respeito de nos reconciliarmos o mais depressa
-possível com nosso adversário?
+Or, furthermore, the exhortation about reconciling ourselves as soon as possible
+possible with our opponent?
 
-A propósito, conta-se que um escravo tornou-se de grande valor para o seu
-senhor, por causa da sua honradez e bom comportamento.
+By the way, it is said that a slave has become of great value for his
+sir, because of your honor and good behavior.
 
-Em razão disso, foi elevado a uma posição de importância, na qualidade de
-administrador de suas fazendas.
+As a result, it has been elevated to a position of importance as a
+administrator of their farms.
 
-Numa ocasião, o senhor desejou comprar mais vinte escravos. Foram juntos ao
-mercado e o administrador foi encarregado de observar e escolher.
+On one occasion, you wished to buy twenty more slaves. They went together to
+and the administrator was tasked with observing and choosing.
 
-Deveriam ser, naturalmente, homens fortes, para que pudessem desempenhar bem as
-rudes tarefas nas fazendas.
+They should, of course, be strong men, so that they could perform well the
+rude tasks on farms.
 
-O administrador foi ao mercado e começou a sua busca. Em certo momento, fixou a
-vista num velho e decrépito escravo. Apontando-o para o seu senhor, disse-lhe
-que aquele devia ser um dos que deveria ser adquirido.
+The administrator went to the market and began his search. At one point, it set the
+seen in an old and decrepit slave. Pointing it at your master, I told you
+that that should be one of those that should be acquired.
 
-O fazendeiro ficou surpreendido com a escolha e não concordou. Ouvindo o
-diálogo, o negociante de escravos disse que se fossem comprados vinte homens,
-ele daria o velho de graça.
+The farmer was surprised by the choice and did not agree. Listening to the
+dialogue, the slave trader said that if twenty men were bought,
+he'd give the old man for free.
 
-Realizada a negociação, foram todos levados para uma das propriedades.
+After the negotiation, they were all taken to one of the properties.
 
-O administrador passou a tratar o velho com maior cuidado e atenção do que a
-qualquer dos outros.
+The administrator began to treat the old man with greater care and attention than the
+any of the others.
 
-Levou-o para sua casa. Dava-lhe da sua comida. Quando tinha frio, levava-o para
-o sol. Quando tinha calor, colocava-o debaixo das árvores de cacau, à sombra.
+He took him to his house. I'd give him his food. When it was cold, I'd take him to
+when it was hot, i'd put it under the cocoa trees in the shade.
 
-Admirado daquelas atenções dispensadas a um escravo, o senhor perguntou por que
-ele procedia daquele forma.
+Admired of those attentions given to a slave, you asked why
+he did it that way.
 
-Decerto deveria ter algum motivo especial: É seu parente, talvez seu pai?
+I'm sure there should be some special reason: Is it your relative, maybe your father?
 
-A resposta foi negativa.
+The answer was negative.
 
-É seu irmão mais velho?
+Is that your big brother?
 
-Também não, respondeu.
+Not either, he answered.
 
-É seu tio ou outro parente?
+Is that your uncle or another relative?
 
-Não tenho parentesco algum com ele. Nem mesmo é meu amigo.
+I have no kinship with him. He's not even my friend.
 
-Então, perguntou o fazendeiro, por que motivo tem tanto interesse por ele?
+So, the farmer asked, why are you so interested in him?
 
-Ele é meu inimigo, senhor. Vendeu-me a um negociante e foi assim que me tornei
+He's my enemy, sir. He sold me to a dealer and that's how I became
 escravo.
 
-Mas eu aprendi, nos ensinamentos de Jesus, que devemos perdoar aos nossos
-inimigos. Esta é a oportunidade de exercitar meu aprendizado.
+But I have learned, in the teachings of Jesus, that we must forgive our
+Enemies. This is the opportunity to exercise my learning.
 
                                    *   *   *
 
-O perdão acalma e abençoa o seu doador.
+Forgiveness soothes and blesses your donor.
 
-Maior é a felicidade de quem expressa o perdão. O perdoado é alguém em processo
-de recuperação. No entanto, aquele que lhe dispensa o esquecimento do mal, já
-alcançou as alturas do bem e da solidariedade.
+The greater the happiness of those who express forgiveness. The pardon is someone in process
+recovery. However, he who dispenses with him forgetting evil,
+has reached the heights of good and solidarity.
 
-Quando entendermos que perdoar é conquistar enobrecimento, nos faremos fortes
-pelas concessões de amor e compreensão que sejamos capazes de distribuir.
+When we understand that forgiving is gaining ennoblement, we will make ourselves strong
+for the concessions of love and understanding that we are able to distribute.
 
 ## Source
 Redação do Momento Espírita, com base em texto de autoria

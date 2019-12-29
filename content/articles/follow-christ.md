@@ -13,90 +13,90 @@ topics:
 - responsibility
 ---
 
-Em todos os recantos onde Jesus deixou o sinal de sua passagem, houve sempre
-grande movimentação no que se refere ao ato de levantar e seguir.
+In every corner where Jesus left the sign of his passage, there was always
+great movement with regard to the act of lifting and following.
 
-André e Tiago deixaram as redes para acompanhar o Mestre.
+André and James left the nets to accompany the Master.
 
-Os paralíticos que retomaram a saúde se reergueram e andaram.
+The paralytics who regained their health rose again and walked.
 
-Lázaro atendeu ao chamamento do Cristo e levantou-se do sepulcro.
+Lazarus answered Christ's call and rose from the tomb.
 
-Entre dolorosas peregrinações e profundos esforços de vontade, Paulo de tarso
-procurou seguir o Jesus, entre açoites e sofrimentos, depois de se haver
-levantado, às portas de damasco.
+Between painful pilgrimages and deep will efforts, Paul of tarsus
+sought to follow Jesus, between whips and sufferings, after there was
+raised, at the gates of apricot.
 
-Numerosos discípulos do evangelho, nos tempos apostólicos, adotaram atitude
-semelhante.
+Many disciples of the gospel, in apostolic times, have adopted
+Similar.
 
-Eles acordaram da noite de ilusões terrestres e demandaram os testemunhos
-santificados no trabalho e no sacrifício.
+They woke up from the night of earthly illusions and demanded the testimonies
+sanctified in work and sacrifice.
 
-Isso constitui um acervo de lições muito claras a quem quer que se afirme
-cristão.
+This is a collection of very clear lessons to anyone who asserts himself
+Christian.
 
-A maioria adota, em quase todos os seus trabalhos, a lei do menor esforço.
-Muitos esperam a paz ofertada pelo Cristo no conforto de poltronas acolhedoras.
-Outros fazem preces por intermédio de discos ou CD’s.
+Most adopt, in almost all their jobs, the law of the least effort.
+Many expect the peace offered by Christ in the comfort of cozy armchairs.
+Others perform prayers through discs or CD's.
 
-Há quem deseje comprar a tranqüilidade celeste mediante generosas esmolas.
-Alguns cristãos aguardam intervenções miraculosas e sobrenaturais para melhorar
-sua vida, sem qualquer esforço próprio.
+Some want to buy heavenly tranquility through generous alms.
+Some Christians await miraculous and supernatural interventions to improve
+his life, without any effort of his own.
 
-Contudo, é importante que cada qual se indague se está efetivamente seguindo o
-Cristo, ou se apenas adota fórmulas de culto exterior, carentes de significado.
-Seguir o Mestre divino implica levantar-se e renovar-se.
+However, it is important that each of which is asked whether it is effectively following the
+Christ, or if he only adopts formulas of foreign worship, lacking in meaning.
+Following the divine Master implies getting up and renewing himself.
 
-Não há como trilhar o caminho da verdadeira vida sem imitar os luminosos
-exemplos de Jesus.
+There is no way to walk the path of true life without imitating the luminous
+examples of Jesus.
 
-Como é impossível alçar altos vôos com os pés chumbados ao solo, torna-se
-imperiosa a libertação dos vícios incompatíveis com a condição de fiel
-discípulo do Cristo.
+As it is impossible to handle high flights with feet sinker to the ground, it becomes
+the release of vices incompatible with the condition of faithful
+disciple of Christ.
 
-Cada criatura, mediante sincera e humilde auto-análise, poderá identificar o
-que a prende à terra e a impede de levantar-se.
+Each creature, through sincere and humble self-analysis, can identify the
+that holds it to the ground and prevents it from rising.
 
-Afinal, sem noção clara da tarefa a ser empreendida, não há como realizá-la a
-contento.
+After all, without a clear notion of the task to be undertaken, there is no way to carry it out
+Happy.
 
-Para alguns, a frente de batalha situa-se na necessidade de domar a sexualidade
-em desvario.
+For some, the front is situated in the need to tame sexuality
+in disvariating.
 
-Outros destroem seu corpo com a gula.
+Others destroy your body with gluttony.
 
-Muitos amam o ócio, gastando seu tempo com mil passatempos que a nada conduzem,
-ao invés de trabalharem para o progresso pessoal e coletivo.
+Many love idleness, spending their time with a thousand hobbies that lead to nothing,
+rather than working towards personal and collective progress.
 
-A maledicência é o calcanhar de Aquiles de numeroso contingente de pessoas.
+Malevolence is the Achilles heel of a large contingent of people.
 
-Do mesmo modo ocorre com a ganância, a desonestidade, o egoísmo, o orgulho e a
-vaidade, dentre outros tantos vícios que infelicitam a humanidade.
+Likewise it occurs with greed, dishonesty, selfishness, pride and
+vanity, among so many other vices that congratulate humanity.
 
-Identificados os obstáculos à própria evolução, não resta alternativa senão a
-labuta diária e persistente para erradicá-los.
+Once the obstacles to evolution itself are identified, there is no alternative but to
+daily and persistent toil to eradicate them.
 
-Cada um é herdeiro de si mesmo e as dificuldades atuais refletem opções
-equivocadas do passado.
+Each is heir to himself and the current difficulties reflect options
+misguided of the past.
 
-Quem já se dispôs a seguir o Cristo há longa data, por certo hoje se encontra
-pleno de paz e harmonia.
+Who has already set himself up to follow Christ long ago, certainly today is
+full of peace and harmony.
 
-Mas a maior parte da humanidade, lenta em assumir as responsabilidades e as
-rédeas do próprio processo evolutivo, permanece desequilibrada, entre
-reclamações e infantilidades.
+But most of humanity, slow to assume responsibilities and
+reins of the evolutionary process itself, remains unbalanced, between
+complaints and childishness.
 
-Entretanto, ninguém fará nosso trabalho.
+However, no one will do our job.
 
-Se queremos a paz que o Cristo ofereceu, devemos imitar-lhe os exemplos e
-romper, de forma vigorosa e determinada, com os hábitos do homem velho que
-ainda vive em nós.
+If we want the peace that Christ has offered, we must imitate the examples and
+break, vigorously and determinedly, with the habits of the old man who
+still lives in us.
 
-O amoroso chamado do Mestre ecoa em nossas consciências há milênios,
-convidando-nos à verdadeira vida.
+The loving call of the Master echoes in our consciences for millennia,
+inviting us to true life.
 
-Compete-nos a decisão de levantar e segui-lo, mediante profunda e definitiva
-transformação de nosso ser.
+It is up to us to decide to lift and follow it, through deep and definitive
+transformation of our being.
 
 ## Source
 Equipe de Redação do Momento Espírita, com base no capítulo I do livro

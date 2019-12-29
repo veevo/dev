@@ -16,70 +16,70 @@ topics:
 - prayer
 ---
 
-Na agitação dos dias atuais, as criaturas se assoberbam e angustiam,
-permitindo-se a depressão e o desespero.
+In the hustle and bustle of today, creatures overwhelm and distress,
+depression and despair are allowed.
 
-As manchetes que chegam de Além-mar não são menos desconfortantes do que as que
-temos por aqui.
+The headlines that come from overseas are no less uncomfortable than those that
+we've got it around here.
 
-Se o assunto é o desemprego, as notícias vêm de todos os continentes. Se é a
-violência, eclodem do globo inteiro. Se é a desvalorização da vida, os fatos se
-generalizam.
+If it comes to unemployment, the news comes from all continents. If it is the
+violence, they hatch from the entire globe. If it is the devaluation of life, the facts
+Generalize.
 
-Alguns pensam que é o final dos tempos, profetizado no Apocalipse. Outros
-pensam que é a decadência total do gênero humano.
+Some think it's the end of time, prophesied in the Apocalypse. Other
+think it is the total decay of the human race.
 
-Tudo isso é preocupante, não podemos negar. E não há dúvida de que as ameaças
-de bombas e explosões espalham o terror e o medo.
+All this is troubling, we can't deny it. And there is no doubt that threats
+bombs and explosions spread terror and fear.
 
-Entretanto, esse é o momento de meditarmos maduramente e observar de modo mais
-claro a situação, começando por nossa própria intimidade.
+However, this is the time to meditate maturely and observe more
+clear the situation, starting with our own intimacy.
 
-Preocupados com as circunstâncias externas, não nos damos conta de que as
-bombas mais tenebrosas e as explosões mais destruidoras são as que se dão na
-vida diária, quando o homem se converte em chacal do próprio homem.
+Concerned with external circumstances, we do not realize that
+darkest bombs and the most destructive explosions are the ones that take place in the
+daily life, when man becomes a jackal of man himself.
 
-Lançam-se bombas de indiferença e surgem explosões de frieza que soterram as
-nobres iniciativas, petrificando os melhores sentimentos que brotam na alma.
+Bombs of indifference are dropped and explosions of coldness arise that bury the
+noble initiatives, petrifying the best feelings that spring up in the soul.
 
-Montam-se bombas de vaidade e aparecem explosões de mágoas, capazes de infernar
-corações, destroçando as fontes generosas da vida.
+Vanity bombs are mounted and explosions of sorrows appear, capable of poffing
+hearts, destroying the generous sources of life.
 
-Enxameiam as bombas de exploração alheia, propiciando condições para as
-explosões de miséria e carência, desarticuladoras do progresso.
+They rinse the operating pumps of those other people, providing conditions for the
+explosions of misery and lack, disarticulating progress.
 
-Arrebentam-se bombas de ódios inomináveis, gerando explosões de revolta e
-rebeldia, danificando os ensaios de fraternidade e desmantelando entendimentos
-felizes, por fomentar a virulência das vinganças cruéis.
+Bombs of inominable hatred, generating explosions of revolt and
+rebellion, damaging fraternity trials and dismantling understandings
+happy, for fostering the virulence of cruel vengeance.
 
-Estrondeiam bombas de maledicência e intriga, verificando-se explosões de
-agressão e violência que levam o indivíduo ao desequilíbrio e à loucura.
+They etrondeem bombs of malevolence and intrigue, checking out explosions of
+aggression and violence that lead the individual to imbalance and madness.
 
-Instalam-se bombas de malquerença com explosões de intolerância e irritação,
-geradoras de peste que enferma as íntimas tecelagens da alma.
+Malquerença pumps are installed with explosions of intolerance and irritation,
+pest generators that sick entangles the intimate weavings of the soul.
 
-Forjam-se bombas de orgulho e cobiça, luxúria e lascívia, articulando explosões
-que rebaixam o caráter, envenenam o processo da vida sócio-moral dos
-indivíduos, que perdem excelentes oportunidades de bem conduzir as próprias
-vidas.
+Bombs of pride and greed, lust and lascivious are forged, articulating explosions
+demeaning character, poison the process of socio-moral life of the
+individuals who miss excellent opportunities to well drive their own
+Lives.
 
-Assim pensando, concluiremos que toda ação desnorteadora que a individualidade
-impõe ao seu circuito social, se transformará em parcela de guerra, de
-destruição, de negativismo, somada às ondas mentais caracterizadas pela
-perturbação, alimentando escuridão em toda parte.
+Thus thinking, we will conclude that all bewildering action that individuality
+imposes on its social circuit, will become a portion of war,
+destruction, of negativism, added to the mental waves characterized by the
+disturbance, feeding darkness everywhere.
 
                                    *   *   *
 
-Mais do que nunca, o homem moderno precisa identificar-se com Deus, a fim de
-serenar seu mundo íntimo, de educar-se ética e moralmente, exercitando
-compreensão e respeito por si mesmo e pelo seu semelhante, seguindo decidido na
-escalada da luz.
+More than ever, modern man needs to identify with God in order to
+to serenase their intimate world, of educating yourself ethically and morally, exercising
+understanding and respect for himself and his fellow, following decided in the
+light climbing.
 
-É imperioso que construamos um mundo glorificado pela paz e pelo amor que tanto
-almejamos, começando nas províncias da própria alma, buscando nosso encontro e
-identificação com o Espírito do Cristo.
+It is imperative that we build a world glorified by peace and love that so much
+we aim, beginning in the provinces of one's own soul, seeking our encounter and
+identification with the Spirit of Christ.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita, com base no cap.30,

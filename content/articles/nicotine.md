@@ -13,75 +13,75 @@ topics:
 - mother
 ---
 
-Ainda ontem aquela mãe brincava com as duas filhas. Mas isso foi ontem.
-Hoje, o quadro é bem diferente: um corpo nu, estirado sobre a mesa fria de um
-necrotério. A “causa mortis” foi um tumor cerebral provocado pela nicotina.
+Just yesterday that mother played with her two daughters. But that was yesterday.
+Today, the picture is quite different: a naked body, stretched on the cold table of a
+Morgue. The "cause mortis" was a nicotine-caused brain tumor.
 
-O homem era um eminente advogado. Agora está hirto, recostado na cama
-de um hospital, com os olhos vidrados, fixos no espaço. Na realidade, não olha
-para lugar nenhum – está morto. Falha cardíaca é o que dirá a certidão de
-óbito. A autópsia revelou que o coração do advogado estava normal; não se notou
-evidência de trombose. No entanto, ele já tinha sido avisado para não fumar,
-uma vez que se encontrava sob vigilância médica, devido a uma grave anomalia
-cardíaca, conhecida como angina péctoris.
+The man was an eminent lawyer. Now it's hirto, leaning back on the bed
+of a hospital, with glazed eyes, fixed in space. Actually, don't look
+nowhere - is dead. Cardiac failure is what the certificate will say
+Death. Autopsy revealed that the lawyer's heart was normal; didn't notice
+evidence of thrombosis. However, he had already been warned not to smoke,
+since it was under medical supervision due to a serious anomaly
+known as angina péctoris.
 
-Mas o advogado era incapaz de resistir às tentações e, de vez em
-quando, acendia o seu cigarrinho proibido.
+But the lawyer was unable to resist temptations and, from time to time
+when, he lit his forbidden cigarette case.
 
-Casos como esses acontecem em grande número. E se a autópsia fosse
-obrigatória em nosso país, perceberíamos que o cigarro tem feito mais vítimas
-do que se pensa.
+Cases like these happen in large numbers. What if the autopsy was
+mandatory in our country, we would realize that cigarettes have made more victims
+of what you think.
 
-E o problema não é recente.
+And the problem isn't recent.
 
-No ano de 1971, o relatório da Real Ordem dos Médicos da Grã-Bretanha
-dizia: O cigarro é atualmente responsável por tantas mortes como o foram as
-grandes epidemias de febre-tifóide, a cólera e a tuberculose, que tanto
-afetaram as gerações passadas deste país.
+In 1971, the report of the Royal Order of Doctors of Great Britain
+said: Cigarettes are currently responsible for as many deaths as the
+epidemics of typhoid fever, cholera and tuberculosis, which both
+have affected the past generations of this country.
 
-Estamos assistindo ao começo de uma das maiores catástrofes da história
-da medicina. Essa foi a opinião, no ano de 1973, de eminentes autoridades do
-Ministério da Saúde da Dinamarca, país onde a autópsia é obrigatória em todos
-os casos.
+We are witnessing the beginning of one of the greatest catastrophes in history
+medicine. This was the opinion, in 1973, of eminent authorities of the
+Ministry of Health of Denmark, country where autopsy is mandatory in all
+cases.
 
-Não há dúvida de que a nicotina é uma substância perigosa.
+There is no doubt that nicotine is a dangerous substance.
 
-Na primeira grande Conferência Mundial Sobre Fumo e Saúde, em setembro
-de 1967, na qual tomaram parte 34 países, a opinião geral era a de que a
-presumível ação da nicotina poderia relacionar a dependência do fumo com outras
-formas de dependência consideradas muito perigosas, como as da heroína e do
-álcool.
+At the first major World Conference on Smoking and Health in September
+1967, in which 34 countries took part, the general opinion was that the
+presumed nicotine action could relate smoking dependence with other
+forms of dependency considered to be very dangerous, such as heroin and heroin
+Alcohol.
 
-A possível explicação para o poder mortífero da nicotina é que ela pode
-atuar quimicamente de tal modo que, debilitando os órgãos, facilita a invasão
-de inúmeros agentes cancerígenos, de substâncias venenosas e de elementos
-poluidores dos pulmões, tudo isso através da fumaça dos cigarros.
+The possible explanation for the deadly power of nicotine is that it can
+chemically acting in such a way that, by weakening the organs, it facilitates the invasion of
+carcinogens, poisonous substances and elements
+polluters of the lungs, all through cigarette smoke.
 
-Os fumantes inveterados costumam dizer que isso é irrelevante, uma vez
-que todos teremos que morrer um dia; então a causa não importa muito.
+Inveterated smokers often say that this is irrelevant once
+that we will all have to die one day; then the cause doesn't matter much.
 
-Mas a realidade é que não morremos. Deixamos o corpo físico e não
-saímos da vida, podendo, dessa forma, contemplar o triste espetáculo dos afetos
-que deixamos por causa do vício.
+But the reality is we don't die. We leave the physical body and not
+we come out of life, thus being able to contemplate the sad spectacle of affections
+that we left because of the addiction.
 
-Qual pai ou mãe que, por pouco responsável que seja, não sentirá arder
-a consciência ao perceber os filhos na orfandade, sofrendo necessidades de toda
-ordem, por causa do suicídio provocado pelo vício do fumo?
+Which parent, however little responsible, will not feel burning
+awareness of perceiving children in orphanhood, suffering needs of all
+because of the suicide caused by smoking addiction?
 
                                    *   *   *
 
-Embora a maioria dos fumantes não faça a mínima idéia disso, a
-substância que inalam quando dão uma tragada, é um venenoso alcalóide, de
-fórmula química C10H14N2, e que está classificada farmacologicamente como uma
-substância tão letal para os nervos, que uma injeção de apenas uma gota pode
-provocar morte instantânea.
+Although most smokers have no idea of this, the
+substance that inhales when they give a fall, is a poisonous alkaloid, of
+chemical formula C10H14N2, and which is chemically classified as a
+substance so lethal to nerves that an injection of only one drop can
+cause instant death.
 
-O monóxido de carbono tem, na fumaça dos cigarros, uma concentração que
-é, pelo menos, mil vezes maior do que a considerada suportável na atmosfera.
+Carbon monoxide has, in cigarette smoke, a concentration that
+is at least a thousand times larger than that considered bearable in the atmosphere.
 
-Assim sendo, se você que fuma se importa com os filhos e outros afetos,
-não os faça passar pela dor provocada pelo suicídio voluntário e lento que é o
-hábito de fumar.
+So if you smoke care about your children and other affections,
+don't get them through the pain caused by voluntary and slow suicide that's the
+smoking habit.
 
 ## Source
 Redação do Momento Espírita, com base em artigo publicado

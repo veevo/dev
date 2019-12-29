@@ -87,7 +87,7 @@ wanted to put the will at the service of this force, they would be able to accom
 what, to this day, they called wonders and that, however, is nothing more than a
 development of human faculties.
 
- 
+
 ## Source
 [Momento Espirita](http://www.momento.com.br/pt/ler_texto.php?id=483)
 

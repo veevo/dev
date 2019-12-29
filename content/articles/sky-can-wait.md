@@ -8,78 +8,78 @@ topics:
 ---
  
 
-Por que os médicos hoje acreditam que a fé cura?
+Why do doctors today believe faith heals?
 
-Com esse título, a revista Seleções, de agosto de 2001, publicou uma matéria
-baseada em evidências clínicas de que a fé é eficiente aliada na recuperação de
-doentes e na prevenção de enfermidades.
+With this title, the magazine Seleções, from August 2001, published a
+based on clinical evidence that faith is efficient ally in the recovery of
+and in the prevention of diseases.
 
-Centenas de estudos e pesquisas documentam a ligação entre fé e saúde.
+Hundreds of studies and research document the link between faith and health.
 
-Segundo as estatísticas, a devoção promove vários efeitos positivos. Eis alguns
-deles:
+According to statistics, devotion promotes several positive effects. Here are some
+Them:
 
-1. Vida mais longa. Uma pesquisa realizada nos Estados Unidos com vinte e uma
-mil pessoas, entre 1987 e 1995, constatou uma diferença de sete anos na
-expectativa de vida entre aquelas que nunca frequentam cultos religiosos e as
-que os frequentam mais de uma vez por semana.
+1. Longer life. A survey conducted in the United States with twenty-one
+1,000 people, between 1987 and 1995, found a seven-year difference in
+life expectancy among those who never attend religious cults and
+who attend them more than once a week.
 
-2. Bem-estar geral. Em uma pesquisa codirigida pelo epidemiologista Jeff Levin,
-autor de God, faith, and health (Deus, fé e saúde), idosos que se consideravam
-religiosos tiveram menos problemas de saúde do que os não religiosos.
+2. General well-being. In a research co-directed by epidemiologist Jeff Levin,
+author of God, faith, and health, elderly who considered themselves
+had fewer health problems than non-religious ones.
 
-3. Melhor recuperação. Pacientes confortados pela fé apresentaram
-probabilidades três vezes maior de sobrevivência, após cirurgias cardíacas
-abertas, segundo estudo de 1995, da Faculdade de Medicina de Dartmouth.
+3. Better recovery. Patients comforted by faith presented
+three times higher probabilities of survival after cardiac surgeries
+according to a 1995 study by dartmouth school of medicine.
 
-4. Batimentos mais firmes. Em um estudo feito na Índia, em 1997, os
-participantes, em sua maioria hindus, que rezavam regularmente tinham setenta
-por cento menos chance de sofrer de doença coronariana.
+4. Firmer heartbeats. In a study conducted in India in 1997,
+participants, mostly Hindus, who prayed regularly had seventy
+percent less chance of suffering from coronary heart disease.
 
-5. Pressão mais baixa. Em um estudo de 1989 realizado com quatrocentos homens,
-pesquisadores da Duke University observaram um significativo efeito protetor
-contra a pressão alta entre aqueles que consideravam a religião muito
-importante e frequentavam a igreja.
+5. Lower pressure. In a 1989 study conducted with four hundred men,
+researchers at Duke University observed a significant protective effect
+against high pressure among those who considered religion very
+important and attended the church.
 
-6. Boa saúde mental. Frequentar locais de devoção tem relação com taxas menores
-de depressão e ansiedade, segundo uma pesquisa de 1999 da Duke University, que
-incluiu quase quatro mil idosos.
+6. Good mental health. Attending places of devotion is related to lower rates
+depression and anxiety, according to a 1999 survey by Duke University, which
+included almost 4,000 seniors.
 
-7. Menos estresse. Pessoas sob estresse apresentam aumento da pressão arterial
-e das frequências cardíaca e respiratória, reduzindo a imunidade, segundo o Dr.
-Herbert Benson, de Harvard, autor de A resposta do relaxamento.
+7. Less stress. People under stress have increased blood pressure
+and heart and respiratory rates, reducing immunity, according to Dr.
+Herbert Benson of Harvard, author of The Relaxation Response.
 
-Ele constatou, em várias pesquisas, que tanto a meditação como a oração, o Tai
-chi chuan e a Ioga provocam uma reação oposta ao estresse.
+He found, in several research, that both meditation and prayer, Tai
+chi chuan and Yoga provoke an opposite reaction to stress.
 
 *   *   *
 
-Como podemos perceber, segundo as pesquisas médicas, a fé contribui de forma
-eficiente no tratamento do ser humano, não só com relação às enfermidades
-físicas, mas também às da alma.
+As we can see, according to medical research, faith contributes in a
+efficient in the treatment of human beings, not only in relation to diseases
+physical, but also those of the soul.
 
-Evidente que a mente é o verdadeiro agente da saúde ou da doença pois é a
-grande governadora do corpo.
+It is evident that the mind is the real agent of health or disease because it is the
+great governor of the body.
 
-E a ciência é a grande benfeitora da Humanidade, descobrindo as doenças e
-promovendo a cura, agora também admitindo que há um componente importante no
-tratamento e na profilaxia das enfermidades: a fé.
+And science is humanity's great benefactor, discovering diseases and
+promoting healing, now also admitting that there is an important component in the
+treatment and prophylaxis of diseases: faith.
 
-Einstein, um dos cientistas mais respeitados que o mundo conheceu, afirmou que
-deveria existir uma aliança entre a ciência e a religião.
+Einstein, one of the most respected scientists the world has known, said that
+there should be an alliance between science and religion.
 
-Segundo ele, a ciência sem a religião é paralítica - a religião sem a ciência é
-cega.
+According to him, science without religion is paralytic - religion without science is
+Blind.
 
-Quando os cientistas modernos conseguirem transpor o precipício cultural criado
-ao longo do tempo entre a fé e a ciência, sem dúvida, essa aproximação irá
-beneficiar a toda a Humanidade.
+When modern scientists manage to cross the cultural precipice created
+over time between faith and science, undoubtedly this approximation will
+benefit all mankind.
 
 *   *   *
 
-A fé tem a função essencial de oferecer forças para solucionar problemas ao
-invés de afastá-los ou liberar o crente dos testemunhos necessários para a sua
-evolução. 
+Faith has the essential function of providing strength to solve problems for the
+rather than push ing them away or free the believer from the testimonies necessary for his
+Evolution. 
 
 ## Source
 Redação do Momento Espírita com base no artigo Por que os médicos hoje

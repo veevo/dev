@@ -7,75 +7,75 @@ topics:
 - mother
 ---
 
-Ao fazer um balanço de sua existência, e ser questionado sobre que mensagem
-deixaria para a Índia, o grande Mohandas Gandhi afirmou: Minha vida é minha
-mensagem.
+When taking stock of its existence, and be asked about what message
+would leave for India, the great Mohandas Gandhi said: My life is mine
+Message.
 
-O grande pacifista não escolheu palavras, não escolheu lições, não escolheu
-fórmulas. Deixou seu exemplo, seus passos, sua vida.
+The great pacifist chose no words, did not choose lessons, did not choose
+Formulas. You left your example, your steps, your life.
 
-Os exemplos são mais fortes do que dizeres, são mais fortes do que escritos e
-do que receitas.
+The examples are stronger than saying, they are stronger than written and
+than recipes.
 
-Quando alguém é capaz de viver sua própria mensagem, ele se torna mensageiro e
-mensagem ao mesmo tempo. Ele se torna força e fortaleza simultaneamente.
+When someone is able to live his own message, he becomes messenger and
+message at the same time. It becomes strength and fortress simultaneously.
 
-Deixar a vida como mensagem é seguir o caminho da consciência em paz que, ao
-fim do dia, com segurança, sem subterfúgio algum, pode dizer que não deve nada
-a ninguém.
+Leaving life as a message is to follow the path of consciousness in peace that, at the
+end of the day, safely, without any subterfuge, can say that it should not
+to no one.
 
-A vida como mensagem ainda vai além do não dever. Ela alcança também a esfera
-da afirmação: Fiz tudo que estava ao meu alcance.
+Life as a message still goes beyond duty. It also reaches the sphere
+of the statement: I did everything in my power.
 
-A ação faz-se necessária para que cresçamos. Não basta não fazer o mal. É
-preciso fazer o bem, amar, aparar arestas, reforçar os laços, emitir luz para
-todos os lados.
+The action is necessary for us to grow. It's not enough not to do wrong. Right
+need to do good, love, trim edges, strengthen ties, emit light to
+all sides.
 
-Pais e mães devem se esforçar ao máximo para serem mensagens vivas para seus
-filhos. Isso não requer perfeição, pois ainda não está ao nosso alcance. Requer
-apenas atenção aos passos, seriedade nos compromissos, observação dos erros,
-para que com eles se aprenda.
+Fathers and mothers should make every effort to be live messages for their
+Children. That doesn't require perfection, because it's not within our reach yet. Requires
+only attention to the steps, seriousness in commitments, error observation,
+so that they may learn from them.
 
-Pessoas que têm certa visibilidade no mundo, artistas, políticos, líderes,
-todos esses precisam estar atentos à fala de Gandhi.
+People who have some visibility in the world, artists, politicians, leaders,
+all of these need to be attentive to Gandhi's speech.
 
-Todos trouxeram o compromisso com multidões, pois suas ações, suas palavras,
-sua maneira de viver são copiados por muitos.
+All brought the commitment to multitudes, for their actions, their words,
+their way of living are copied by many.
 
-Mesmo em esferas menores, por vezes, somos referência para muitos que percebem
-nosso exemplo, que notam nossos valores, e vão reparar se o que falamos é
-diferente daquilo que vivemos.
+Even in smaller spheres, sometimes we are a reference for many who perceive
+our example, which notice our values, and will notice if what we say is
+different from what we live.
 
-Se em todo trabalho de Gandhi na África do Sul e depois na Índia, ele tivesse
-se exaltado uma só vez, tivesse utilizado de violência em uma única
-oportunidade, toda sua mensagem estaria comprometida.
+If in all of Gandhi's work in South Africa and then in India, he had
+if exalted once, had used violence in a single
+opportunity, your whole message would be compromised.
 
-Porém, isso não ocorreu. Ele foi capaz de levar socos e sofrer violências
-morais sem necessitar de revide. Ele ofereceu a outra face em todos os
-momentos, lembrando um outro grande Mestre que também fez de Sua vida Sua
-mensagem.
+However, this did not occur. He was able to take punches and suffer violence
+without requiring review. He offered the other face in all
+moments, remembering another great Master who also made His life His
+Message.
 
-Jesus, ao contrário do que muitos falam, não morreu para nos salvar. Ele viveu
-para nos dar o roteiro de salvação para nossas vidas.
+Jesus, contrary to what many speak, did not die to save us. He lived
+to give us the roadmap of salvation for our lives.
 
-Sim, Seu exemplo é o grande roteiro que nos deixou, sua grande mensagem, a
-ponto do homem que deseja se transformar em verdadeiro agente do bem se
-autoinquirir diariamente:
+Yes, His example is the great script that left us, his great message, the
+point of the man who wishes to turn into true agent of good if
+self-inquiring on a daily basis:
 
-O que Jesus faria em meu lugar? O que Ele faria nesta mesma situação?
+What would Jesus do in my place? What would He do in this same situation?
 
-As respostas não são fáceis e simples, é claro, mas a pergunta, por si só, é
-poderosa, e é meio caminho da jornada.
+The answers are not easy and simple, of course, but the question alone is
+powerful, and it's halfway to the journey.
 
                                    *   *   *
 
-Seja a mudança que você quer ver no mundo. – Disse, um dia, o grande libertador
-da Índia.
+Be the change you want to see in the world. " Said one day the great liberator
+from India.
 
-Se desejamos ver o mundo transformado, comecemos conosco esta mudança.
+If we want to see the transformed world, let us start with us this change.
 
-Como estamos? Melhor que ontem? Preparados para a Nova Era? Dispostos a ser
-homens de bem?
+How are we doing? Better than yesterday? Ready for the New Age? Willing to be
+good men?
 
 
 ## Source

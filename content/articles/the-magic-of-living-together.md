@@ -10,75 +10,75 @@ topics:
 - mother
 ---
 
-Na atualidade, vivemos um tanto distantes uns dos outros. Pode soar paradoxal,
-mas quando temos tantas formas de comunicação, em tempo real, andamos muito
-distanciados.
+Nowadays, we live somewhat distant from each other. It may sound paradoxical,
+but when we have so many forms of communication, in real time, we walk a lot
+Apart.
 
-Em se falando das crianças, por exemplo, constatamos que a maioria delas usa
-tanto a internet que mal tem tempo para brincar.
+Speaking of children, for example, we find that most of them use
+so much the internet that you barely have time to play.
 
-Os menores dizem que usam o celular até mesmo durante as refeições ou em outros
-momentos familiares.
+Minors say they use their cell phone even during meals or other
+family moments.
 
-Exatamente naqueles períodos quando todos poderiam esquecer um pouco os
-celulares para uma saudável conversa olho no olho.
+Exactly in those periods when everyone could forget a little bit the
+cell phones for a healthy eye-to-eye conversation.
 
-Buscando o equilíbrio no uso da tecnologia para melhorar os relacionamentos
-familiares, algumas instituições religiosas se reuniram para uma ação conjunta.
+Seeking balance in the use of technology to improve relationships
+some religious institutions have gathered for joint action.
 
-Num encontro com participantes de variadas idades, uma educadora e também
-contadora de histórias abordou o tema, de tal forma inteligente, que a todos
-envolveu.
+In a meeting with participants of various ages, an educator and also
+storyteller addressed the theme, so intelligently, that everyone
+Involved.
 
-Depois, ela propôs a divisão em duplas para que um falasse ao outro a respeito
-de si mesmo.
+Then she proposed splitting into pairs so that one would speak to each other about
+of himself.
 
-Foi aí que surgiram maravilhosas descobertas.
+That's when wonderful discoveries came up.
 
-Uma mãe narrou, encantada, que acabara de descobrir verdadeiros segredos de sua
-filha adolescente. Coisas que ela nunca havia lhe contado antes.
+A mother narrated, delighted, who had just discovered true secrets of her
+teenage daughter. Things she's never told you before.
 
-Por sua vez, a garota se dizia feliz por ter sabido coisas muito interessantes
-sobre a vida da sua mãe. E o que a espantou foi descobrir que sua mãe adorava
-dançar, como ela própria.
+In turn, the girl said she was happy to have known very interesting things
+about your mother's life. And what amazed her was to find out that her mother loved it
+dance, like herself.
 
-Uma garotinha de sete anos descobriu que o prato predileto de sua prima, com
-quem costuma brincar, diariamente, é lasanha. Como nunca soubera disso?
+A seven-year-old girl discovered that her cousin's favorite dish, with
+who usually plays, daily, is lasagna. How come I never knew that?
 
-Agora, quando ela fosse brincar na sua casa, ela pediria para sua mãe
-providenciar aquele prato para a prima.
+Now, when she went to play at her house, she would ask her mother
+provide that dish to the cousin.
 
-Duas adolescentes, que se conheciam, de longe, por frequentarem a mesma escola,
-se surpreenderam, ao se descobrirem ali, adeptas da mesma religião.
+Two teenagers, who knew each other by far for attending the same school,
+they were surprised, when they discovered themselves there, adherents of the same religion.
 
-E, na conversa, se deram conta de que tinham medos em comum, gostavam das
-mesmas músicas e do mesmo gênero de filmes.
+And in the conversation, they realized that they had fears in common, liked the
+same songs and the same genre of films.
 
-Bonito mesmo foi testemunhar uma dupla de uma senhora de terceira idade e um
-garotinho de oito anos. Ele ficou muito interessado ao saber que ela havia
-nascido no mesmo país do seu avô. E fez muitas, muitas perguntas.
+Beautiful even went to witness a duo of a elderly lady and a
+eight-year-old boy. He became very interested to learn that she had
+born in the same country as his grandfather. And he asked a lot, a lot of questions.
 
-E assim foram descobertas e mais descobertas durante aquelas três horas de
-programação. Foi uma clara demonstração de que a convivência com o outro pode
-reservar lindas surpresas.
+And so were discovered and more discovered during those three hours of
+Programming. It was a clear demonstration that living with the other can
+book beautiful surprises.
 
-Por fim, deixou claro que se pudermos ficar algum tempo sem consultar o celular
-poderemos ter uma conexão bem mais profunda e real com outras pessoas.
+Finally, it made it clear that if we could stay some time without consulting the cell phone
+we may have a much deeper and more real connection with other people.
 
-E esse contato poderá nos revelar riquezas pessoais dos que vivem em nosso
-entorno.
+And this contact may reveal to us the personal riches of those who live in our
+Environment.
 
-Pessoas com as quais estamos todos os dias, lado a lado, mas, habitualmente,
-não conversamos, não trocamos ideias, não nos revelamos mutuamente.
+People we're with every day, side by side, but usually
+we don't talk, we don't exchange ideas, we don't reveal ourselves mutually.
 
-Fica aí a sugestão. Que tal, neste novo ano que ainda está despertando, nos
-propormos a algumas pausas na tecnologia, nos desligarmos em certos momentos do
-celular, olhar para o lado e dizer: Oi, tudo bem com você?
+There's the suggestion. How about, in this new year that is still awakening, in the
+propose to some pauses in technology, turn off at certain times of the
+cell phone, look sideways and say, Hi, all right with you?
 
-Será somente o início da redescoberta da alegria de falarmos olhando um no olho
-do outro, apertando a mão, trocando abraços.
+It will only be the beginning of the joy of speaking looking one in the eye
+of the other, shaking hands, exchanging hugs.
 
-A magia do convívio.
+The magic of conviviality.
 
 ## Source
 Redação do Momento Espírita, com base no artigo

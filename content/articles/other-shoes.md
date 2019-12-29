@@ -7,77 +7,77 @@ topics:
 - child
 ---
 
-Os países de língua inglesa usam um termo muito interessante para explicar a
-empatia: colocar seus pés nos sapatos dos outros.
+English-speaking countries use a very interesting term to explain the
+Empathy: put your feet in other people's shoes.
 
-Trata-se de um exercício difícil, num primeiro momento, mas, que depois de
-aprendido, torna-se grande aliado para melhorar as nossas relações com o
-próximo.
+This is a difficult exercise at first, but that after
+learned, becomes a great ally to improve our relations with the
+Next.
 
-Essa técnica envolve a capacidade de suspender provisoriamente a insistência no
-próprio ponto de vista, e encarar a situação a partir da perspectiva do outro.
+This technique involves the ability to provisionally suspend the insistence on the
+from the perspective of the other.
 
-Significa imaginar qual seria a situação caso se estivesse no seu lugar, como
-se lidaria com o fato.
+It means imagining what the situation would be if it were in its place, as
+would deal with the fact.
 
-Isso ajuda a desenvolver uma conscientização dos sentimentos do outro e um
-respeito por eles, o que é um importante fator para a redução de conflitos e
-problemas nas relações.
+This helps to develop an awareness of each other's feelings and a
+respect for them, which is an important factor for reducing conflicts and
+problems in relationships.
 
-Só vestindo o calçado do outro saberemos se ele é apertado ou não, se machuca
-aqui ou ali, e assim poderemos compreender e tomar atitudes mais eficazes para
-consolar e ajudar.
+Just wearing each other's shoes we'll know if it's tight or not, if it hurts
+here or there, and so we can understand and take more effective attitudes towards
+console and help.
 
-Quem tem a habilidade da empatia consegue desenvolver a compaixão e estender as
-mãos para auxiliar.
+Those who have the ability of empathy can develop compassion and extend the
+hands to assist.
 
-Para que alguém esteja apto a, verdadeiramente, consolar alguém, é
-indispensável ter a percepção ou mesmo a compreensão do que está sofrendo
-aquele que busca ou aguarda consolação.
+In order for someone to be able to truly comfort someone, it is
+indispensable to have the perception or even understanding of what is suffering
+the one who seeks or awaits consolation.
 
-Quem tem o comportamento empático compreende melhor, e julga menos, ou julga
-com menos severidade.
+Who has empathic behavior understands better, and judges less, or judges
+with less severity.
 
-Quem usa a empatia entende as razões do outro e consegue suavizar o ódio, o
-rancor, o ressentimento, preparando-se melhor para o perdão.
+Those who use empathy understand each other's reasons and can soften hatred, the
+resentment, resentment, preparing better for forgiveness.
 
-A empatia ou a falta dela pode determinar se um lar viverá em constante guerra
-ou harmonia.
+Empathy or lack thereof can determine whether a home will live in constant war
+or harmony.
 
-Os pais precisam da empatia na educação dos filhos, colocando-se em seu lugar
-constantemente – evitando as broncas desnecessárias, os comportamentos
-distanciadores e a falta de contato com as emoções das crianças.
+Parents need empathy in their children's education, putting themselves in their place
+constantly – avoiding unnecessary scolding, behaviour
+distancers and lack of contact with children's emotions.
 
-Os filhos devem usar de empatia com os pais, percebendo e entendendo suas
-preocupações, suas dúvidas, suas inseguranças, e sua vontade de sempre acertar
-e de fazer o melhor para seus rebentos.
+Children should use empathy with their parents, realizing and understanding their
+concerns, your doubts, your insecurities, and your will to always get right
+and to do the best for your sprouts.
 
-A esposa precisa colocar-se no lugar do marido, o marido no lugar da esposa.
-Ambos precisam conhecer o mundo do outro, suas angústias, suas dificuldades e o
-que lhe dá alegria.
+The wife needs to put herself in the shoes of her husband, her husband in the place of his wife.
+Both need to know the world of the other, their anguish, their difficulties and the
+that gives you joy.
 
-Puxa... Que dia terrível você teve hoje! Vou tentar ajudá-lo fazendo uma
-comidinha bem gostosa para nós dois. Assim esquecemos um pouco dos problemas.
+Pulls... What a terrible day you had today! I'll try to help you by doing a
+eaten very hot for both of us. So we forgot a little bit of the problems.
 
-Eis o exemplo de um gesto simples, mas precioso, de empatia.
+Here is the example of a simple but precious gesture of empathy.
 
-Ainda outro:
+Yet another:
 
-Que trabalheira você tem em casa, meu amor... Acho que você precisa sair um
-pouco para espairecer, não é? Vamos sair só nós dois para jantar?
+What a hassle you have at home, my love... I think you need to get out a
+little to swindle, isn't it? Are we just going out for dinner?
 
-A criatividade voltada para o bem nos dará tantas e tantas ideias de como
-realizar esse processo empático, indispensável para a sobrevivência dos lares.
+Creativity focused on good will give us so many ideas of how
+this empathic process, indispensable for the survival of homes.
 
-Se desejamos harmonia e melhoria nas relações, temos que passar pela empatia,
-indubitavelmente.
+If we want harmony and improvement in relationships, we have to go through empathy,
+Undoubtedly.
 
 *  *  *
 
-Experimentemos usar o sapato do outro. Experimentemos o mundo a partir do ponto
-de vista do outro. Saiamos do egocentrismo destruidor ainda hoje.
+Let's try using each other's shoes. Let's experience the world from the point
+of view of the other. Let's get out of destructive self-centeredness even today.
 
-Empatia... Sempre. 
+Empathy... All the time. 
 
 ## Source
 Redação do Momento Espírita, com citação do cap. 18, do

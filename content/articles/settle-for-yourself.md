@@ -12,88 +12,88 @@ topics:
 - family
 ---
 
-Em sua Epístola aos filipenses, Paulo de Tarso afirmou já ter aprendido a se
-contentar com o que tinha.
+In his Epistle to the Philippians, Paul de Tarsus claimed to have already learned to
+to settle for what i had.
 
-Trata-se de uma reflexão interessante e muito atual.
+This is an interesting and very current reflection.
 
-A vertigem da posse avassala a maioria das criaturas da Terra.
+The vertigo of possession overwhelms most of the creatures on Earth.
 
-Homens e mulheres perdem a paz e, muitas vezes, a dignidade, na busca de
-riquezas.
+Men and women lose peace and often dignity in the search for
+Riches.
 
-Multiplicam suas atividades, para muito além do necessário, a fim de possuir
-muitas coisas.
+They multiply their activities, far beyond what is necessary, in order to have
+many things.
 
-Com tal proceder, deixam de prestar atenção em questões graves da existência
-humana.
+As such a matter of doing so, they no longer pay attention to serious issues of the existence of
+Human.
 
-Para ter mais e mais, abdicam do convívio com amigos e familiares e se deixam
-tomar pelo egoísmo.
+To have more and more, give up the conviviality with friends and family and leave
+take by selfishness.
 
-A vida simples constitui uma condição da felicidade relativa que o planeta pode
-oferecer.
+Simple life is a condition of relative happiness that the planet can
+Offer.
 
-Contudo, ela foi esquecida por grande parte dos homens.
+However, she was forgotten by most of the men.
 
-A Espiritualidade informa que a esmagadora maioria das súplicas que partem da
-Terra não se alça a planos superiores.
+Spirituality informs that the overwhelming majority of the supplications that start from the
+Earth is not elevated to higher planes.
 
-Elas não conseguem avançar além de seu acanhado âmbito de origem.
+They can't move beyond their cramped scope of origin.
 
-Isso porque os pleitos dirigidos à Divindade costumam conter estranhos
-absurdos.
+That's because the claims directed at divinity often contain strangers
+Absurd.
 
-Raras pessoas se contentam com o material recebido para a solução de suas
-necessidades.
+Rare people are content with the material received for the solution of their
+Needs.
 
-Raríssimas pedem apenas o pão de cada dia, como símbolo das aquisições
-materiais indispensáveis.
+Very rare ask only for the bread of each day, as a symbol of acquisitions
+indispensable materials.
 
-O homem incoerente não procura saber se possui o menos para a vida terrena.
+The incoherent man does not seek to know if he has the least for the terrena life.
 
-Ele costuma andar ansioso pelo mais nas possibilidades transitórias.
+He often is looking forward to more in the transitory possibilities.
 
-Geralmente, permanece absorvido pelos interesses perecíveis.
+Generally, it remains absorbed by perishable interests.
 
-Insaciado, inquieto, vive sob o tormento angustioso de desmedida ambição.
+Insane, restless, lives under the anguished torment of unmeasured ambition.
 
-Na corrida louca para o imediatismo, esquece a oportunidade que lhe pertence.
+In the crazy race for immediacy, forget about the opportunity that belongs to you.
 
-Desvaloriza e considera pouco o que a Sabedoria Divina lhe depositou nas mãos.
+It devalues and considers little what Divine Wisdom has placed in your hands.
 
-Olvida que renasceu para se pacificar e tornar virtuoso, e não para amontoar
-coisas que deixará ao morrer.
+Olvida who was reborn to pacify and become virtuous, not to pile up
+things you'll leave when you die.
 
-Com isso, atira-se em aventuras de consequências imprevisíveis, em face de seu
-futuro infinito.
+With this, he throws himself into adventures of unpredictable consequences, in the face of his
+infinite future.
 
-Quem já entende a finalidade superior da existência terrena, precisa se
-esforçar para sair desse círculo vicioso.
+Those who already understand the superior purpose of earthly existence need to be
+strive to get out of this vicious circle.
 
-De nada adianta gastar todas as energias em questões transitórias, com
-esquecimento do objetivo essencial da vida humana.
+It is of no use spending all energies on transitional issues, with
+forgetfulness of the essential objective of human life.
 
-Cedo ou tarde, a morte de forma simples e clara revela a cada um o que é de
-fato importante.
+Sooner or later, death in a simple and clear way reveals to each one what is of
+important fact.
 
-Para não se arrepender amargamente, importa analisar a essência dos próprios
-desejos.
+In order not to repent bitterly, it is important to analyze the essence of the
+Wishes.
 
-Faz sentido arder de cobiça pelo que ficará em suas mãos por reduzidos
-instantes?
+Makes sense to burn with greed for what will be in your hands by reduced
+Moments?
 
-Não é melhor libertar-se de tanto apego e prestar atenção em questões mais
-importantes, como a família, os amigos e as dores que pode amenizar?
+It is not better to free yourself from so much attachment and pay attention to more
+such as family, friends and the pains you can ease?
 
-Há muitos séculos, Paulo de Tarso iluminou-se ao aprender a contentar-se com o
-que tinha.
+Many centuries ago, Paul of Tarsus lit up as he learned to settle for the
+that had.
 
-Ninguém fará essa lição por você.
+No one will do that lesson for you.
 
-Pense nisso.
+Think about it.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. 29, do livro Caminho,

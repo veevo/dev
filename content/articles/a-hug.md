@@ -11,85 +11,85 @@ topics:
 - love
 ---
 
-O que você faz quando está com dor de cabeça, ou quando está chateado?
+What do you do when you have a headache, or when you're upset?
 
-Será que existe algum remédio para aliviar a maioria dos problemas físicos e
-emocionais?
+Is there any remedy to alleviate most physical problems and
+Emotional?
 
-Pois é, durante muito tempo estivemos à procura de alguma coisa que nos
-rejuvenescesse, que prolongasse nosso bom humor, que nos protegesse contra
-doenças, que curasse nossa depressão e que nos aliviasse o estresse.
+yes, for a long time we've been looking for something that
+rejuvenating, which prolonged our good mood, that protected us against
+diseases, which cured our depression and that would relieve us stress.
 
-Sim, alguma coisa que fortalecesse nossos laços afetivos e que, inclusive, nos
-ajudasse a adormecer tranquilos.
+Yes, something that strengthened our affective bonds and that even in the
+help to fall asleep peacefully.
 
-Encontramos! O remédio já havia sido descoberto e estava à nossa disposição. O
-mais impressionante de tudo é que não custa nada.
+Found! The medicine had already been discovered and was at our disposal. The
+most impressive of all is that it costs nothing.
 
-Aliás, custa sim, custa abrir mão de um pouco de orgulho, um pouco de pretensão
-de ser autossuficiente, um pouco de vontade de viver do jeito que queremos, sem
-depender dos outros.
+By the way, it costs yes, it's hard to give up a little pride, a little pretense
+to be self-sufficient, a little willingness to live the way we want, without
+depend on others.
 
-É o abraço. O abraço é milagroso. É medicina realmente muito forte. O abraço,
-como sinal de afetividade e de carinho, pode nos ajudar a viver mais tempo,
-proteger-nos contra doenças, curar a depressão, fortificar os laços afetivos.
+It's the hug. The hug is miraculous. It's really very strong medicine. The hug,
+as a sign of affection and affection, it can help us live longer,
+protect us from diseases, cure depression, fortify affective ties.
 
-O abraço é um excelente tônico. Hoje, sabemos que a pessoa deprimida é bem mais
-suscetível a doenças. O abraço diminui a depressão e revigora o sistema
-imunológico.
+The hug is an excellent tonic. Today, we know that the depressed person is much more
+susceptible to diseases. The embrace decreases depression and reinvigorates the system
+Immune.
 
-O abraço injeta nova vida nos corpos cansados e fatigados, e a pessoa abraçada
-sente-se mais jovem e vibrante. O uso regular do abraço prolonga a vida e
-estimula a vontade de viver.
+Embrace injects new life into tired and fatigued bodies, and the person embraced
+feels younger and more vibrant. Regular use of the embrace prolongs life and
+stimulates the will to live.
 
-Ouvimos, há algum tempo, a teoria muito interessante de uma psicóloga
-americana, dizendo que se precisa de quatro abraços por dia para sobreviver,
-oito abraços para manter-se vivo e doze abraços por dia para prosperar.
+We've heard, some time ago, a psychologist's very interesting theory
+american, saying that if you need four hugs a day to survive,
+eight hugs to stay alive and twelve hugs a day to thrive.
 
-E o mais bonito é que esse remédio não tem contraindicação e não há maneira de
-dá-lo sem ganhá-lo de volta.
+And the most beautiful thing is that this remedy has no contraindication and there is no way to
+give it without winning it back.
 
                                    *   *   *
 
-Temos visto, colado nos vidros de alguns veículos, um adesivo muito simpático,
-dizendo: Abrace mais!
+We've seen, glued to the glasses of some vehicles, a very nice sticker,
+saying: Embrace more!
 
-Eis uma proposta nobre: Abraçar mais.
+Here's a noble proposal: Embrace more.
 
-O contato físico do abraço se faz necessário para que as trocas de energias se
-deem, e para que a afetividade entre duas pessoas seja constantemente
-revitalizada.
+The physical contact of the embrace is necessary for energy exchanges to be
+and so that affection between two people is constantly
+Revitalized.
 
-O abraçar mais é um excelente começo para aqueles de nós que nos percebemos um
-tanto afastados das pessoas, um tanto frios no trato com os outros.
+The embrace more is an excellent start for those of us who perceive ourselves a
+both away from people, somewhat cold in dealing with others.
 
-Só quem já deu ou recebeu um sincero abraço sabe o quanto este gesto,
-aparentemente simples, consegue dizer.
+Only those who have given or received a sincere hug know how much this gesture,
+apparently simple, can tell.
 
-Muitos pedidos de perdão foram traduzidos em abraços...
+Many requests for forgiveness have been translated into hugs...
 
-Muitos dizeres eu te amo foram convertidos em abraços.
+Many say I love you have been converted into hugs.
 
-Muitos sentimentos de saudade foram calados por abraços.
+Many feelings of longing were silenced by hugs.
 
-Muitas despedidas emocionadas selaram um amor sem fim no aconchego de um
-abraço.
+Many emotional farewells sealed an endless love in the warmth of a
+Hug.
 
-Assim, convidamos você a abraçar mais.
+So we invite you to embrace more.
 
-Doe seu abraço apertado para alguém, e receba imediatamente a volta desse ato
-carinhoso.
+Donate your tight hug to someone, and immediately get the return of that act
+Affectionate.
 
-Utilize a terapia do abraço contra a tristeza e a depressão.
+Use hug therapy against sadness and depression.
 
-Abrace, afetuosamente, a quem você ama e transmita as emoções desse seu
-sentimento.
+Embrace, affectionately, to whom you love and transmit the emotions of this of your
+Feeling.
 
-Abrace e transmita bem-estar, paz.
+Embrace and convey well-being, peace.
 
-Pense nisso! Abrace mais você também.
+Think about it! Embrace you more too.
 
- 
+
 ## Source
 Redação do Momento Espírita, com base em palestras
 de Alberto Almeida, nos dias 29, 30 e 31 de março

@@ -11,88 +11,88 @@ topics:
 - prayer
 ---
 
-“Jovem fumante tem cinco vezes mais risco de infarto, diz estudo.
+"Young smoker has five times more risk of heart attack, study says.
 
-As pessoas com menos de 40 anos têm uma probabilidade cinco vezes maior de 
-sofrer um ataque cardíaco se elas fumarem, segundo um novo estudo.
+People under 40 are five times more likely to 
+heart attack if they smoke, according to a new study.
 
-A equipe internacional de pesquisadores disse que suas conclusões refutam a 
-idéia de que apenas fumantes mais velhos correm o risco de doenças cardíacas.
+The international team of researchers said their findings refute the 
+idea that only older smokers run the risk of heart disease.
 
-O estudo, baseado em dados da Organização Mundial da Saúde (OMS), apurados com 
-pessoas entre 22 e 64 anos de 21 países, foi publicado na revista tobacco
+The study, based on data from the World Health Organization (WHO), determined with 
+people between 22 and 64 years of 21 countries, was published in the journal tobacco
 control.
 
-A fundação britânica do coração afirmou que o trabalho funciona como um ´
-profundo alerta para jovens fumantes.
+The British Heart Foundation has stated that work works as a
+deep alert for young smokers.
 
-Os pesquisadores de centros na Europa, China, Austrália, Nova Zelândia e
-América do Norte, analisaram problemas ligados ao coração, que não levaram à 
-morte, ocorridos entre 1985 e 1994.
+Researchers from centres in Europe, China, Australia, New Zealand and
+North America, analyzed problems linked to the heart, which did not lead to the 
+death, which occurred between 1985 and 1994.
 
-Foram revisados quase 23 mil casos e constatou-se que quatro em cada cinco 
-vítimas entre 35 e 39 anos eram fumantes.
+Almost 23,000 cases were reviewed and it was found that four out of five cases were 
+victims between 35 and 39 years were smokers.
 
-Homens com idades entre 35 e 39 anos que fumavam tinham uma probabilidade cinco
-vezes maior de ter um ataque cardíaco do que os não fumantes.
+Men aged 35 to 39 who smoked had a five probability
+times greater than having a heart attack than nonsmokers.
 
-O impacto foi ainda maior entre mulheres fumantes da mesma faixa etária. Para 
-elas, a probabilidade de doenças cardíacas é ainda maior do que cinco vezes.
+The impact was even greater among smoking women of the same age group. To 
+they, the probability of heart disease is even greater than five times.
 
-O fumo é responsável por quase 65% dos ataques cardíacos não-fatais entre 
-homens, e por cerca de 55% entre mulheres na faixa de 35 a 39 anos.
+Smoking accounts for almost 65% of non-fatal heart attacks between 
+men, and by about 55% among women aged 35 to 39 years.
 
-Os riscos para fumantes na faixa de 60 a 64 anos são menores porque há outros 
-fatores que contribuem para possíveis problemas cardíacos.
+Risks for smokers in the range of 60 to 64 years are lower because there are other 
+factors that contribute to possible heart problems.
 
-Mas os pesquisadores constataram que o fumo ainda representa um risco elevado 
-para mulheres mais velhas se comparado aos homens.
+But the researchers found that smoking still poses a high risk 
+for older women compared to men.
 
-Eles acreditam que as mulheres são mais sensíveis aos efeitos do tabagismo.”
+They believe that women are more sensitive to the effects of smoking."
 
-Essas informações foram publicadas pela BBC-Brasil em 24 de agosto, 2004.
+This information was published by BBC-Brazil on 24 August 2004.
 
-É lamentável que todas essas informações, bem fundamentadas por especialistas, 
-não surtam os efeitos que deveriam junto à juventude.
+It is regrettable that all this information, well founded by experts, 
+the effects they should have on youth do not arise.
 
-Nossos jovens continuam aderindo a esse veneno livre e destruindo suas vidas.
+Our young people continue to adhere to this free poison and destroy their lives.
 
-Em outros tempos, quando não existiam meios de se comprovar os danos causados 
-pelo cigarro, tinha-se a atenuante da ignorância, mas em pleno século XXI não
-tem desculpas.
+At other times, when there was no means of proving the damage caused by 
+by cigarette, there was a mitigating of ignorance, but in the middle of the 21st century there was no
+has excuses.
 
-Quando Hollywood exibia nas telas do cinema os “mocinhos” sempre com um cigarro
-entre os dedos, podíamos entender que muitos jovens se deixassem levar por essa
-onda destrutiva.
+When Hollywood aired on movie screens the "good guys" always with a cigarette
+between our fingers, we could understand that many young people would be carried away by this
+destructive wave.
 
-Mas hoje em dia, quando muitos dos mocinhos do cinema já foram derrotados pelo 
-cigarro e outros vícios, não tem cabimento que os jovens continuem se
-envenenando lentamente.
+But nowadays, when many of the good guys in the cinema have already been defeated by the 
+cigarettes and other vices, it is not appropriate for young people to continue to
+slowly poisoning.
 
-Hoje em dia já se sabe que as cenas de heroísmo exibidas pela sétima arte não 
-são gravadas pelos mocinhos, e sim por profissionais que os substituem, os
-chamados dublês.
+Nowadays it is already known that the scenes of heroism displayed by the seventh art do not 
+are recorded by the good guys, but rather by professionals who replace them, the
+called stuntmen.
 
-Nem na ficção esses atores, tidos como heróis, o são de fato.
+Even in fiction these actors, regarded as heroes, are indeed.
 
-Por tudo isso vale a pena refletir sobre que razões levam os jovens a se 
-entregar a esse vício tão cruel e devastador de vidas.
+For all this it is worth reflecting on what reasons young people are 
+deliver to this cruel and devastating addiction of lives.
 
-Será em nome da liberdade? Ou será para provar que são mais homens ou mais 
-mulheres?
+Is it in the name of freedom? Or it will be to prove that they are more men or more 
+Women?
 
-Importante lembrar que o homem verdadeiramente livre é o que se impõem aos 
-vícios e não o que a eles se submetem.
+It is important to remember that truly free man is what is imposed on 
+vices and not what they submit to them.
 
-Entregar-se aos vícios para provar independência é, no mínimo, infantilidade.
+Surrendering to vices to prove independence is at least childish.
 
-E nesse caso, uma infantilidade que pode provocar grandes sofrimentos para si e
-para os seus amores, além de abreviar a vida.
+And in this case, a childishness that can cause great suffering for you and
+for his loves, in addition to abbreviation of life.
 
-Vale a pena considerar que juventude e vícios não combinam. Afinal, jovem é 
-aquele que enfrenta a vida de “cara limpa”.
+It is worth considering that youth and addictions do not match. After all, young man is 
+the one who faces the life of "clean guy".
 
-Você que ainda é jovem e tem saúde física e mental, pense nisso!
+You're still young and have physical and mental health, think about it!
 
 ## Source
 Equipe de Redação do Momento Espírita, com base em matéria publicada pela

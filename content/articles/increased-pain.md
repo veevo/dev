@@ -14,104 +14,104 @@ topics:
 ---
  
 
-Qual é a maior dor?
+What's the biggest pain?
 
-Você já pensou nisso?
+Have you thought about it?
 
-Um jovem deixou um bilhete aos familiares, pouco antes de cometer suicídio, e
-expressou no papel o que estava sentindo.
+A young man left a note to family members shortly before committing suicide, and
+expressed on paper what he was feeling.
 
-Disse ele que a maior dor na vida não é morrer, mas ser ignorado.
+He said the greatest pain in life is not dying, but being ignored.
 
-É perder alguém que nos amava e que deixou de se importar conosco. É ser
-deixado de lado por quem tanto nos apoiava e constatar que esse é o resultado
-da nossa negligência.
+It's losing someone who loved us and who stopped caring about us. It's being
+put aside by those who supported us so much and found that this is the result
+of our negligence.
 
-A maior dor na vida não é morrer, mas ser esquecido. É ficar sem um cumprimento
-após uma grande conquista.
+The greatest pain in life is not dying, but being forgotten. It's running out of a compliment
+after a great achievement.
 
-É não ter um amigo telefonando só para dizer Olá. É ver a indiferença num rosto
-quando abrimos nosso coração.
+It's not having a friend calling just to say hello. It's seeing indifference in a face
+when we open our hearts.
 
-O que muito dói na vida é ver aqueles que foram nossos amigos, sempre muito
-ocupados quando precisamos de alguém para nos consolar e nos ajudar a reerguer
-o nosso ânimo.
+What really hurts in life is seeing those who were our friends, always very
+busy when we need someone to comfort us and help us get back on their feet
+our spirit.
 
-É quando parece que nas aflições estamos sozinhos com as nossas tristezas.
-Muitas dores nos afetam, mas isso pode parecer mais leve quando alguém nos dá
-atenção.
-
-*   *   *
-
-É bem possível que esse jovem tenha tido seus motivos para escrever o que
-escreveu. Todavia, em nenhum momento deve ter pensado naqueles que o rodeavam.
-
-Se pudesse sentir a dor de um coração de mãe dilacerado ante o corpo sem vida
-do filho amado...
-
-Se pudesse experimentar o sofrimento de um pai que tenta, em vão, saber do
-filho morto o que o levou a tamanho desatino...
-
-Se sentisse o desespero de um irmão que busca resposta nos lábios imóveis do
-ser que lhe compartilhou a infância...
-
-Se pudesse suportar, ainda que por instantes, a dor de um amigo sincero a
-contemplar seus lábios emudecidos no caixão, certamente mudaria seu conceito
-sobre a maior dor.
+That's when it seems that in afflictions we are alone with our sorrows.
+A lot of pain affects us, but this may seem lighter when someone gives us
+Attention.
 
 *   *   *
 
-Se você pensa que está passando pela maior dor que alguém pode experimentar,
-considere o seguinte:
+It is quite possible that this young man had his reasons for writing what
+Wrote. However, at no time should he have thought of those around him.
 
-Uma mãe que chora sobre o corpo do filho querido que foi alvo das bombas
-assassinas, em nome das guerras frias e cruéis.
+If you could feel the pain of a mother's heart torn apart before the lifeless body
+of the beloved son...
 
-Uma criança debruçada sobre o corpo inerte da mãe atingida por granadas
-mortíferas.
+If you could experience the suffering of a father who tries, in vain, to know the
+dead son which led him to unfit size...
 
-Um órfão de guerra que é obrigado a empunhar as mesmas armas que aniquilaram
-seus pais...
+If you felt the despair of a brother seeking an answer on the immovable lips of the
+be that he shared his childhood...
 
-Um pai de família que assiste o assassinato dos seus, de mãos amarradas.
-
-Enfim, pense um pouco nessas outras dores...
-
-Pense um pouco nos tantos corações que sofrem dores mais amargas que as suas.
-
-E se ainda assim você estiver certo de que a sua dor é maior, lembre-se daquela
-mãe que um dia assistiu a crucificação do Filho inocente, sem poder fazer nada.
-
-Lembre-se também Daquele que suportou a cruz do martírio mas não perdeu a
-confiança no Pai, que tudo sabe.
-
-E se ainda assim você achar que é o maior dos sofredores, considere que talvez
-o egoísmo esteja prejudicando a sua visão.
+If i could bear, even for a moment, the pain of a sincere friend to
+contemplate his lips emudeted in the coffin, would surely change his concept
+about the greatest pain.
 
 *   *   *
 
-Pense nisso!
+If you think you're going through the greatest pain anyone can experience,
+consider the following:
 
-Descobrir qual é a maior dor, é muito difícil.
+A mother crying over the body of the beloved son who was targeted by the bombs
+murderers in the name of the cold and cruel wars.
 
-Mas a maior decepção é fácil de deduzir.
+A child leaning over the inert body of the mother hit by grenades
+Deadly.
 
-É a daqueles que se suicidam pensando que extinguirão a vida e com ela todos os
-problemas.
+An orphan of war who is forced to wield the same weapons that annihilated
+your parents...
 
-Esses saem do corpo, mas, indubitavelmente, não saem da vida e, muito menos,
-acabam com os problemas.
+A family father who watches the murder of his own, with his hands tied.
 
-Portando, por mais difícil que esteja a situação, nunca vale a pena buscar essa
-porta falsa, chamada suicídio.
+Anyway, think about these other pains a little bit...
 
-É importante lembrar sempre: por mais escura e longa que seja a noite, o sol
-sempre volta a brilhar.
+Think a little of the many hearts that suffer more bitter pain than yours.
 
-E por mais que pensemos estar na solidão, temos sempre conosco um amigo fiel e
-dedicado que jamais nos abandona: o meigo Rabi da Galiléia.
+And if you're still sure that your pain is greater, remember that
+mother who one day watched the crucifixion of the innocent Son, unable to do anything.
 
-Pense nisso!
+Remember also the One who endured the cross of martyrdom but did not lose the
+trust in the Father, who knows everything.
+
+And if you still think you're the greatest of sufferers, consider that maybe
+selfishness is harming your vision.
+
+*   *   *
+
+Think about it!
+
+Finding out what the biggest pain is, it's very difficult.
+
+But the biggest disappointment is easy to deduce.
+
+It is that of those who commit suicide thinking that they will extinguish life and with it all
+Problems.
+
+They come out of the body, but undoubtedly they don't leave life, let alone
+end the problems.
+
+Carrying, as difficult as the situation is, it is never worth seeking this
+fake door, called suicide.
+
+It is important to always remember: no matter how darkand long the night, the sun
+always shines again.
+
+And as much as we think we are in solitude, we always have with us a faithful friend and
+dedicated that never abandons us: the sweet Rabbi of Galilee.
+
+Think about it!
 
 ## Source
 Redação do Momento Espírita, com base em

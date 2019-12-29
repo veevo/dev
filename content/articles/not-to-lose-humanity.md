@@ -13,78 +13,78 @@ topics:
 - kindness
 ---
 
-Diariamente, nos deparamos com as mais diversas notícias do que ocorre no
-mundo.
+Every day, we come across the most diverse news of what happens in the
+World.
 
-Porque estamos todos conectados, vinculados às redes sociais, às notícias que
-tomam de assalto as telas de nossos aparelhos portáteis em tempo real, sabemos
-muito do que ocorre, a toda hora.
+Because we are all connected, linked to social networks, to the news that
+take assault the screens of our portable devices in real time, we know
+much of what happens, all the time.
 
-Entretanto, muitas dessas informações apresentam um caráter nocivo.
+However, many of this information has a harmful character.
 
-Multiplicam-se as notícias sobre crimes, comportamentos exóticos,
-desequilíbrios das mais variadas formas.
+News of crimes, exotic behaviors are multiplied,
+imbalances in various ways.
 
-Sucedem-se, no rol das informações que nos chegam, a corrupção por toda parte,
-as mortes banalizadas pela repetição, os crimes que se diversificam.
+Corruption everywhere, corruption everywhere, is the case, in the list of information that is coming to us,
+deaths trivialized by repetition, the crimes that diversify.
 
-E nos sobra, então, a sensação de que nada, nem ninguém pode deter essa marcha
-incontrolável de uma sociedade que se desestrutura.
+And then we have the feeling that nothing, nor anyone can stop this march
+uncontrollable ness of a society that is unstructured.
 
-Como reflexo dessa avalanche de más notícias que nos chegam, que nos enchem os
-olhos e os ouvidos, vamos nos acostumando com essas paisagens.
+As a reflection of this avalanche of bad news that comes to us, which fill us with the
+eyes and ears, we get used to these landscapes.
 
-No início nos chocávamos. Depois, era uma breve indignação. Com o tempo, por se
-tornar comum, passou a receber um olhar de quase normalidade de nossa parte.
+At first we were shocked. Then it was a brief indignation. Over time, for
+make common, began to receive a look of almost normality on our part.
 
-Vamos nos convencendo de que tudo é normal, que a vida é assim, que as pessoas
-são assim.
+Let's convince ourselves that everything is normal, that life is like this, that people
+are so.
 
-Contudo, nenhuma violência é normal, nenhum crime pode ser visto com leveza,
-nenhum desrespeito ao nosso próximo deve ganhar cidadania.
+However, no violence is normal, no crime can be seen lightly,
+no disrespect to our neighbor should gain citizenship.
 
-Esse sentimento de falsa normalidade que nos invade, sutilmente vai roubando de
-nós aquilo que temos de mais precioso: nossa capacidade de nos indignarmos com
-o erro, de nos chocarmos contra aquilo que não é da nossa natureza.
+This sense of false normality that invades us, subtly stealing from
+we what we have most precious: our ability to outraged ourselves at
+the mistake, of clashing against what is not of our nature.
 
-E, aos poucos, sem nos darmos conta, vamos perdendo nossa humanidade, nossa
-sensibilidade, nossa solidariedade, a nossa empatia com o próximo.
+And gradually, without realizing it, we lose our humanity, our
+sensitivity, our solidarity, our empathy with others.
 
-É necessário refletir.
+It is necessary to reflect.
 
-Esses que agem mal e que ganham as manchetes, se tornando a notícia do dia, são
-exceção. Longe estão de ser a regra.
+Those who act badly and who make headlines, becoming the news of the day, are
+Exception. Far away are the rule.
 
-A grande maioria de nós somos pessoas de bem, que queremos agir corretamente,
-cumprir nossos deveres, criar nossos filhos, pagar nossas contas, estar em paz.
+The vast majority of us are good people, who want to act properly,
+fulfill our duties, raise our children, pay our bills, be at peace.
 
-Por isso, não nos deixemos convencer de que a humanidade está perdida.
+So let us not let ourselves be convinced that humanity is lost.
 
-Se acreditarmos nisso, a cada olhar de indiferença que lançarmos sobre a
-miséria alheia, estaremos, gradativamente, perdendo nossa própria humanidade.
+If we believe that, with every look of indifference we cast about the
+misery of one' self,we will gradually be losing our own humanity.
 
-Assim, perdemos um pouco de nossa humanidade a cada julgamento cruel que
-fazemos frente ao erro do outro.
+So we lost a little of our humanity to every cruel judgment that
+we face each other's mistake.
 
-Esvai-se de nós aos poucos nossa humanidade quando julgamos a todos como
-potencialmente desonestos, corruptos, criminosos.
+It is upon us our humanity when we judge everyone as
+potentially dishonest, corrupt, criminal.
 
-Se alguns se permitem conduzir pelas suas fraquezas e enriquecem ilegalmente,
-são milhares os que honram seus empregos e salários trabalhando dignamente.
+If some allow themselves to be driven by their weaknesses and enrich illegally,
+are thousands who honor their jobs and wages by working worthily.
 
-Se alguns decidem trilhar pelas veredas do crime e da violência, são milhares
-os que vivem pacificamente, distribuindo gentilezas e pacificação no meio onde
-vivem.
+If some decide to walk through the path of crime and violence, there are thousands of
+those who live peacefully, distributing kindness and pacification in the middle where
+Live.
 
-Portanto, cultivemos nossa humanidade.
+So we cultivated our humanity.
 
-Será através dela que compartilharemos o que trazemos de melhor em nossa alma.
+It will be through it that we will share what we bring best in our souls.
 
-E, quanto mais fortalecermos nossa humanidade, mais nos reconheceremos em nosso
-próximo.
+And the more we strengthen our humanity, the more we will recognize ourselves in our
+Next.
 
-A partir disso, mais fácil será seguir o conselho de Jesus, de amar ao próximo
-como a nós mesmos.
+From this, it will be easier to follow Jesus' counsel, to love the next
+like ourselves.
 
 ## Source
 Redação do Momento Espírita.

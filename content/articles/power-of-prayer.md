@@ -13,83 +13,83 @@ topics:
 ---
  
 
-Dentre as muitas boas histórias relatadas em Seleções Reader´s Digest, uma nos
-chamou a atenção pelos ensinamentos que contém.
+Among the many good stories reported in Reader's Digest Selections, one in
+drew attention to the teachings it contains.
 
-Seu autor, já homem feito, refletindo sobre o poder da oração, lembra-se de
-quando ainda era apenas um garotinho.
+Its author, already made man, reflecting on the power of prayer, remembers
+when i was still just a little boy.
 
-Conta ele que, certa manhã de primavera, sua mãe o vestiu na sua fatiota
-domingueira e lhe recomendou para que não saísse além dos degraus da porta da
-frente pois, em poucos minutos, iriam visitar sua tia.
+He says that one spring morning his mother dressed him in his fatigue
+domingueira and recommended that it not go beyond the steps of the door of the
+front for in a few minutes, they would visit his aunt.
 
-O menino esperou pacientemente até que o filho do vizinho da esquina se
-aproximou e lhe disse um palavrão.
+Boy waited patiently until the neighbor's son of the corner himself
+approached him and told him a swear word.
 
-Então, ele pulou os degraus e se atracou com o outro até caírem ambos numa poça
-de lama.
+Then he jumped the steps and docked with each other until they both fell in a puddle
+llama.
 
-Sua blusa branca ficou enlameada e a meia com um rasgão sangrento na altura do
-joelho.
+Her white blouse got muddy and the sock with a bloody tear at the time of the
+Knee.
 
-Lembrou-se da advertência da mãe e começou a berrar desesperadamente.
+He remembered his mother's warning and began screaming desperately.
 
-Sua dor, porém, acabou quando ouviu o barulho do sorveteiro que anunciava em
-altos brados o seu produto.
+His pain, however, ended when he heard the noise of the ice cream maker who advertised in
+your product.
 
-Esqueceu a desobediência e correu a fim de pedir dinheiro à mãe para comprar um
-sorvete.
+Forgot disobedience and ran in order to ask mom for money to buy a
+Ice cream.
 
-Diz ele que nunca pôde esquecer a resposta que recebeu da mãe:
+He says he could never forget his mother's answer:
 
-Olhe para você mesmo! Você não está em condições de pedir nada.
+Look at yourself! You're in no condition to ask for anything.
 
-Foi mergulhado nessas lembranças que o autor fez um paralelo com a nossa
-posição diante de Deus, quando oramos pedindo alguma coisa.
+It was immersed in these memories that the author drew a parallel with our
+position before God, when we pray for something.
 
-Antes de invocarmos o auxílio de Deus, necessitamos voltar o olhar para nós
-próprios e verificar se estamos ou não em condições de pedir algo.
+Before we invoke God's help, we need to turn our gaze to us
+and check whether or not we are in a position to ask for something.
 
-Para que Ele nos ajude, é preciso que façamos a nossa parte conforme prescreve
-o Evangelho: Ajuda-te que o Céu te ajudará.
+For Him to help us, we must do our part as prescribed
+the Gospel: Help that Heaven will help you.
 
-O mal da maioria dos que rogam bênçãos é que não são honestos para com Deus.
+The evil of most of those who pray for blessings is that they are not honest with God.
 
-É comum implorarmos graças celestes, estando de relações cortadas com
-familiares, amigos, vizinhos...
+It is common to beg heavenly graces, being of severed relationships with
+family, friends, neighbors...
 
-Quando buscamos a Ajuda Divina é preciso que preparemos o coração
-adequadamente. É inútil pedir amparo com o coração cheio de inveja, de ciúme,
-de malquerença, de ódio e de outros detritos morais.
+When we seek Divine Help we need to prepare our hearts
+Properly. It is useless to ask for support with a heart full of envy, jealousy,
+of malquerency, hatred and other moral debris.
 
-Nesse caso, se realmente desejamos pedir algo, que peçamos forças para vencer
-essas misérias da alma.
+In that case, if we really wish to ask for something, that we ask for the strength to win
+these miseries of the soul.
 
-É comum rogarmos a Deus que nos dê saúde e, por outro lado, acabarmos com ela
-com o vício enfermiço do cigarro, da gula, do trago infeliz, das noitadas de
-orgias entre outros abusos.
+It is common for us to ask God to give us health and, on the other hand, to end it
+with the sick addiction of cigarettes, gluttony, unfortunate trago, night-night
+among other abuses.
 
-Importante que meditemos um pouco mais a respeito da nossa real vontade de
-receber Ajuda Divina, uma vez que Deus sabe das nossas intenções mais secretas.
+Important that we meditate a little more about our real willingness to
+receive Divine Help, once God knows our most secret intentions.
 
                                    *   *   *
 
-Antes de buscar ajuda através da prece, olhe para você mesmo e veja se está em
-condições de pedir alguma coisa.
+Before seeking help through prayer, look at yourself and see if you are in
+conditions to ask for something.
 
-Verifique se está fazendo a parte que lhe cabe.
+Make sure you're doing the part that fits you.
 
-Se o templo do seu coração está devidamente limpo e arejado para receber as
-bênçãos do Criador.
+If the temple of your heart is properly cleanand airy to receive the
+blessings of the Creator.
 
-Lembre-se sempre da recomendação: Ajuda-te que o Céu te ajudará.
+Always remember the recommendation: Help yourself that Heaven will help you.
 
-A condição é que nos ajudemos primeiro, fazendo a nossa parte, para depois
-merecer a ajuda do Alto.
+The condition is that we help each other first, doing our part, and then
+deserve the help of the High.
 
-Importante que entendamos bem os mecanismos da oração: pedir, saber pedir e,
-acima de tudo, merecer.
- 
+Important that we understand well the mechanisms of prayer: to ask, know how to ask and,
+above all, deserve it.
+
 
 ## Source
 Redação do Momento Espírita com base em artigo

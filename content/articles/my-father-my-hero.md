@@ -20,86 +20,86 @@ topics:
 - sincerity
 ---
 
-Quando eu cheguei a este mundo, não sabia ao certo o que estava fazendo aqui,
-até que percebi que havia alguém para me orientar na jornada.
+When I came into this world, I wasn't sure what I was doing here,
+until I realized there was someone to guide me on the journey.
 
-Um dia, quando você me ergueu nos braços, elevando-me acima da sua cabeça,
-descobri que você queria que eu percebesse o mundo de um ponto de vista muito
-abrangente.
+One day, when you raised me in your arms, rising above your head,
+found out you wanted me to realize the world from a very
+Comprehensive.
 
-Quando comecei a ensaiar meus primeiros passos, com a musculatura das pernas
-ainda frágil, você me sustentou segurando-me a mão, e entendi que você não
-desejava me carregar no colo para sempre: queria que eu andasse com as próprias
-pernas.
+When I started rehearsing my first steps, with the musculature of my legs
+yet fragile, you sustained me holding my hand, and understood that you did not
+wished to carry me on my lap forever: he wanted me to walk with his own
+Legs.
 
-Quando entrei em casa pela primeira vez, ofegante, me queixando dos amigos,
-você disse para eu me acertar com eles, e compreendi que deveria assumir a
-responsabilidade pelos meus próprios atos.
+When I first came home, panting, complaining about friends,
+you told me to settle with them, and i understood i should assume the
+responsibility for my own acts.
 
-Quando trouxe para casa minha primeira lição e você se sentou ao meu lado,
-orientando-me, mas não fez a lição para mim, entendi que você desejava que o
-aprendizado fosse uma conquista minha.
+When I brought home my first lesson and you sat next to me,
+guiding me but didn't do the lesson to me, I understood that you wished the
+learning was an achievement of mine.
 
-No dia em que alguns objetos alheios foram parar em minha mochila escolar,
-você, sem me ofender, me pediu para devolver ao legítimo dono, e compreendi que
-você queria fazer de mim uma pessoa honesta.
+The day some other people's objects ended up in my school backpack,
+you, without offending me, asked me to return to the rightful owner, and understood that
+You wanted to make me an honest person.
 
-Quando, um dia, meus amigos saíram da sala e tracei alguns comentários maldosos
-sobre eles, e você me disse que não devemos falar mal das pessoas ausentes,
-aprendi as lições da sinceridade e do respeito.
+When, one day, my friends left the room and traced some mean comments
+about them, and you told me we shouldn't speak ill of the absent people,
+I learned the lessons of sincerity and respect.
 
-Nos momentos difíceis, você estava sempre ao meu lado para me apoiar, e nas
-horas alegres não me faltou o seu abraço para compartilhar.
+In the difficult moments, you were always by my side to support me, and in the
+Joyous hours didn't miss me his hug to share.
 
-Quando fraquejei diante do primeiro embate da vida, você me falou de coragem...
+When I faltered in the face of the first clash of life, you told me of courage...
 
-Quando chorei as lágrimas provocadas pelo primeiro sofrimento, você me falou de
-resignação...
+When I cried the tears caused by the first suffering, you told me of
+Resignation...
 
-Quando desejei fugir dos compromissos que se apresentavam, você me falou de
-responsabilidade...
+When I wanted to escape the commitments that presented themselves, you told me about
+Responsibility...
 
-Quando pensei em mentir para um amigo, você me falou de fidelidade...
+When I thought About lying to a friend, you told me about fidelity...
 
-Quando senti em minha alma os açoites dos primeiros vendavais, você me falou de
-flexibilidade, e aprendi a me dobrar para não quebrar, como o pequeno ramo
-verde faz diante dos golpes do vento.
+When I felt in my soul the scourges of the first gales, you told me of
+flexibility, and i learned to bend myself not to break, like the small branch
+green does before the blows of the wind.
 
-Quando você pressentiu em meu olhar a insinuação da vingança, me falou do
-perdão...
+When you sensed in my look at the insinuation of revenge, you told me about the
+Forgiveness...
 
-Quando desejei salvar o mundo, nos ardentes dias da juventude, você me ensinou
-a moderação e o bom senso.
+When I wished to save the world, in the burning days of youth, you taught me
+moderation and common sense.
 
-Quando quis me submeter aos modismos do grupo, você me falou de liberdade.
+When you wanted to submit to the group's fads, you told me about freedom.
 
-Quando me iludi, pensando que o mundo era meu, você me falou do Criador do
-Universo...
+When I was deceived, thinking that the world was mine, you told me about the Creator of the
+Universe...
 
-Assim, meu pai, desejo dizer que você sempre foi meu herói, meu amigo, meu
-grande mestre, meu companheiro de caminhada...
+So, my father, I wish to say that you have always been my hero, my friend, my
+great master, my walking companion...
 
-Você foi firme, quando era de firmeza que eu precisava...
+You were firm, when it was firm that I needed...
 
-Você foi terno, quando era de ternura que eu necessitava... Você foi lúcido,
-quando era de lucidez que eu precisava...
+You were tender when you were tender that I needed... You were lucid,
+when it was lucid i needed...
 
-Quando eu cheguei a este mundo, não sabia ao certo o que estava fazendo aqui,
-até que percebi que havia alguém para me orientar na jornada...
+When I came into this world, I wasn't sure what I was doing here,
+until I realized there was someone to guide me on the journey...
 
-Hoje, bem, hoje eu sei claramente o que estou fazendo aqui, porque você, meu
-pai, fez mais que apenas me orientar, você caminhou ao meu lado muitas vezes,
-me seguiu de perto outras tantas, e andou à minha frente muitas outras,
-deixando rastros de luz, como diretrizes seguras que eu pudesse seguir.
+Today, well, today I clearly know what I'm doing here, because you, my
+father, did more than just guide me, you walked beside me many times,
+followed me up many others, and walked before me many others,
+leaving traces of light, as safe guidelines That I could follow.
 
-Hoje eu sei muito bem o papel que me cabe na construção de um mundo melhor,
-porque isso eu aprendi com você, meu grande e admirado amigo...
+Today I know very well the role that fits me in building a better world,
+because this I learned from you, my great and admired friend...
 
-E quando eu vejo tantos jovens perdidos, sem rumo e sem esperança, vagando
-entre a violência e a morte, eu peço a Deus por eles, porque é bem possível que
-não tenham tido a felicidade de ter um pai como você...
+And when I see so many lost young people, aimless and hopeless, wandering
+between violence and death, I ask God for them, because it is quite possible that
+have not had the happiness of having a father like you...
 
-E peço a Deus por você, papai, meu grande amigo.
+And I ask God for you, Dad, my great friend.
 
 ## Source
 Redação do Momento Espírita.

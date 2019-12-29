@@ -8,88 +8,88 @@ topics:
 ---
  
 
-Você acredita que ter virtudes é importante para um bom relacionamento?
+Do you believe that having virtues is important for a good relationship?
 
-E você costuma procurar virtudes nas pessoas com as quais convive?
+And do you often look for virtues in the people you live with?
 
-Talvez você acredite que ter virtudes é importante e até as procure nas pessoas
-de sua relação, mas se questione se essas qualidades não são escassas em alguns
-indivíduos.
+Maybe you believe that having virtues is important and even looking for them in people
+of their relationship, but wonders whether these qualities are not scarce in some
+Individuals.
 
-Bem, se você está com essa problemática, talvez possamos pensar juntos sobre
-como tentar resolver esse impasse.
+Well, if you're with this problem, maybe we can think together about
+how to try to resolve this impasse.
 
-Já houve algum momento em que você se interessou por algo, e passou a notar
-esse algo com mais frequência?
+There was a time when you became interested in something, and you went on to notice
+this something more often?
 
-Por exemplo: se você resolve comprar um veículo de tal marca e tal modelo,
-começa a notar muitos desses veículos circulando pelas ruas, o que não
-acontecia antes, não é mesmo?
+For example: if you decide to buy such a brand ed vehicle and such a model,
+begins to notice many of these vehicles circulating through the streets, which does not
+it happened before, didn't it?
 
-Pois bem, isso é fruto do interesse, da atenção que você presta no objeto que
-procura.
+Well, that's the result of interest, of the attention you pay on the object that
+Attorney.
 
-Algo semelhante pode acontecer também com os defeitos, os vícios, as
-qualidades, os valores, as virtudes dos indivíduos.
+Something similar can also happen with defects, vices,
+qualities, values, virtues of individuals.
 
-Se você observa uma pessoa à procura de defeitos, certamente vai perceber só
-defeitos, pois esse é o foco da sua atenção.
+If you look at a person looking for defects, you will surely realize only
+defects, because this is the focus of your attention.
 
-Nem sempre isso quer dizer que a pessoa tenha os defeitos que você nota, mas
-suas lentes estão ajustadas para ver defeitos.
+This does not always mean that the person has the defects that you notice, but
+your lenses are adjusted to see defects.
 
-Ao contrário, quando você ajusta seu olhar para detectar virtudes perceberá,
-sem dúvida, muitas delas.
+On the contrary, when you adjust your gaze to detect virtues you will notice,
+undoubtedly many of them.
 
-Experimente fazer isso com alguém do seu círculo de relacionamento em quem você
-nunca percebeu nenhuma virtude. Comece a observar com olhos de ver e encontrará
-virtudes.
+Try doing this with someone in your relationship circle in whom you
+never realized any virtue. Start watching with eyes to see and you will find
+Virtues.
 
-Isso fará com que seu conceito sobre essa pessoa se modifique para melhor.
+This will make your concept about this person change for the better.
 
-Esse é um bom exercício para quem deseja tornar sua vida de relação mais
-harmônica.
+This is a good exercise for those who want to make their relationship life more
+Harmonic.
 
-Não existe uma pessoa no mundo que não tenha pelo menos uma virtude, uma
-qualidade. Basta procurar.
+There is no person in the world who does not have at least one virtue, a
+Quality. Just look.
 
-E quando passamos a ver qualidades nas pessoas que convivem conosco, o
-relacionamento se torna mais agradável.
+And when we come to see qualities in the people who live with us, the
+relationship becomes more enjoyable.
 
-Para ajudar nessa procura por boas qualidades, vamos citar algumas delas:
-paciência, pontualidade, boa vontade, alegria, otimismo, responsabilidade,
-organização, respeito, espírito de equipe, discrição, lealdade, honestidade,
-senso de justiça, disposição, sinceridade, tolerância.
+To help in this search for good qualities, let's name a few of them:
+patience, punctuality, goodwill, joy, optimism, responsibility,
+organization, respect, team spirit, discretion, loyalty, honesty,
+sense of justice, disposition, sincerity, tolerance.
 
-Às vezes, implicamos com uma pessoa apenas porque ela pensa diferente de nós e
-por isso a rotulamos e a excluímos do nosso círculo de amizades.
+Sometimes we imply with a person just because they think differently from us and
+that's why we labeled her and excluded her from our circle of friendships.
 
-Outras vezes, o simples fato de não simpatizarmos com alguém já basta para nos
-afastar e evitar aproximações.
+Other times, the mere fact that we don't sympathize with someone is enough to
+ward off and avoid approximations.
 
-E se viver em sociedade é condição natural dos seres humanos, importante que
-procuremos viver bem com as demais pessoas.
+And if living in society is a natural condition of human beings, important that
+let us try to live well with other people.
 
-Façamos esse importante exercício de procurar virtudes.
-E o mérito será maior quanto mais difícil for para encontrá-las e lhes dar o
-devido valor.
+Let us do this important exercise in seeking virtues.
+And the merit will be greater the more difficult it is to find them and give them the
+due value.
 
-Afinal, virtudes são como jóias valiosas, é preciso descobri-las e saber
-apreciá-las.
+After all, virtues are like valuable jewels, you have to discover them and know
+enjoy them.
 
-Que tal essa proposta?
+How about this proposal?
 
-Pense nisso, afinal, você não tem nada a perder. Pelo contrário, tem muito a
-ganhar.
+Think about it, after all, you have nothing to lose. On the contrary, there is a lot of
+Win.
 
-Como? Ora, tornando sua vida de relação mais agradável e contribuindo com seu
-tijolo de otimismo nessa construção chamada sociedade.
+As? Now, making your life of relationship more pleasant and contributing to your
+brick of optimism in this construction called society.
 
 *   *   *
 
-Um dia, um Sábio de Nazaré disse: Quem tem olhos de ver, veja.
+One day, a Sage of Nazareth said, Whoever has eyes to see, see.
 
-Pense nisso, ajuste suas lentes, e seja um garimpeiro de virtudes! 
+Think about it, adjust your lenses, and be a prospector of virtues! 
 
 ## Source
 Redação do Momento Espírita.  

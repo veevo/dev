@@ -17,79 +17,79 @@ topics:
 ---
 
 
-O que você faz fala tão alto, que não consigo ouvir o que você diz.
+What you do speaks so loud, I can't hear what you say.
 
-O pensamento do filósofo e escritor americano, Ralph Waldo Emerson, precisa de
-nossa atenção.
+The thought of the American philosopher and writer, Ralph Waldo Emerson, needs
+our attention.
 
-Ações falam muito mais de nós mesmos do que nossas palavras.
+Actions speak much more of ourselves than our words.
 
-Nossas palavras articulam-se por conveniência, por convenções e podem ser muito
-bem dissimuladas por força de nossa vontade, isto é, nem sempre contarão a
-verdade.
+Our words articulate for convenience, conventions and can be very
+well disguised by our will, that is, they will not always count the
+Truth.
 
-As ações mostram o que há em nossa alma, nossa índole, nossos valores.
+Actions show what is in our soul, our nature, our values.
 
-É muito fácil falar. Mais difícil agir.
+It's very easy to say. Harder to act.
 
-Francisco de Assis, missionário que resgatou a essência da mensagem do Cristo
-na Terra, em uma de suas pregações, afirmou:
+Francis of Assisi, missionary who rescued the essence of Christ's message
+on earth, in one of his preaching, he said:
 
-A paz proclamada por vós com palavras deve habitar de modo mais abundante em
-vossos corações.
+The peace proclaimed by you with words must dwell more abundantly in
+your hearts.
 
-Isso significa que precisamos vivenciar algo para que nossas palavras e
-opiniões tenham peso. É a chamada autoridade moral.
+This means that we need to experience something so that our words and
+opinions have weight. It's called moral authority.
 
-Ela é válida na educação dos filhos, por exemplo.
+It is valid in the education of children, for example.
 
-Esses precisam identificar, nos genitores, o mesmo comportamento que estão
-exigindo deles.
+They need to identify, in the parents, the same behavior that are
+demanding them.
 
-Caso não encontrem essa referência, dificilmente seguirão qualquer recomendação
-educacional.
+If they do not find this reference, they will hardly follow any recommendation
+Educational.
 
-Os filhos poderão até obedecer, mas por medo, por ascendência da força, naquele
-momento.
+The children may even obey, but out of fear, by ascendancy of strength, in that
+Moment.
 
-Esse tipo de ascendência, porém, não dura. Tão logo se desvencilhem dos pais ou
-desenvolvam uma independência maior, voltarão a repetir as mesmas atitudes do
-ontem equivocado.
+This kind of ancestry, however, does not last. As soon as they get rid of their parents or
+greater independence, will repeat the same attitudes of the
+yesterday wrong.
 
-Resumindo: não aprenderam. Simplesmente atenderam à uma recomendação, por
-determinado tempo.
+In short, they didn't learn. They simply met a recommendation, for
+certain time.
 
-Por isso ouvimos falar na força do exemplo.
+That's why we heard about the strength of the example.
 
-Os filhos copiam os pais em muitos aspectos. Imitam suas ações, sua forma de
-lidar com isso ou aquilo na vida. Seus conselhos só serão ouvidos se perceberem
-a força da autoridade moral embasando as falas.
+Children copy parents in many ways. They mimic their actions, their way of
+deal with it or that in life. Your advice will only be heard if you notice
+the strength of moral authority basing the lines.
 
-A sabedoria de alguém não é medida pelo quanto ela sabe, conhece, mas pela
-qualidade de suas ações.
+Someone's wisdom is not measured by how much they know, knows, but by the
+quality of their actions.
 
-Vemos assim, no mundo, grandes vozes, de retórica impecável, mas cujas ações,
-no dia a dia, não condizem com seu verbo afiado.
+We see thus, in the world, great voices, of impeccable rhetoric, but whose actions,
+in everyday life, do not match your sharp verb.
 
-Sobem nas tribunas do mundo, cantando a igualdade, a justiça, a defesa da
-população, quando em seu coração há apenas a busca pela satisfação de sua
-vaidade e egoísmo, tirando vantagem de tudo e de todos.
+They rise in the stands of the world, singing equality, justice, the defense of
+population, when in your heart there is only the search for the satisfaction of their
+vanity and selfishness, taking advantage of everything and everyone.
 
-E muitas consciências de hoje estão tão doentes, tão obnubiladas, que nem
-sequer sentem algum tipo de remorso, culpa ou responsabilidade.
+And many consciences today are so sick, so obnubiladas, that neither
+they don't even feel some kind of remorse, guilt or responsibility.
 
-Despertarão mais tarde, possivelmente com a dor, com a força da lei de causa e
-efeito, colocando tudo de volta nos trilhos da alma descarrilhada.
+They will awaken later, possibly with pain, with the force of the law of cause and
+effect by putting everything back on the rails of the derailed soul.
 
-Assim, cuidemos de nossas palavras e cuidemos de nossas ações.
+So let's take care of our words and take care of our actions.
 
-O que fazemos fala muito mais alto do que aquilo que dizemos.
+What we do speaks a lot louder than what we say.
 
-Lembremos do pensamento do filósofo:
+Let us remember the philosopher's thought:
 
-O que você faz fala tão alto, que não consigo ouvir o que você diz.
+What you do speaks so loud, I can't hear what you say.
 
-Escute o áudio deste texto
+Listen to the audio of this text
 
 # Source
 Redação do Momento Espírita.

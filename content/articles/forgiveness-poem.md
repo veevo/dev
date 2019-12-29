@@ -18,80 +18,80 @@ topics:
 - mother
 ---
 
-Poema do perdão
+Forgiveness poem
 
-Setenta vezes sete vezes... Aqueles números ficaram ressoando na alma de Simão
-Pedro por algum tempo, depois do breve colóquio com o Mestre.
+Seventy times seven times... Those numbers were resonating in Simon's soul
+Peter for some time, after the brief colloquium with the Master.
 
-Quantas vezes devemos perdoar? Há limites para o perdão?
+How many times should we forgive? Are there limits to forgiveness?
 
-Talvez muitos de nós tenhamos no coração as angústias que tinha o Apóstolo.
+Perhaps many of us have in our hearts the anguish that the Apostle had.
 
-Porém, a conversa de Pedro com Jesus, sobre a importante temática, não findaria
+However, Peter's conversation with Jesus on the important theme would not end
 ali.
 
-Quando a noite se vestiu de astros balouçantes, encravados na abóbada do
-infinito, em conferência particular, Simão voltou a interrogar:
+When night dressed as balouçantes stars, stuck in the dome of the
+in particular conference, Simon again questioned:
 
-“E se alguém, com quem não simpatizamos, nos ferir, por motivo nenhum, será
-lícito reagir, apresentando-o ao juiz?"
+"And if someone, with whom we do not sympathize, hurt us for no reason, it will be
+lawful reaction, presenting it to the judge?"
 
-"Não, Pedro. Todo aquele que agride, com ou sem motivo, encontra-se agredido em
-si mesmo."
+"No, Peter. Anyone who attacks, with or without reason, is assaulted in
+himself."
 
-"Isto, porém,” - insistiu Pedro – “não significará apoiar a violência e
-permitir que os maus dominem os simples e os humildes?
+"This, however," insisted Peter , "will not mean supporting violence and
+allow the wicked to dominate the simple and the humble?
 
-"De forma alguma. Os maus estão doentes. Portadores de tormentos destruidores
-no imo de si mesmos. Revidar-lhes a ofensa é aumentar-lhes a capacidade de
-agressão.
+"Not at all. The bad guys are sick. Bearers of destructive torments
+in the imo of themselves. To fight back them the offense is to increase their ability to
+Aggression.
 
-Somente o amor, ungido de abnegação, consegue infundir a real transformação
-interior de alguém e demonstrar a grandeza da paz a quem a perdeu.”
+Only love, anointed with selflessness, manages to infuse the real transformation
+within someone and demonstrate the greatness of peace to those who lost it."
 
-“E se da agressão pura e simples, ele partir para tomar nas suas mãos
-desvairadas a vida de um ente querido massacrando-o?"
+"And if of pure and simple aggression, he will leave to take into his hands
+the life of a loved one slaughtering him?"
 
-"Ainda aí" - redarguiu Jesus - "o perdão assume um papel preponderante,
-porquanto mais importante se nos apresenta o desafio do amor, quanto mais grave
-e difícil é a situação que nos leva a perdoar".
+"Still there" - redargui Jesus - "forgiveness assumes a preponderant role,
+because the more important the challenge of love presents us, the more serious the
+and difficult is the situation that leads us to forgive."
 
-"Mestre!" - propôs o companheiro com os olhos nublados - "Saber que um vândalo
-retirou do nosso caminho, pela violência, o filho, a esposa ou a mãe e não
-revidar, não significa apoiar e legitimar o direito da força?"
+"Master!" - proposed the companion with his eyes cloudy - "To know that a vandal
+withdrew from our way, by violence, son, wife or mother and not
+fight back, does it mean supporting and legitimizing the right of force?"
 
-"Simão" - respondeu o Mestre, docemente - "o Pai estabeleceu leis das quais
-ninguém consegue fugir. Não colocamos aqui a questão em termos de esquecimento
-à responsabilidade nem desrespeito aos códigos legais estabelecidos. Refiro-me
-ao revide, ao ódio, ao plano de cobrança, por parte daqueles que foram
-atingidos pela enfermidade agressiva do próximo.
+"Simon" - answered the Master, sweetly -- "the Father established laws from which
+no one can escape. We don't ask the question here in terms of forgetfulness
+liability or disrespect for established legal codes. I mean
+to return, hatred, to the collection plan, by those who have been
+affected by the aggressive illness of the neighbor.
 
-Além deles não fugirem da consciência, que não os esquecerá no tribunal de si
-mesmos, cabe-nos deixar que os organismos especializados cumpram com suas
-atribuições.
+Besides them do not run away from consciousness, which will not forget them in court of themselves
+it is up to us to allow specialised bodies to comply with their
+Assignments.
 
-Nós, porém, permaneceremos confiantes de que nada acontece que não seja pela
-‘vontade’ do Pai.
+We, however, will remain confident that nothing happens other than for the
+will of the Father.
 
-Assim, não provoquemos a ninguém, nem a ninguém firamos. Silenciemos as ofensas
-e dispensemos a misericórdia em toda parte e com todos aqueles com quem
-convivemos."
+So we don't tease anyone or anyone else. We silence the offenses
+and we dispense with mercy everywhere and with all those with whom
+we live together."
 
-"Mestre! E se nos matarem?" - Propôs o Apóstolo sincero com a voz sumida pela
-emoção.
+"Master! What if they kill us?" - Proposed the sincere Apostle with his voice missing by the
+Emotion.
 
-"Viveremos, Simão. Ninguém mata a vida. Prosseguiremos vivendo tanto quanto o
-criminoso também viverá. Nunca te esqueças de que a posição de vítima é sempre
-a melhor, a mais feliz.
+"We will live, Simon. Nobody kills life. We will continue to live as much as the
+criminal will also live. Never forget that the position of victim is always
+the best, the happiest.
 
-Quem aos outros fere, a si mesmo se fere. Quem ao próximo infelicita, a si
-mesmo se destrói no campo da emoção, com a diferença de que aquele que,
-aparentemente, é o perdedor, se amar e perdoar, estará isento de quaisquer
-aflições e ficará inatingido, portanto, feliz.”
+Whoever others hurt, it hurts itself. Who to others congratulates, to you
+even destroys itself in the field of emotion, with the difference that the one who,
+apparently, it is the loser, if loving and forgiving, will be exempt from any
+afflictions and will therefore be unattained."
 
                                    *   *   *
 
-Perdoar sempre. Lembremos disso. Perdoar sempre.
+Always forgive. Let's remember that. Always forgive.
 
 
 ## Source

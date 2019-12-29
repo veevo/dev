@@ -18,78 +18,79 @@ topics:
 ---
 
 
-O mundo moderno é rico de possibilidades.
-A sociedade convive melhor com as diferenças e as mais diversas opções são
-possíveis, sem causar grandes choques e antagonismos.
+The modern world is rich in possibilities.
+Society lives best with differences and the most diverse options are
+without causing great shocks and antagonisms.
 
-No pretérito, não era assim.
-Por muito tempo, a transposição entre classes sociais era difícil, senão
-impossível.
+In the past, it wasn't like that.
+For a long time, the transposition between social classes was difficult, if not
+Impossible.
 
-Em certas culturas, quem nascia em família de artesãos deveria sê-lo também.
-O círculo da nobreza era inacessível para os nascidos plebeus.
-Hoje vigora em maior grau uma liberdade não apenas de opções, mas também de
+In certain cultures, those who were born into a family of artisans should be so too.
+The circle of nobility was inaccessible to the commoners born.
+Today there is a greater degree a freedom not only of options, but also of
 costumes.
 
-Perante o corpo social, afigura-se possível ao indivíduo escolher livremente
-sua profissão, hábitos, moradia e amigos.
+Before the social body, it seems possible for the individual to freely choose
+their profession, habits, housing and friends.
 
-Ele pode escolher constituir família ou permanecer solteiro.
-É possível a alguém casar-se, separar-se, tornar a se casar inúmeras vezes.
-Esse contexto de liberdade é valioso para os seres humanos.
+He can choose to constitute a family or stay single.
+It is possible for someone to get married, to separate, to remarry countless times.
+This context of freedom is valuable to human beings.
 
-Não é possível crescer em entendimento e compreensão sem a possibilidade de
-tomar decisões e arcar com as conseqüências.
+It is not possible to grow in understanding and understanding without the possibility of
+make decisions and bear the consequences.
 
-Mas é preciso refletir sobre os reflexos das próprias opções.
-Os seres humanos estão em constante interação e os atos de uns refletem nas
-vidas dos outros.
+But it is necessary to reflect on the reflections of one's own options.
+Humans are constantly interacting and the acts of ones reflect in the
+lives of others.
 
-Justamente por isso se afirma que liberdade pressupõe responsabilidade.
-Para o cristão a questão da liberdade é ainda mais séria.
+Precisely for this is why it is stated that freedom presupposes responsibility.
+For the Christian the issue of freedom is even more serious.
 
-Ele necessita compatibilizar as opções que faz com as palavras e os exemplos do
-Cristo.
+It needs to reconcile the options it makes with the words and examples of the
+Christ.
 
-Caso contrário, a palavra ‘cristão’ será apenas um rótulo, destituído de
-significado.
+Otherwise, the word 'Christian' will be only a label, devoid of
+Meaning.
 
-Assim, se você se afirma cristão, analise a forma como utiliza sua liberdade.
-Reflita se suas opções revelam fidelidade às lições de Jesus.
+So, if you claim yourself to Be Christian, look at how you use your freedom.
+Ponder whether your choices reveal fidelity to Jesus' lessons.
 
-Como você se identifica com os valores cristãos, isso quer dizer que sua
-sensibilidade está desperta para aspectos transcendentes da vida.
-Ou seja, o mundo e seus valores não mais o satisfazem plenamente.
+As you identify with Christian values, this means that your
+[WARNING] Connection timed out. Retrying IPv4 connection.
+sensitivity is awakened to transcendent aspects of life.
+That is, the world and its values no longer fully satisfy it.
 
-Há em você a necessidade de transcender, de amar puramente seus irmãos, de
-compreender e respeitar a vida.
+There is in you the need to transcend, to purely love your brothers,
+understand and respect life.
 
-Recorde, pois, que Jesus foi trabalho, amor, renúncia e pureza.
-Suas opções estão de acordo com esse modelo?
+Remember, therefore, that Jesus was work, love, renunciation and purity.
+Are your options in accordance with this model?
 
-Caso não estejam, pense que você é livre, pleno de possibilidades.
-A cultura lhe é acessível, carreiras estão a sua disposição, você pode gastar
-seu tempo como lhe aprouver.
+If you're not, think you're free, full of possibilities.
+Culture is accessible to you, careers are at your disposal, you can spend
+your time as i wish you.
 
-Por que não optar livremente pela felicidade duradoura?
+Why not freely opt for lasting happiness?
 
-Que lhe importa que no mundo imperem a desonestidade, a luxúria e a
-irresponsabilidade?
+That it is important that in the world the dishonesty, lust and
+Irresponsibility?
 
-Você é responsável exclusivamente por suas opções, pelo que faz de sua vida.
-Não utilize os equívocos dos outros como desculpas.
+You are solely responsible for your options, for what you make of your life.
+Do not use other people's misconceptions as excuses.
 
-Em determinada passagem de uma de suas epístolas, Paulo de Tarso afirma que
-tudo lhe era possível, mas nem tudo lhe era conveniente.
-É exatamente a sua situação.
+In a certain passage from one of his epistles, Paul de Tarsus states that
+everything was possible for him, but not everything was convenient for him.
+That's exactly your situation.
 
-No mundo atual, quase tudo é admitido, sem censuras.
-Mas a consciência de quem ama e admira o Cristo não compactua com
-comportamentos levianos.
+In today's world, almost everything is admitted, uncensored.
+But the conscience of those who love and admire Christ does not compact with
+frivolous behaviors.
 
-Não se iluda nem embote sua consciência.
+Don't delude or dull your conscience.
 
-Viva de forma nobre a sua liberdade.
+Live your freedom noblely.
 
 
 ## Source

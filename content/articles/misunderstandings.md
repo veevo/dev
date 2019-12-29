@@ -13,98 +13,98 @@ topics:
 - prayer
 ---
 
-Incompreensões
+Misunderstandings
 
-Quantas vezes nos sentimos incompreendidos?
+How many times do we feel misunderstood?
 
-A resposta deve ser: Muitas vezes... – Em tom de desabafo ou lamentação
-profunda.
+The answer must be: Often... – In a tone of vent or lamentation
+Deep.
 
-Ainda nos sentimos vítimas quando passamos por tais situações cotidianas.
-Alguns de nós parecemos colecionar desditas.
+We still feel like victims when we go through such everyday situations.
+Some of us seem to collect dissaids.
 
-E quando temos chance demonstramos nossa frustração.
+And when we have a chance, we show our frustration.
 
-Acontece que pessoa alguma consegue vencer a jornada terrestre sem enfrentar os
-obstáculos necessários ao seu processo de iluminação interior.
+It turns out that no one can win the earth's journey without facing the
+obstacles necessary for its interior lighting process.
 
-Seria ingenuidade ou fuga, pretendermos passar isentos de tudo isso.
+It would be naïve or escape, we want to pass exempt from all this.
 
-Dentre esses tantos desafios que nos provam incessantemente, aqueles de
-natureza moral se fazem os mais atormentadores.
+Among these so many challenges that prove to us incessantly, those of
+moral nature are made the most tormentors.
 
-São eles que atingem nossas resistências íntimas e conspiram contra a harmonia
-pessoal.
+They are the ones who reach our intimate resistances and conspire against harmony
+Personal.
 
-Entre esses, no relacionamento social, se destacam a incompreensão, criadora de
-situações lamentáveis.
+Among these, in the social relationship, the misunderstanding, creator of
+regrettable situations.
 
-A incompreensão tem raízes em comportamentos íntimos que se mascaram, renovando
-as formas de agressão e mantendo a mesma acidez.
+Misunderstanding has roots in intimate behaviors that mask, renewing
+the forms of aggression and maintaining the same acidity.
 
-Estimulada pela inveja, provoca situações insustentáveis.
+Stimulated by envy, it causes unsustainable situations.
 
-A competição doentia a encoraja, buscando derrubar o aparente adversário.
+The competition sickens encourages her, seeking to overthrow the apparent opponent.
 
-A malícia favorece o intercâmbio para a sua ação enfermiça, espalhando
-suspeitas e calúnias.
+Malice favors exchange for its sick action, spreading
+suspicions and slander.
 
-A incompreensão está em germe na alma humana ainda em processo de crescimento.
-Herança dos instintos agressivos, surge com insistência nas mentes e busca
-residência nos corações.
+Misunderstanding lies in germ in the human soul still in the process of growth.
+Inheritance of aggressive instincts, arises with insistence on minds and search
+residence in hearts.
 
-Em razão da inferioridade dos homens, a incompreensão favorece o desabar de
-excelentes construções de amor.
+Due to the inferiority of men, misunderstanding favors the collapse of
+excellent buildings of love.
 
-Aqueles que não alcançam, aqueles que não podem, desejam derrubar os que vão
-adiante, mais alto.
+Those who do not reach, those who cannot, wish to overthrow those who will
+further, higher.
 
-Aqueles que ainda não sentem, que ainda não se transformaram, não entendem como
-aqueles mais à frente conseguiram e questionam suas vitórias.
+Those who still do not feel, who have not yet transformed, do not understand how
+those further ahead they succeeded and question their victories.
 
-Aqueles que não sentem como nós sentimos não conseguem entender nosso coração.
+Those who don't feel the way we feel can't understand our hearts.
 
-Lembremos que os mais abnegados promotores do progresso padeceram a
-incompreensão dos seus contemporâneos.
+Let us remember that the most selfless promoters of progress have suffered the
+misunderstanding of their contemporaries.
 
-Abraçados ao ideal, não podiam compactuar com os frívolos e os maus que os
-buscavam, em tentativa de amizade para desviá-los do compromisso.
+Embraced to the ideal, they could not agree with the frivolous and evil ones that the
+sought, in an attempt at friendship to divert them from commitment.
 
-Os santos a experimentaram na carne, espezinhados e perseguidos nos grupos de
-onde se originavam.
+The Saints experienced it in the flesh, trampled and persecuted in the groups of
+where they originated.
 
-Os missionários do bem se viram sacrificados e confundidos, porque não pararam,
-cedendo nos seus ideais.
+The missionaries of good found themselves sacrificed and confused, because they did not stop,
+giving in to their ideals.
 
-Os invejosos os crivaram de espinhos e dores, gozando por vê-los quase
-sucumbir...
+The envious created them with thorns and pains, enjoying seeing them almost
+Succumbing...
 
                                    *   *   *
 
-Ninguém conseguirá caminhar em paz na multidão.
+No one will be able to walk in peace in the crowd.
 
-As diferenças ideológicas e morais, vibratórias e culturais não deixarão, por
-enquanto, que a fraternidade ajude e o amor ampare.
+Ideological and moral, vibratory and cultural differences will not, for
+while, may fraternity help and love to ampare.
 
-Assim, perdoemos aos nossos perseguidores. Eles já são infelizes, em razão do
-que cultivam no íntimo e do que, realmente, são.
+So let us forgive our pursuers. They are already unhappy, because of the
+that cultivate in the intimate and what they really are.
 
-Prossigamos em confiança, sem nos determos para examinar as incompreensões do
-caminho.
+Let us continue in confidence, without having to comply to examine the misunderstandings of the
+Way.
 
-Os apedrejadores adotam a tarefa de somente agredir.
+Stonings adopt the task of only assaulting.
 
-Sejamos aqueles que avançam, compreendendo.
+Let's be the ones who advance, understanding.
 
-Todo o mal que nos façam, não nos fará mal. Pelo contrário, nos promoverá a
-estágio superior, se soubermos enfrentar a situação.
+Whatever harm they do to us, it won't hurt us. On the contrary, it will promote us to
+higher education, if we know how to face the situation.
 
-O nosso exemplo de humildade será um chamado à renovação, à paz.
+Our example of humility will be a call to renewal, peace.
 
-Não nos detenhamos, nem nos entristeçamos diante das incompreensões.
+Let us not stop, nor grieve in the face of misunderstandings.
 
-Prossigamos com alegria íntima pelo roteiro que elegemos e não olhemos para
-trás.
+Let us proceed with intimate joy through the script we elect and do not look at
+Back.
 
 
 ## Source

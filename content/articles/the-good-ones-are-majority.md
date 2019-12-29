@@ -11,80 +11,80 @@ topics:
 ---
 
 
-Uma campanha de marketing nacional trouxe uma verdade bela e esperançosa.
+A national marketing campaign has brought a beautiful and hopeful truth.
 
-Espalhados pelas cidades, vários outdoors revelavam alguns dados estatísticos
-muito interessantes. Eis alguns deles:
+Scattered throughout the cities, several billboards revealed some statistical data
+very interesting. Here are some of them:
 
-Para cada pessoa dizendo que tudo vai piorar, existem cem casais planejando ter
-filhos.
+For every person saying that everything will get worse, there are a hundred couples planning to have
+Children.
 
-Para cada corrupto existem oito mil doadores de sangue.
+For every corrupt there are 8,000 blood donors.
 
-Enquanto alguns destroem o meio ambiente, 98% das latinhas de alumínio já são
-recicladas no Brasil.
+While some destroy the environment, 98% of aluminum cans are already
+recycled in Brazil.
 
-Para cada tanque fabricado no mundo, são feitos cento e trinta e um mil bichos
-de pelúcia.
+For each tank manufactured in the world, one hundred and thirty-one thousand animals are made
+plush.
 
-Na Internet, a palavra amor tem mais resultados do que a palavra medo.
+On the Internet, the word love has more results than the word fear.
 
-Para cada muro que existe no mundo, se colocam duzentos mil tapetes escritos
-"bem-vindo".
+For every wall that exists in the world, two hundred thousand rugs are placed written
+"welcome."
 
-Enquanto um cientista desenha uma nova arma, há um milhão de mães fazendo
-pastéis de chocolate.
+While a scientist draws a new weapon, there are a million mothers doing
+chocolate crayons.
 
-Existem razões para acreditar. Os bons são maioria.
+There are reasons to believe. The good ones are majority.
 
                                    *   *   *
 
-Estamos precisando de visão otimista e positiva como esta em nosso mundo.
+We are in need of optimistic and positive vision like this in our world.
 
-Aqueles que desejam ver o mundo em pânico e se alimentam de notícias ruins -
-pois dizem que são essas que vendem - não podem mais controlar nossos
-sentimentos.
+Those who wish to see the world panic and feed on bad news -
+because they say they are the ones who sell -- they can no longer control our
+Feelings.
 
-Nós, como consumidores de notícias, de informações, devemos mostrar que
-desejamos também ver o lado bom do mundo, da vida, das pessoas.
+We, as consumers of news, information, should show that
+we also wish to see the good side of the world, of life, of people.
 
-Se analisarmos qualquer noticiário, seja local ou nacional, iremos ainda
-perceber a grande dominação das notícias ruins, como se o mundo estivesse
-vivendo o caos absoluto.
+If we look at any news, whether local or national, we will still
+realize the great domination of bad news, as if the world were
+living the absolute chaos.
 
-Não é bem assim. Muito de bom está sendo feito no mesmo instante em que ocorrem
-assassinatos, acidentes, crises políticas, etc.
+It's not like that. Very good is being done at the same time they occur
+murders, accidents, political crises, etc.
 
-O bem está sendo construído no mundo, sim, mesmo os pessimistas e terroristas
-de plantão dizendo que não ou mesmo se negando a ver.
+Good is being built in the world, yes, even pessimists and terrorists
+on duty saying no or even refusing to see.
 
-O que acontece é que, muitas vezes, os bons ainda são tímidos e receosos. Isso
-os impede de se sobrepor aos maus bulhentos e arrojados.
+What happens is that often the good ones are still shy and afraid. Right
+prevents them from overlapping the evil bulhentos and dashing.
 
-Allan Kardec, em O livro dos Espíritos, questiona, no item 932:
+Allan Kardec, in The Book of Spirits, questions, in item 932:
 
-Por que, no mundo, os maus têm geralmente maior influência sobre os bons?
+Why, in the world, bad people generally have greater influence on the good?
 
-Eis a resposta que obteve dos Espíritos:
+Here's the answer you got from the Spirits:
 
-É pela fraqueza dos bons. Os maus são intrigantes e audaciosos, os bons são
-tímidos. Quando estes últimos quiserem, dominarão.
+It's for the weakness of the good. The bad are intriguing and audacious, the good are
+Shy. When the latter wants it, they will dominate.
 
-Permaneçamos refletindo sobre esta última afirmação: Quando os bons quiserem,
-dominarão.
+Let us continue to reflect on this latest statement: When the good ones want,
+will dominate.
 
-Reflitamos qual nosso papel nesta mudança. O que posso fazer para ter parte
-nesta dominação pacífica e definitiva do bem na face da Terra.
+Let us reflect our role in this change. What can I do to get part
+in this peaceful and definitive domination of good on the face of the earth.
 
-Permitamos que nossos gestos de amor ganhem o mundo e mostrem à sombra que seus
-dias de dominação estão contados.
+Let us allow our gestures of love to win the world and show in the shadow that their
+domination days are numbered.
 
-Raia o sol de uma Nova Era. O tempo do amor finalmente chegou.
+Streak the sun of a New Age. The time of love has finally arrived.
 
-Façamos parte desta transformação de alegria que tomará conta do orbe. Amemos
-mais. Participemos mais. Sorriamos mais.
+Let us be part of this transformation of joy that will take care of the orb. Love
+More. Let's take a closer look. We smiled more.
 
- 
+
 ## Source
 Redação do Momento Espírita com citação do item 932 de O livro dos Espíritos,
 de Allan Kardec, ed. Feb.

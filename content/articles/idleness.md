@@ -14,94 +14,94 @@ topics:
 - patience
 ---
 
-Os dias de hoje têm muitas facilidades.
+Today have many facilities.
 
-Os meios de comunicação nos permitem saber de tudo o que acontece no mundo, no
-momento em que está ocorrendo.
+The media let us know everything that happens in the world, in the
+moment it's taking place.
 
-Com as conexões via computador, qualquer pessoa pode navegar pelo mundo apenas
-acionando algumas teclas.
+With computer connections, anyone can navigate the world only
+triggering some keys.
 
-Jornais e revistas chegam em nossas casas, sem que precisemos sair para
-comprá-los.
+Newspapers and magazines arrive in our homes, without having to leave for
+buy them.
 
-Através das tv's a cabo e satélite, vários canais de televisão do mundo inteiro
-estão ao nosso alcance, basta que acionemos alguns botões.
+Through cable and satellite TV, various television channels from all over the world
+are within our reach, we just have to activate some buttons.
 
-O serviço de entregas por telefone é bem aceito pela população.
+The telephone delivery service is well accepted by the population.
 
-Aumentam as ofertas e os produtos. Flores, remédios, alimentos e outras tantas
-mercadorias chegam às nossas portas depois de ligeiro telefonema.
+Increase offers and products. Flowers, medicines, food and so many others
+goods arrive at our doors after slight phone call.
 
-São as facilidades que, sem dúvida alguma, o progresso trouxe para o conforto
-geral.
+It is the facilities that, without a doubt, progress has brought to comfort
+General.
 
-Todavia, muito cuidado para que tais comodidades não se convertam em
-ociosidade, em preguiça.
+However, very careful that such amenities do not become
+idleness, in laziness.
 
-A acomodação ociosa violenta o caráter moral do homem e desarticula as fibras e
-músculos orgânicos destinados ao movimento, à ação.
+Violent idle accommodation the moral character of man and disarticulates the fibers and
+organic muscles intended for movement, action.
 
-O homem tem como destino o progresso constante.
+Man's destiny is to constant progress.
 
-É ótimo que aproveitemos as facilidades que nos são oferecidas no campo
-material, mas é urgente que busquemos alcançar novos degraus no campo
-espiritual, ético e moral.
+It's great that we take advantage of the facilities offered to us in the field
+material, but it is urgent that we seek to reach new steps in the field
+spiritual, ethical and moral.
 
-É importante que saibamos empregar bem o tempo que a tecnologia nos poupa.
+It is important that we know how to use well the time that technology saves us.
 
-Mais será exigido de quem mais tem. É afirmativa de Jesus.
+More will be required of those who have the most. It's Jesus' statement.
 
-Todos os benefícios ofertados à Humanidade são permitidos pela Divindade, e
-devem servir como meio para se alcançar o verdadeiro progresso, que consite na
-melhoria intelectual e moral.
+All the benefits offered to humanity are allowed by divinity, and
+should serve as a means of achieving true progress, which is based on the
+intellectual and moral improvement.
 
-Lutemos, pois, para que não sejamos dominados pela acomodação. Busquemos
-desenvolver os valores duradouros do bem, da honradez, da honestidade, da
-bondade, da dignidade, da cultura útil, do conhecimento.
+Let us therefore fight so that we are not dominated by accommodation. Seek
+develop the lasting values of good, honor, honesty,
+goodness, dignity, useful culture, knowledge.
 
-Essas observações servem também para os nossos filhos. Cuidemos para que não
-caiam nas malhas da preguiça, do marasmo.
+These observations also serve our children. Let's take care that you don't
+fall into the meshes of laziness, marasmus.
 
-Incentivemos a leitura edificante, ensinando-os que ler um livro pela primeira
-vez é conhecer um novo amigo. Ler um livro pela segunda vez é encontrar um
-velho amigo.
+Let us encourage uplifting reading by teaching them to read a book for the first
+instead is to meet a new friend. Reading a book for the second time is finding a
+old friend.
 
-Com todo nosso afeto, mostremos-lhes que todos fazemos parte de uma sociedade,
-e que somos interdependentes.
+With all our affection, we show you that we are all part of a society,
+and that we are interdependent.
 
-Para a construção de uma sociedade melhor, é necessário que todos contribuamos
-ativamente com nosso tijolo de amor, ainda que pequeno, mas de suma
-importância.
+For the construction of a better society, we must all contribute to
+actively with our brick of love, albeit small, but of
+Importance.
 
-Utilizar bem o tesouro das horas, em nosso e em benefício dos que nos rodeiam,
-eis a grande decisão que nos cabe.
+Make good use of the hour's treasure, for us and for the benefit of those around us,
+this is the great decision that is up to us.
 
-Exercitar a alma disciplinando as emocões, treinando a paciência, o perdão, a
-humildade, para que nosso perfil seja condizente com nossos anseios superiores.
+Exercise the soul by disciplined emocões, training patience, forgiveness,
+humility, so that our profile may be consistent with our superior longings.
 
-Enfim, fazer luz em nossa intimidade e afastar as trevas da acomomodação
-atrevida, que teima em se fazer presente em nossas vidas.
+Anyway, make light in our intimacy and ward off the darkness of the warmness
+sassy, who fears making himself present in our lives.
 
-Diz um provérbio chinês que há três coisas que nunca voltam: a flecha lançada,
-a palavra pronunciada e a oportunidade perdida.
+Says a Chinese proverb that there are three things that never come back: the arrow cast,
+the word pronounced and the opportunity lost.
 
-Por tudo isso, diga não à ociosidade.
+For all this, say no to idleness.
 
                                     *  *  *
 
-Mesmo que nosso corpo esteja inerte, o pensamento não para nunca.
+Even if our body is inert, thought never stops.
 
-É por esse motivo que muitas pessoas, que não se entregam à acomodação e ao
-marasmo, ficam lúcidas apesar do envelhecimento do corpo físico.
+That is why many people who do not give in to the accommodation and
+marasmus, they are lucid despite the aging of the physical body.
 
-Ao contrário, as que acham que nada mais podem fazer e dão por cumprida sua
-etapa, têm o cérebro atrofiado e a esclerose se manifesta mais cedo.
+On the contrary, those who think that nothing else can do and properly give their
+stage, have atrophied brain and sclerosis manifests earlier.
 
-Assim, importa que mantenhamos o cérebro e as mãos sempre ocupados, com coisas
-positivas, para que a lucidez não nos abandone jamais.
+So it matters that we keep our brains and hands always busy, with things
+so that lucidity never abandons us.
 
- 
+
 
 ## Source
 Redação do Momento Espírita.

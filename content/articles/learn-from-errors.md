@@ -14,99 +14,99 @@ topics:
 - wisdom
 ---
 
-A perfeição ainda é um estado muito distante da Humanidade.
+Perfection is still a very distant state of humanity.
 
-Todos os habitantes da Terra possuem fissuras morais e cometem equívocos.
+All the inhabitants of the Earth have moral fissures and make mistakes.
 
-Na verdade, errar não é um escândalo, no contexto das Leis Divinas.
+In fact, making mistakes is not a scandal in the context of Divine Laws.
 
-Deus não criou as criaturas perfeitas, mas perfectíveis.
+God did not create the perfect creatures, but perfectible.
 
-Os Espíritos encarnam e reencarnam infinitas vezes para desenvolver as virtudes
-cujo potencial trazem em seu íntimo.
+Spirits embody and reincarnate endlessly to develop virtues
+whose potential they bring in their hearts.
 
-A fim de que cresçam em vontade, sabedoria e amor, dispõem de livre-arbítrio.
+In order to grow in will, wisdom and love, they have free will.
 
-Caso não pudessem fazer opções, seriam simples marionetes.
+If they couldn't make options, they'd be simple puppets.
 
-Como podem optar, é natural que nem sempre sejam felizes em seus atos.
+As you can choose, it is natural that they are not always happy in their acts.
 
-O outro lado desse processo de aprendizado é a responsabilidade.
+The other side of this learning process is responsibility.
 
-Ao desenvolver a consciência e a vontade, a influência dos instintos primitivos
-declina e a liberdade se expande.
+By developing consciousness and will, the influence of primitive instincts
+declines and freedom expands.
 
-A criatura torna-se cada vez mais responsável por seus atos e pensamentos.
+The creature becomes increasingly responsible for its acts and thoughts.
 
-Os equívocos são naturais para quem transita da ignorância para a sabedoria.
+Misconceptions are natural for those who move from ignorance to wisdom.
 
-Apenas é necessário reparar todos os estragos causados.
+It is only necessary to repair all the damage caused.
 
-Justamente por isso constitui sinal de imaturidade recusar-se a admitir os
-próprios erros.
+That is why it is a sign of immaturity refusing to admit the
+mistakes themselves.
 
-A humildade constitui pressuposto do aprendizado.
+Humility is an assumption of learning.
 
-Quem se imagina infalível e superior a todos mantém-se estagnado.
+Anyone who imagines himself infallible and superior to all remains stagnant.
 
-Para entrar em sintonia com a vida, impõe-se atentar para a lei do progresso.
+To tune in with life, attention must be paid to the law of progress.
 
-O Universo todo é dinâmico.
+The whole universe is dynamic.
 
-As espécies animais e vegetais aperfeiçoam-se incessantemente.
+Animal and plant species are constantly perfected.
 
-Mesmo a configuração física da Terra não é estática.
+Even the physical configuration of the Earth is not static.
 
-Da mesma forma que as espécies inferiores, o homem possui um papel a
-desempenhar no concerto da Criação.
+In the same way as the lower species, man plays a role to
+play in the Creation concert.
 
-Ele está inserido na natureza e deve ser um agente do progresso.
+He is inserted into nature and must be an agent of progress.
 
-Mas para impulsionar o progresso é necessário estar sempre evoluindo.
+But to drive progress it is necessary to be constantly evolving.
 
-Assim, para não trair a missão de sua existência, proponha-se a ser cada vez
-melhor.
+Thus, in order not to betray the mission of its existence, propose to be increasingly
+Better.
 
-Admita sua imperfeição, mas não se acomode com ela.
+Admit her imperfection, but don't settle for her.
 
-Por vezes você erra, mas isso é normal.
+Sometimes you make a mistake, but that's normal.
 
-Cuide para aprender com seus erros, a fim de não repeti-los inúmeras vezes.
+Take care to learn from your mistakes in order not to repeat them countless times.
 
-E também assuma as consequências, boas ou más, de seus atos.
+And also assume the consequences, good or bad, of your deeds.
 
-Repare todos os estragos que eventualmente causar.
+Notice all the damage you may cause.
 
-Pague suas dívidas, peça desculpas, recomponha-se perante seus semelhantes.
+Pay your debts, apologize, pull yourself in front of your fellow men.
 
-Sem dúvida é necessário algum esforço para reconhecer um equívoco e retificar o
-próprio caminho.
+It is undoubtedly necessary some effort to recognize a misunderstanding and rectify the
+own way.
 
-Mas você viverá para sempre.
+But you will live forever.
 
-Certamente deseja, algum dia, ser uma pessoa sábia e pacificada.
+I certainly want to be a wise and pacified person someday.
 
-Como ninguém fará o seu trabalho, esforce-se desde já para ser assim.
+Since no one will do their job, try hard enough to be like this.
 
-Ao se recusar a admitir um equívoco, você retarda a realização de seu luminoso
-destino.
+By refusing to admit a misunderstanding, you delay the realization of your luminous
+Destination.
 
-Compenetre-se em seu papel de aprendiz e demonstre boa vontade para com a vida.
+Get into your role as an apprentice and show goodwill towards life.
 
-Não se apegue a coisas pequenas, como a vaidade e o orgulho.
+Don't cling to small things like vanity and pride.
 
-Tais fissuras morais somente o infelicitam.
+Such moral fissures only congratulate him.
 
-Aprenda a fazer o bem sem qualquer interesse pessoal ou sentimento oculto.
+Learn to do good without any personal interest or hidden feeling.
 
-Ame e respeite a vida, seja nobre e solidário.
+Love and respect life, be noble and supportive.
 
-No início pode ser necessária alguma disciplina.
+At first some discipline may be required.
 
-Mas com o tempo você incorporará esse modo de viver e será uma pessoa
-maravilhosa.
+But over time you will incorporate that way of living and you will be a person
+Wonderful.
 
-Eis uma meta pela qual vale a pena lutar.
+Here's a goal worth fighting for.
 
 ## Source
 Redação do Momento Espírita.

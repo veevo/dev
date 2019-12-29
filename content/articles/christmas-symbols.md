@@ -10,72 +10,72 @@ topics:
 - mother
 ---
 
-O Natal, que comemoramos a cada ano, apresenta alguns aspectos pouco
-conhecidos. Em especial no que diz respeito aos seus símbolos.
+Christmas, which we celebrate each year, presents some little aspects
+Known. Especially with regard to their symbols.
 
-Por exemplo, a árvore de Natal. Alguns acreditam que ela se originou no Século
-VIII. Teria sido o missionário São Bonifácio que a idealizou, em substituição
-ao culto realizado nas florestas ao deus Odin.
+For example, the Christmas tree. Some believe it originated in the Century
+VIII. It would have been the missionary Saint Boniface who conceived her, in place of
+to the worship carried out in the forests to the god Odin.
 
-Outros afirmam que foi Martinho Lutero o seu idealizador, no Século XVI.
+Others claim that martin luther was his creator in the 16th century.
 
-Registra a História que, na noite de Natal, Lutero caminhava por uma floresta
-de pinheiros. Olhando para o céu, viu as estrelas brilhando ainda mais belas
-através dos galhos cobertos de neve.
+Records the Story that, on Christmas Eve, Luther walked through a forest
+pine trees. Looking up at the sky, he saw the stars shining even more beautiful
+through the snow-covered branches.
 
-Encantado com a beleza do quadro, cortou um galho, levou-o para casa e usou
-velas acesas para imitar o brilho dos astros que presenciara.
+Delighted with the beauty of the painting, cut a branch, took him home and used
+candles lit to mimic the brilliance of the stars he had witnessed.
 
-A árvore de Natal veio para a América, na época colonial, trazida pelos
-alemães.
+The Christmas tree came to America, in colonial times, brought by the
+Germans.
 
-O presépio, por sua vez, teve origem no Século XIII. Foi na Itália. Na noite de
-24 para 25 de dezembro de 1224, Francisco de Assis teve a ideia de representar
-o nascimento de Cristo.
+The nativity scene, in turn, originated in the 13th century. It was in Italy. On the night of
+December 24 to 25, 1224, Francisco de Assis had the idea of representing
+the birth of Christ.
 
-Preparou uma encenação, num estábulo verdadeiro, da manjedoura, do boi e do
-jumento. A tempos regulares ele mesmo aparecia em cena e falava a respeito do
-nascimento de Jesus.
+He prepared a staging, in a true stable, of manger, ox and
+Ass. At regular times he himself appeared on the scene and spoke about the
+birth of Jesus.
 
-Ainda no Século XIII, a representação idealizada pelo fundador das Ordens
-Franciscanas ficou conhecida em toda a Europa.
+Also in the 13th century, the representation conceived by the founder of the
+Franciscans became known throughout Europe.
 
-Os cartões de Natal surgiram na Inglaterra por volta de 1843. A iniciativa foi
-do diretor do museu britânico de Londres, sir Henry Cole. Foram popularizados e
-começaram a ser impressos em 1851.
+Christmas cards appeared in England around 1843. The initiative was
+director of the British Museum of London, Sir Henry Cole. They were popularized and
+began to be printed in 1851.
 
-Dar presentes é uma tradição que tem origem em tempos recuados. Fazia parte das
-saturnálias, festas orgíacas de Roma, como também de festividades nórdicas.
+Giving gifts is a tradition that originates in times indented times. It was part of the
+saturnalias, festivals of Rome, as well as Nordic festivities.
 
-Entre os cristãos, o costume iniciou no Século VII, com o papa Bonifácio, que
-presenteava os necessitados, em nome do Divino Aniversariante.
+Among Christians, the custom began in the 7th century, with Pope Boniface, who
+gifted those in need in the name of the Divine Birthday boy.
 
-As velas acesas no Natal para enfeitar as árvores e outros arranjos têm origem
-comum: o culto ao fogo.
+The candles lit at Christmas to adorn the trees and other arrangements originate
+common: the fire cult.
 
-Só o tempo fez desaparecer as orgias pagãs e ajudou a apagar as recordações
-sobre a origem do fogo, que era o velho culto ao sol.
+Only time made the pagan disappear and helped erase the memories
+upon the origin of the fire, which was the old cult of the sun.
 
-Desde que os símbolos não remontam à época do Cristo, conclui-se que Ele, em
-essência, nada tem a ver com nenhum deles.
+Since the symbols do not go back to the time of Christ, it is concluded that He, in
+essence, has nothing to do with any of them.
 
-Assim, comemorar o Natal nos permite ornamentar o lar com luzes, cores,
-enfeites. Mas importante não esquecer de preparar o coração.
+So celebrating Christmas allows us to ornament the home with lights, colors,
+Ornaments. But it's important not to forget to prepare the heart.
 
-Preparar a ceia de Natal para parentes e amigos, mas não esquecer de, em nome
-do Divino Aniversariante, saciar a fome de quem a sofre.
+Prepare Christmas dinner for relatives and friends, but do not forget, in name
+of the Divine Birthday, to satisfy the hunger of those who suffer it.
 
                                    *   *   *
 
-Você sabia que, em 1870, durante a guerra entre a Alemanha e a França, um
-oficial prussiano idealizou cartões de Natal a partir de capas de alguns
-cadernos de colégio?
+Did you know that in 1870, during the war between Germany and France, a
+Prussian official idealized Christmas cards from covers of some
+high school notebooks?
 
-Distribuiu aos seus soldados para que eles pudessem escrever aos seus parentes.
+He distributed it to his soldiers so they could write to their relatives.
 
-Você pode imaginar a emoção de uma mãe, uma esposa, a namorada, irmãos
-recebendo uma mensagem de Natal, escrita de próprio punho, por seu amor, de uma
-frente de batalha?
+You can imagine the emotion of a mother, a wife, girlfriend, brothers
+getting a Christmas message, written of his own fist, by his love, of a
+battle front?
 
 ## Source
 Redação do Momento Espírita.

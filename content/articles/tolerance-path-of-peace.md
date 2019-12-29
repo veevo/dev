@@ -20,75 +20,75 @@ topics:
 - family
 ---
 
-Como anda nossa tolerância?
+How's our tolerance?
 
-Temos dificuldade em aceitar quem pense diferente de nós?
+Do we have a hard time accepting anyone who thinks differently from us?
 
-Temos dificuldade para suportar quem saiba menos, ou quem pareça ser menos
-inteligente?
+We have difficulty supporting those who know less, or who seems to be less
+Smart?
 
-Precisamos falar sobre essa virtude que é o mínimo necessário para uma
-convivência saudável, sem tantos atritos e desencontros.
+We need to talk about this virtue which is the minimum necessary for a
+healthy coexistence, without so much friction and disagreements.
 
-Tolerar é aceitar o que poderia ser condenado, é deixar fazer o que se poderia
-impedir ou combater.
+To tolerate is accepting what could be condemned, is to let do what one could
+prevent or combat.
 
-Portanto, é renunciar a uma parte de seu poder, de sua força, de sua cólera…
-Assim, toleramos os caprichos de uma criança ou as posições de um adversário.
+Therefore, it is to renounce a part of his power, of his strength, of his anger...
+Thus, we tolerate the whims of a child or the positions of an opponent.
 
-Mas isso só é virtuoso se assumirmos, como se diz, se superarmos nosso próprio
-interesse, nosso próprio sofrimento, nossa própria impaciência.
+But that is only virtuous if we assume, as they say, if we overcome our own
+interest, our own suffering, our own impatience.
 
-A tolerância tem a ver com a humildade, ou antes, dela decorre.
+Tolerance has to do with humility, or rather, it stems from it.
 
-De acordo com Voltaire: “Devemos tolerar-nos mutuamente, porque somos todos
-fracos, inconsequentes, sujeitos à mutabilidade, ao erro.”
+According to Voltaire: "We must tolerate each other, because we are all
+inconsequential, mutability, error."
 
-Humildade e misericórdia andam juntas, e esse conjunto, no que se refere ao
-pensamento, conduz à tolerância.
+Humility and mercy go together, and this set, with regard to the
+thought, leads to tolerance.
 
-“Tolerar não é, evidentemente, um ideal”, já notava Abauzit, “não é um máximo,
-é um mínimo.”
+"Tolerating is, of course, not an ideal," Abauzit noted, "is not a maxim,
+is a minimum."
 
-Se a palavra tolerância se impôs, entretanto, é sem dúvida porque de amor ou de
-respeito todos se sentem muito pouco capazes, em se tratando de seus
-adversários. Ora, é em relação a eles, primeiramente, que a tolerância age…
+If the word tolerance was imposed, however, it is undoubtedly because of love or
+respect everyone feels very incapable in dealing with their
+Opponents. Now, it is in relation to them, first, that tolerance acts...
 
-“Esperando o belo dia em que a tolerância se incline ao amor”, conclui
-Jankélévitch, diremos que a tolerância, a prosaica tolerância é aquilo que
-melhor podemos fazer!
+"Waiting for the beautiful day when tolerance leans to love," concludes
+Jankélévitch, we will say that tolerance, prosaic tolerance is what
+better we can do!
 
-Tolerar – por menos exaltante que seja esta palavra – é, pois, uma solução
-passável; à espera de melhor, isto é, à espera de que os homens possam se amar,
-ou simplesmente se conhecer e se compreender, demo-nos por felizes com que eles
-comecem a se suportar.
+To tolerate – no less exalting that this word is – is therefore a solution
+passable; waiting for better, that is, waiting for men to be loved,
+or simply get to know each other and understand each other, we demo us by happy with that they
+begin to endure.
 
-É pequena virtude, mas indispensável. É apenas um começo, mas o é.”
+It is little virtue, but indispensable. It's just a start, but it is."
 
                                    *   *  *
 
-Tolerância é caminho de paz.
+Tolerance is a path of peace.
 
-Não julguemos esse ou aquele companheiro ignorante ou desinformado, porquanto,
-se aprendemos a ouvir, já sabemos compreender.
+Let us not judge this or that ignorant or uninformed companion, for,
+if we learn to listen, we already know how to understand.
 
-Diante de criaturas que nos enderecem qualquer agressão, conversemos com
-naturalidade, sem palavras de revide que possam desapontar o interlocutor. 
+In the face of creatures that address us any aggression, let us talk to
+of naturalness, without words of review that they can disappoint the interlocutor. 
 
-Perante qualquer ofensa, não percamos o sorriso fraternal e articulemos alguma
-frase, capaz de devolver o ofensor à tranquilidade.
+Before any offence, let us not lose our fraternal smile and articulate some
+phrase, able to return the offender to tranquility.
 
-Nos empecilhos da existência, toleremos os obstáculos sem rebeldia e eles se
-farão facilmente removíveis. 
+In the obstacles of existence, we will tolerate the obstacles without rebellion and they
+will easily make removable. 
 
-No serviço profissional, suportemos com paciência o colega difícil, e, aos
-poucos, em nos observando a calma e a prudência, ele mesmo transformará para
-melhor as próprias disposições. 
+In professional service, we patiently support the difficult colleague, and,
+few, in observing calm and prudence, he himself will transform for
+the provisions themselves. 
 
-Em família, toleremos os parentes menos simpáticos e, com os nossos exemplos de
-abnegação, conquistaremos de todos eles a bênção da simpatia. 
+As a family, we will tolerate the less friendly relatives and, with our examples of
+selflessness, we will conquer from all of them the blessing of sympathy. 
 
-Trabalhemos em nós essa virtude, a partir de agora. Pensemos nisso.
+Let us work on this virtue from now on. Let's think about it.
 
 ## Source
 Redação do Momento Espírita, com base no cap. Tolerância, do livro

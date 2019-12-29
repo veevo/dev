@@ -8,84 +8,84 @@ topics:
 ---
  
 
-A tradição bíblica ensina que antes da chegada de João Batista houve um grande
-silêncio profético.
+Biblical tradition teaches that before the arrival of John the Baptist there was a great
+prophetic silence.
 
-Por aproximadamente quatrocentos anos, nenhum profeta falou ao povo.
+For about four hundred years, no prophet has spoken to the people.
 
-Finalmente, João Batista começou a pregar e causou grande comoção.
+Finally, John the Baptist began to preach and caused great commotion.
 
-Muitos até achavam que ele era o Salvador longamente esperado.
+Many even thought he was the long-awaited Savior.
 
-Contudo, quando Jesus o procurou para ser batizado, João foi enfático em
-apontá-Lo como o que haveria de vir.
+However, when Jesus sought him to be baptized, John was emphatic in
+point him as what would come.
 
-Em um momento posterior, surgiu certa crise envolvendo os discípulos de João, a
-respeito da figura de Jesus.
+At a later time, a crisis arose involving John's disciples, the
+respect of the figure of Jesus.
 
-O Batista novamente não titubeou e afirmou com clareza:
+The Baptist again did not title and stated clearly:
 
-É necessário que Ele cresça e que eu diminua.
+It is necessary for Him to grow up and i will decrease.
 
-É interessante observar que o famoso profeta não estava procurando um caminho
-fácil para seguir.
+It is interesting to note that the famous prophet was not looking for a path
+easy to follow.
 
-Ele não se tornou inerte, não fugiu de seus testemunhos.
+He did not become inert, did not shy away from his testimonies.
 
-Continuou a pregar com desassombro, até que seu falar claro fez com que os
-poderosos da época decidissem assassiná-lo.
+He continued to preach with dismay, until his clear talk caused the
+of the time decided to assassinate him.
 
-Mas nem por isso deixou de reconhecer o lugar que lhe cabia na concretização de
-um ideal superior.
+But it did not fail to recognize the place that was due to it in the realization of
+a superior ideal.
 
-Essa postura de João Batista pode suscitar saudáveis reflexões.
+This posture of John the Baptist can give rise to healthy reflections.
 
-Muitas criaturas se dispõem a fazer o bem ou a trabalhar por um ideal.
+Many creatures are willing to do good or work for an ideal.
 
-Entretanto, exigem ocupar lugares de importância.
+However, they demand to occupy places of importance.
 
-Desejam servir, sim.
+They want to serve, yes.
 
-Mas, desde que isso lhes propicie brilho e reconhecimento.
+But as long as it gives them brilliance and recognition.
 
-Quando se apresenta alguém mais capacitado para o desempenho de uma tarefa
-considerada importante, relutam em ceder o lugar.
+When you present someone more capable of performing a task
+considered important, they are reluctant to give way to the place.
 
-Se uma nova liderança surge, com grande potencial, tratam de boicotá-la.
+If a new leadership emerges, with great potential, they try to boycott it.
 
-Fazem-se severos críticos de tudo e de todos que podem lhes fazer sombra.
+They are harshly critical of everything and everyone who can cast their shadow.
 
-É como se o bem somente pudesse se realizar através delas.
+It's as if good can only be accomplished through them.
 
-Tal gênero de conduta sinaliza que a vontade de servir-se de uma causa é maior
-do que o desejo de servi-la.
+Such a type of conduct signals that the willingness to serve as a cause is greater
+than the desire to serve it.
 
-Entretanto, na tarefa de construção de um mundo melhor há espaço para todos.
+However, in the task of building a better world there is room for everyone.
 
-A verdadeira recompensa pelo amor do belo e do bem é a paz interior.
+The real reward for the love of beautiful and good is inner peace.
 
-O reconhecimento do mundo é transitório e costuma representar principalmente um
-fardo a ser suportado.
+The recognition of the world is transitory and usually represents mainly a
+burden to be borne.
 
-Não compensa viver em função dele.
+It's not worth living on his own.
 
-Importa aprender a servir, onde e como se fizer necessário.
+It is important to learn to serve, where and how necessary it is.
 
-Se a tarefa exigir alguma exposição, manter a modéstia.
+If the task requires some exposure, maintain modesty.
 
-Quando o momento de brilho passar, permanecer no serviço, ainda que em posição
-singela.
+When the moment of brightness passes, stay in service, albeit in position
+Simple.
 
-Assimilar que o bem não tem dono e que sua concretização é uma conquista da
-Humanidade inteira.
+I assimilate that good has no owner and that its realization is an achievement of the
+Whole humanity.
 
-Rejubilar-se com o aparecimento de pessoas com grande potencial e desejosas de
-trabalhar.
+Rejoice in the appearance of people with great potential and desirous of
+Work.
 
-Deixar que cresçam e alegrar-se mesmo com o crescimento delas.
+Let them grow and rejoice even with their growth.
 
-No momento certo, saber tornar-se obscuro, a fim de que uma luz maior brilhe,
-em benefício de todos.
+At the right time, knowing how to become obscure, so that a greater light shines,
+for the benefit of all.
 
 ## Source
 Redação do Momento Espírita.  

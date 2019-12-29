@@ -16,80 +16,80 @@ topics:
 - mother
 ---
 
-Desde pequenos, um hábito se instala em nós: resolver problemas comprando
-coisas. Você já percebeu como essa situação é bastante comum?
+From a young age, a habit settles on us: solving problems by buying
+Things. Have you noticed how fairly common this situation is?
 
-Começa quando as crianças veem anúncios na TV e pressionam os pais para que
-lhes comprem brinquedos e doces.
+It starts when children watch ads on TV and pressure parents to
+buy them toys and sweets.
 
-Por sua vez, pais e mães também são levados a acreditar que seus filhos serão
-mais felizes se tiverem mais e mais coisas materiais.
+In turn, fathers and mothers are also led to believe that their children will be
+happier if they have more and more material things.
 
-É o consumismo se instalando. Em vez de enfrentarem essa crise educando a
-criança, em geral os pais a satisfazem.
+It's consumerism settling in. Instead of facing this crisis by educating the
+parents generally satisfy it.
 
-É uma atitude que reforça a crença de que se pode ter tudo e que as coisas
-materiais são a razão da felicidade.
+It is an attitude that reinforces the belief that one can have everything and that things
+materials are the reason for happiness.
 
-Muitos pais, inclusive, tentam compensar as longas horas ausentes de casa
-fazendo compras exageradas.
+Many parents even try to make up for the long hours away from home
+making overshopping.
 
-Enchem os filhos de objetos e, rapidamente, as crianças aprendem a negociar.
-Tornam-se cada vez mais exigentes e consumistas.
+They fill their children with objects, and quickly, children learn to negotiate.
+They become increasingly demanding and consumerist.
 
-Na adolescência, as compras continuam: aparelhos eletrônicos substituem os
-brinquedos. São celulares, computadores e jogos eletrônicos de imediato
-substituídos, quando surgem novos modelos.
+As a teenager, purchases continue: electronic devices replace
+Toys. They are mobile phones, computers and video games immediately
+replaced when new models appear.
 
-As mesadas se tornam maiores e logo os filhos desaparecem da casa, em companhia
-de amigos. Vivem em noitadas intermináveis, com fácil acesso ao álcool, fumo e
-drogadição.
+Allowances become bigger and soon the children disappear from the house, in company
+of friends. They live in endless people, with easy access to alcohol, smoking and
+drug addiction.
 
-O passo seguinte é comprar-lhes um carro, um apartamento...
+The next step is to buy them a car, an apartment...
 
-E cabe então a pergunta: nessas quase duas décadas em que vivem com os pais, o
-que aprenderam? Que exemplos receberam?
+And then the question is: in these almost two decades in which they live with their parents, the
+who learned? What examples did you receive?
 
-Será que conhecem verdadeiramente seus pais? Estão preparados para amar ou para
-comprar?
+Do you really know your parents? They are prepared to love or to
+Buy?
 
-E o que dizer dos pais? Será que realmente conhecem seus filhos? Sabem de seus
-sonhos e aspirações? Já ouviram suas frustrações e problemas?
+And what about the parents? Do they really know your children? You know your
+dreams and aspirations? Have you heard your frustrations and problems?
 
-Chega-se então ao mundo adulto. E as situações infelizes continuam a ser
-resolvidas à base de compras.
+Then you reach the adult world. And unfortunate situations continue to be
+resolved to the purchase basis.
 
-Roupas e sapatos, carros, vinhos, joias. A ostentação esconde a infelicidade.
+Clothes and shoes, cars, wines, jewelry. Ostentation hides unhappiness.
 
-Falsa é essa felicidade baseada em ter coisas. Ela estimula o materialismo e
-destrói o que temos de mais belo: a convivência familiar, a construção de
-lembranças preciosas.
+False is this happiness based on having things. It stimulates materialism and
+destroys what we have most beautiful: family coexistence, the construction of
+precious memories.
 
-Amar a família inclui sustentá-la em suas necessidades, prover o estudo dos
-filhos, garantir alimentação e lazer. Mas, muito diferente é substituir a
-presença do amor pelo presente – por mais ricamente embalado que seja.
+Loving the family includes supporting it in their needs, providing for the study of
+children, ensure food and leisure. But, very different is to replace the
+presence of love for the present – however richly packed it may be.
 
-Um filho é uma dádiva divina. Uma responsabilidade que inclui não apenas
-dar-lhe coisas materiais, mas dar-lhe suporte emocional, psicológico.
+A son is a divine gift. A responsibility that includes not only
+give you material things, but give you emotional, psychological support.
 
-É preciso falar com os filhos, conhecê-los, sondar o que pensam, refletir sobre
-o que fazem.
+You have to talk to your children, meet them, probe what you think, reflect on
+what they do.
 
-O mesmo vale para o casal: depois de alguns anos de convivência, as conversas,
-antes tão íntimas, costumam ser substituídas por presentes, como flores e
-joias.
+The same goes for the couple: after a few years of coexistence, the conversations,
+rather so intimate, they are usually replaced by gifts, such as flowers and
+Jewelry.
 
-Aos poucos se esvai a cumplicidade, a parceria e até a atração.
+Gradually the complicity, partnership and even attraction are sofared.
 
-E os pais? Envelhecem sozinhos, cercados de enfermeiras ou de pessoas pagas
-para tomar conta deles. Velhos pais, isolados, com suas manias e conversas que
-ninguém quer ouvir.
+What about the parents? They age alone, surrounded by nurses or paid people
+to take care of them. Old parents, isolated, with their manias and conversations that
+nobody wants to hear it.
 
-Quão felizes seriam com visitas e conversas mais longas.
+How happy they would be with longer visits and conversations.
 
-Por tudo isso, reflita hoje: estou amando ou comprando minha família?
+For all this, reflect today: am I loving or buying my family?
 
- 
+
 ## Source
 Redação do Momento Espírita.
 Disponível no livro Momento Espírita, v. 7, ed. FEP.

@@ -13,182 +13,182 @@ topics:
 - mother
 ---
 
-Certamente, na quase totalidade dos distúrbios na área da sexualidade, a
-presença da espiritualidade refratária à luz está presente ativamente,
-participando como causa ou mesmo coadjuvante do processo. O Livro dos
-Espíritos, na questão 567, é bem claro, ensinando-nos que espíritos
-vulgares se imiscuem em nossos prazeres porquanto estão incessantemente ao
-nosso redor, tomando parte ativamente naquilo que fazemos, segundo a faixa
-vibratória na qual nos encontramos.
+Certainly, in almost all disorders in the area of sexuality, the
+presence of spirituality refractory to light is actively present,
+participating as a cause or even adjunct to the process. The Book of
+Spirits, in question 567, of course, teaching us that spirits
+vulgar son of our pleasures because they are incessantly
+our surroundings, actively taking part in what we do, according to the
+vibratory in which we find ourselves.
 
-Realmente, na compulsão sexual ou ninfomania, a atuação deletéria de seres
-espirituais não esclarecidos é atuante, apresentando-se como verdadeiros
-vampiros, sugando as energias vitais dos doentes. O excelso sistematizador
-da Doutrina Espírita, Allan Kardec, em A Gênese, capítulo 14, define a
-obsessão como "(...) a ação persistente que um mau espírito exerce sobre um
-indivíduo". Diz, igualmente, que "ela apresenta características muito
-diferentes, que vão desde a simples influência moral, sem sinais exteriores
-perceptíveis, até a perturbação completa do organismo e das faculdades
-mentais".
+Indeed, in sexual compulsion or nymphomania, the deleterious performance of beings
+unenlightened spiritual spiritual is active, presenting itself as true
+vampires, sucking the vital energies of patients. The excelsive systematizer
+Spiritist Doctrine, Allan Kardec, in Genesis, chapter 14, defines the
+obsession as "(...) the persistent action that a bad spirit exerts on a
+individual." It also says that "it has very
+different, ranging from simple moral influence, with no outside signs
+perceptible, until the complete disturbance of the body and the faculties
+mental."
 
-Com base no ensino espírita, podemos afirmar que, para que haja o processo
-obsessivo, é condição essencial que exista da parte da vítima uma
-imperfeição moral, que proporciona ascendência à entidade inferior.
-Portanto, para que a obsessão sexual, por exemplo, se estabeleça, é
-necessário, então, que o obsidiado permita a entrada do obsessor,
-verificando acentuada afinidade, ligando as duas criaturas, até mesmo
-compartilhando ambos dos mesmos propósitos e desejos.
+Based on spiritist teaching, we can affirm that, in order for the process to be
+obsessive, it is an essential condition that there is an essential condition on the part of the victim.
+moral imperfection, which provides ascendancy to the lower entity.
+Therefore, in order for sexual obsession, for example, to establish itself, is
+necessary, then, that the obsidiado allow the entry of the obsessive,
+checking marked affinity, linking the two creatures, even
+sharing both of the same purposes and desires.
 
-Na obsessão sexual, por conseguinte, tanto os encarnados quanto as
-entidades estão unidos vibratoriamente, entrelaçados em teias tenazes, em
-sinistra simbiose espiritual, atuando os espíritos como verdadeiros
-parasitas, sugando a substância vital retirada dos campos de força,
-principalmente o esplênico, como também a energia exteriorizada do êxtase
+In sexual obsession, therefore, both the incarnated and the
+entities are together vibratorly, intertwined in tenacious webs, in
+sinister spiritual symbiosis, acting spirits as true
+parasites, sucking the vital substance taken from the force fields,
+especially splenic, as well as the externalized energy of ecstasy
 sexual.
 
-Em verdade, os espíritos “sanguessugas” já se deixavam arrastar pelas
-correntezas do sexo aviltante, enquanto ainda encarnados. Libertados da
-prisão celular, pela desencarnação, continuam ainda sintonizados nos
-delírios da sexualidade desenfreada, embora, nessa situação, para
-continuarem no vício, dependam da ação dos encarnados que estejam
-associados na mesma faixa de comportamento doentio.
+In fact, the leeches spirits were already dragging themselves through the
+demeaning sex currents, while still incarnated. Freed from
+cellular prison, by disincarnation, still attuned to the
+delusions of rampant sexuality, although, in this situation, to
+continue in addiction, depend on the action of the incarnates who are
+associated in the same sick range of behavior.
 
-Muito conhecido, principalmente na Idade Média, o mito dos “íncubos” e
-“súcubos”, consistindo na presença de entidades maléficas, procurando as
-pessoas, enquanto dormem, para seduzi-las, com o fito de roubarem sua
-energia vital. A palavra “íncubo” deriva do latim “incubare” (deitar em
-cima) e designa os seres inferiores masculinos, e “súcubo”, vem de
-“succumbere” (deitar debaixo), assinalando as trevosas entidades de
-apresentação feminina.
+Very well known, especially in the Middle Ages, the myth of the "incubes" and
+"succubi", consisting of the presence of malefic entities, seeking the
+people, while sleeping, to seduce them, with the phyto of stealing their
+vital energy. The word "cube" derives from the Latin "incubare" (pour in
+above) and designates male inferior beings, and "succubus", comes from
+"succumbere" (lie down), marking the clover entities of
+female presentation.
 
-Em relação ao assunto, no Brasil, especificamente na região Norte, conta-se
-uma lenda na qual há a descrição de um íncubo, apresentando-se como um boto
-cor-de-rosa, que se transformaria em um homem sedutor, à busca de garotas
-na beira do rio.
+In relation to the subject, in Brazil, specifically in the North region, there is a
+a legend in which there is the description of an incube, presenting itself as a mouth
+pink, who would turn into a seductive man, to the search for girls
+on the riverbank.
 
-Durante o sono, segundo ensinamento espírita, há a emancipação completa da
-alma, em um processo anímico natural denominado de desdobramento ou
-projeção espiritual, facilitando a ação das entidades viciosas, haurindo a
-essência vital do encarnado. Quanto mais exaurida estiver a vítima, maior
-facilidade terá para desprender-se e sofrer o assédio inferior (Q. 407 de O
-Livro dos Espíritos).
+During sleep, according to spiritist teaching, there is the complete emancipation of
+soul, in a natural animic process called unfolding or
+spiritual projection, facilitating the action of vicious entities, drawing the
+vital essence of the incarnate. The more exhausted the victim is, the greater the
+ease will have to detach and suffer the lower harassment (Q. 407 of O
+Book of Spirits).
 
-Importante considerar que o indivíduo que pratica com excessiva
-regularidade o ato sexual, com responsabilidade, não pode ser enquadrado
-como compulsivo de forma alguma, desde que a doença se caracteriza pela
-impetuosidade para a prática do sexo, sem qualquer escrúpulo, não
-respeitando o local e as pessoas. O indivíduo viciado não consegue resistir
-aos impulsos que lhe dominam inteiramente os sentidos.
+It is important to consider that the individual who practices with excessive
+regularity the sexual act, with responsibility, cannot be framed
+compulsive in any way, since the disease is characterized by the
+impetuosity for the practice of sex, without any scruple, not
+respecting the place and the people. Addicted individual can't resist
+to the impulses that dominate his senses entirely.
 
-Os espíritos sexólatras se satisfazem intensamente, participando dos
-encontros sexuais patrocinados pelas suas fiéis vítimas encarnadas,
-principalmente de orgias, locupletando-se com a energia libertada antes e
-após a complementação sexual orgásmica, utilizando-se dos doentes viciados
-ligados a eles, completamente dominados, através dos seus campos de forças
-perispíriticos, principalmente o genésico.
+The sexolatra spirits are strongly satisfied by participating in the
+sexual encounters sponsored by their faithful incarnate victims,
+, getting around with the energy released before and
+after orgasmic sexual complementation, using patients addicted to
+linked to them, completely dominated, through their fields of forces
+perispirit, especially the genoesico.
 
-Em consequência do processo obsessivo, os indivíduos encarnados ficam
-intensamente obcecados por sexo, devido à perniciosa e fortíssima
-influência dos vampiros espirituais, que fazem com que os seus subordinados
-se sintam sempre insatisfeitos sexualmente, de forma que estejam sempre
-propícios ao sexo desenfreado e possam dar atendimento às suas prementes
-necessidades.
+As a result of the obsessive process, incarnated individuals are
+intensely obsessed with sex, due to the pernicious and very strong
+influence of spiritual vampires, which make their subordinates
+always feel sexually dissatisfied, so that they are always
+conducive to rampant sex and can care for their pressing
+Needs.
 
-Uma das formas mais graves de obsessão sexual é a dependência extrema que
-as pessoas experimentam pelo sexo, completamente viciados e subjugados,
-tendo relações sexuais, em grande número, várias vezes por dia, com
-prostitutas e, na ausência delas, até mesmo praticando sexo com mendigas,
-nas vias públicas.
+One of the most serious forms of sexual obsession is extreme dependence that
+people experience sex, completely addicted and subdued,
+having sex, in large numbers, several times a day, with
+prostitutes and, in their absence, even practicing sex with beggars,
+on public roads.
 
-Como qualquer dependente, o doente não se incomoda e não considera ser
-portador de um grave transtorno obsessivo. A “ficha só cai” quando o doente
-se encontra no fundo do poço, com sua saúde abalada, vida familiar e social
-em conflito e convivendo com problemas no trabalho. Normalmente, são os
-familiares e amigos que percebem o transtorno, desde que o viciado exibe
-comportamento estranho, não só em casa, como no trabalho, com prejuízo no
-desempenho familiar, profissional ou nos estudos, indo muitas vezes ao
-banheiro para o autoerotismo, o manuseio de revistas eróticas, a observação
-constante de vídeos de conteúdo pornográfico, uso da internet para sexo
-virtual, aparecimento e recidiva de doenças sexualmente transmissíveis e o
-assédio constante às pessoas para fins sexuais, com marcante troca de
-parcerias sexuais.
+Like any dependent, the patient does not bother and does not consider being
+with a serious obsessive disorder. The "plug only falls" when the patient
+lies at the bottom of the well, with its health shaken, family and social life
+conflict and living with problems at work. Usually, it is the
+family and friends who perceive the disorder, since the addict exhibits
+strange behavior, not only at home, but at work, with prejudice in the
+performance, professional or in studies, often going to the
+bathroom for self-eroticism, the handling of erotic magazines, observation
+constant videos of pornographic content, internet use for sex
+the appearance and recurrence of sexually transmitted diseases and the
+constant harassment of people for sexual purposes, with a marked exchange of
+sexual partnerships.
 
-A doença preponderantemente acomete mais o sexo masculino, sendo que no
-sexo feminino tem menor incidência e maior rejeição da sociedade. A
-história conta que existiu uma imperatriz chamada Messalina, terceira
-mulher do imperador romano Cláudio e portadora do transtorno obsessivo
-sexual, tendo copulado com dezenas de homens, em um período de 24 horas.
-Devido ao vício, tornou-se mulher lasciva, libertina e dissoluta em
-excesso, chegando a ponto de manter relações sexuais até com escravos,
-caracterizando um acometimento compulsivo sexual de grande intensidade, com
-comprometimento espiritual inferior inconteste.
+The disease predominantly affects the male sex more, and in the
+femalegender has a lower incidence and higher rejection of society. The
+story tells that there was an empress called Messalina, third
+wife of the Roman emperor Claudius and bearer of obsessive disorder
+sexual intersupulated with dozens of men in a 24-hour period.
+Due to addiction, she became a lascivious, libertine and dissolute woman in
+excess, getting to the point of having sex even with slaves,
+characterizing a high intensity sexual compulsive involvement, with
+undisputed inferior spiritual commitment.
 
-Messalina, ao desencarnar, certamente, apresentava sua vestimenta
-espiritual acentuadamente comprometida e exigiu uma ajuda considerável dos
-médicos da dimensão extrafísica. Como não há sofrimento eterno, recebeu,
-com certeza, a misericordiosa oportunidade de saldar seus débitos em
-inumeráveis mergulhos na carne.
+Messalina, in disembodiment, certainly presented her garment
+spiritual spiritual ly compromised and demanded considerable help from the
+doctors of the extraphysical dimension. Since there is no eternal suffering, he received,
+sure, the merciful opportunity to pay off their debts in
+innumerable dips in the meat.
 
-O espírito acentuadamente feminino, aprisionado nas teias do sexo
-destoante, dá causa a vibrações de ordem sexual inteiramente desarmônicas,
-ligadas ao sexo masculino, devido ao seu pensamento estar direcionado de
-forma patológica para o sexo masculino, completamente diferentes do campo
-sexual mais marcante no psiquismo de profundidade, essencialmente feminino.
-Ao reencarnar, durante a fase da concepção, da união dos gametas, formando
-o ovo ou zigoto, vibrando intensamente de forma desarmônica para o sexo
-masculino, exerce atração por um espermatozoide contendo o cromossomo
-masculino Y. Embora possua psiquismo preponderantemente feminino, nascerá
-em corpo masculino, em curso essencialmente expiatório.
+The sharply feminine spirit, trapped in the webs of sex
+destonating, causes entirely desarmic sexual vibrations,
+linked to the male sex, due to his thinking being directed at
+pathological form for male, completely different from the field
+sexual sex in the psyche of depth, essentially feminine.
+By reincarnating, during the conception phase, of the union of gametes, forming
+the egg or zygote, vibrating intensely in a desarmical way to sex
+male, exerts attraction to a sperm containing the chromosome
+Male Y. Although it has predominantly female psyche, will be born
+in male body, essentially atoning.
 
-Ao contrário, o ser extrafísico, com o seu psiquismo acentuadamente
-masculino, também no mesmo envolvimento cármico, reencarna em corpo
-feminino. A explicação surge de forma esclarecedora pelo instrutor
-espiritual Silas, através da transcrição realizada por André Luiz, no livro
-Ação e Reação, capítulo 15: "(...) Em muitas ocasiões, quando o homem
-tiraniza a mulher, furtando-lhe os direitos e cometendo abusos em nome de
-sua pretensa superioridade, desorganiza-se ele próprio a tal ponto que,
-inconsciente e desequilibrado, é conduzido pelos agentes da lei Divina a
-renascimento doloroso, em corpo feminino, para que, no extremo desconforto
-íntimo, aprenda a venerar na mulher sua irmã e companheira, filha e mãe,
-diante de Deus (...)".
+On the contrary, the extraphysical being, with his psyche sharply
+male, also in the same karmic involvement, reembodies in body
+Female. The explanation appears in an enlightening way by the instructor
+silas, through the transcription performed by André Luiz, in the book
+Action and Reaction, chapter 15: "(...) On many occasions, when man
+tyranny the woman, stealing her rights and committing abuses in the name of
+his alleged superiority, disorganises himself to such an extent that,
+unconscious and unbalanced, is led by the agents of divine law to
+painful rebirth, in female body, so that, in extreme discomfort
+intimate, learn to venerate in the woman his sister and companion, daughter and mother,
+before God ...".
 
-O espírito, experimentando intenso sofrimento, exterioriza vibrações
-doentias e, no momento da bendita reencarnação, por misericórdia divina,
-exatamente durante o processo de fecundação, exerce atração sobre um
-espermatozoide contendo o cromossomo X, já que o seu campo mental está
-direcionado patologicamente para o sexo oposto, embora esteja situado em
-uma faixa sexual preponderantemente masculina.
+Spirit, experiencing intense suffering, externalizes vibrations
+sickening and, at the time of blessed reincarnation, by divine mercy,
+exactly during the fertilization process, it exerts attraction on a
+sperm containing the X chromosome, since its mental field is
+directed pathologically to the opposite sex, although it is situated in
+a predominantly male sexual band.
 
-A lei de causa e efeito segue o seu curso natural, tendo o homem o
-livre-arbítrio para percorrer o caminho que deseje traçar, porém sua
-consciência sempre ecoará no momento certo (a semeadura é livre, a colheita
-será sempre obrigatória). Em vivência passada, tendo sido egoísta, subjugou
-a mulher, desrespeitando-lhe a natureza, utilizando o sexo de forma
-ultrajante. Agora, reencarnado em um corpo feminino, aprenderá a respeitar
-as pessoas que estão situadas nessa polaridade.
+The law of cause and effect follows its natural course, with man taking the
+free will to go the path you wish to draw, but its
+consciousness will always echo at the right time (sowing is free, the harvest
+will always be mandatory). In past experience, having been selfish, subdued
+the woman, disrespecting her nature, using sex in a way that
+Outrageous. Now, reincarnated in a female body, you will learn to respect
+people who are situated in this polarity.
 
-Durante a infância, notará de antemão ser possuidor de um problema de ordem
-expiatória, reencarnado em um corpo dotado de sexo de periferia (feminino)
-totalmente contrário ao sexo de profundidade preponderante (masculino).
-Pensará e poderá agir de forma diferente do sexo de que é portador. Corpos
-femininos albergando um psiquismo essencialmente masculino.
+During childhood, you will notice in advance that you have a problem of order
+atoning, reincarnated in a body endowed with sex of periphery (female)
+totally contrary to predominant (male) deep-depth sex.
+You'll think and you can act differently from the sex you're a carrier of. Bodies
+women housing an essentially male psyche.
 
-Importante a medicação antidepressiva, principalmente quando se utilizam
-remédios conhecidos como inibidores seletivos de recaptura de serotonina,
-porquanto a serotonina, quando em excesso, inibe o desejo sexual,
-acarretando diminuição da libido.
+Important antidepressant medication, especially when using
+medicines known as selective serotonin recapture inhibitors,
+because serotonin, when too much inhibits sexual desire,
+causing decreased libido.
 
-Compulsão sexual é doença obsessivo-compulsiva, e o tratamento espiritual é
-muito importante, necessitando os viciados de muita consideração e atenção,
-como exorta o Evangelho do Cristo, devendo receber, devidamente nos Centros
-Espíritas, como quaisquer obsidiados, os recursos da prece, do passe, da
-água fluidificada e dos trabalhos importantes da desobsessão.
+Sexual compulsion is obsessive-compulsive disease, and spiritual treatment is
+very important, requiring addicts of great consideration and attention,
+as the Gospel of Christ exhorts, and must receive, duly in the
+Spiritists, like any obsidiados, the resources of prayer, pass,
+fluidized water and important work of the desobsession.
 
-Todos aqueles que se acham atormentados e desorientados nas ondas
-inquietantes do sexo desarmônico, saibam que suas disfunções têm tratamento
-e que o Bondoso Deus zela por todos os seus filhos e proporciona-lhes a
-bendita oportunidade de serem vitoriosos no mundo interior das lutas, das
-atribulações, da reeducação e do aperfeiçoamento.
+All those who find themselves tormented and disoriented in the waves
+disturbing of dearmtonic sex, know that their dysfunctions have treatment
+and that the kind God cares for all his children and provides them with the
+opportunity to be victorious in the inner world of struggles,
+tribulations, re-education and improvement.
 
 ## Source
 Author: Américo Domingos Nunes Filho   

@@ -11,81 +11,81 @@ topics:
 - child
 ---
 
-Você já observou quantas alternativas de entretenimento são oferecidas nos dias
-de hoje?
+Have you noticed how many entertainment alternatives are offered in the days
+today?'
 
-São tantas as possibilidades que às vezes fica difícil a escolha.
+There are so many possibilities that sometimes it becomes difficult to choose.
 
-Todavia, se é verdade que a oferta é grande, não é menos verdade que nem sempre
-o entretenimento atinge os objetivos a que se propõe.
+However, if it is true that supply is great, it is no less true than not always
+entertainment achieves the objectives to which it proposes.
 
-O entretenimento tem por objetivo divertir, trazer bem-estar, alegria,
-descontração.
+Entertainment aims to amuse, bring well-being, joy,
+Relaxation.
 
-No entanto, há que se perguntar porque as pessoas vão a esses locais de
-diversão e se drogam, se embebedam, se tornam violentas, perdem o juízo, o bom
-senso.
+However, one must ask themselves why people go to these places of
+fun and get drugged, get drunk, become violent, lose their wits, the good
+Sense.
 
-É de se perguntar porque as cidades litorâneas onde muitos passam as férias
-geralmente se tornam, na “temporada”, estressantes, irritantes, cansativas,
-sujas, barulhentas.
+You're wondering why the seaside towns where many spend the holidays
+generally become, in the "season", stressful, annoying, tiresome,
+dirty, noisy.
 
-Será que para se divertir é preciso perder o juízo?
+Do you have to lose your mind?
 
-Será válido buscar, em nome do lazer, mecanismos de alienação da realidade, de
-fugas variadas, de entorpecimento dos sentidos?
+It will be valid to seek, in the name of leisure, mechanisms of alienation of reality,
+varied escapes, numbing the senses?
 
-O entretenimento deve trazer satisfação, paz íntima, contentamento. E tudo isso
-só é possível com lucidez, com domínio da razão, com discernimento.
+Entertainment should bring satisfaction, intimate peace, contentment. And all that
+it is only possible with lucidity, with mastery of reason, with discernment.
 
-Quando se opta pelo entorpecimento dos sentidos é sinal grave de que algo não
-está bem e, por mais que se tente fingir diversão, não se consegue essa
-satisfação.
+When the numbness of the senses is a serious sign that something does not
+okay and as much as you try to pretend fun, you can't get that
+Satisfaction.
 
-E, nesse caso, as conseqüências podem ser ainda mais desastrosas.
+And in this case, the consequences can be even more disastrous.
 
-O indivíduo sai para se divertir e volta deprimido, insatisfeito, ansioso,
-quando não cai nas malhas da violência, sempre à espreita dos descuidados...
+The individual goes out for fun and back depressed, dissatisfied, anxious,
+when it does not fall into the meshes of violence, always lurking with careless...
 
-É importante refletir sobre essas questões que dizem respeito a todos nós.
+It is important to reflect on these issues that concern all of us.
 
-É preciso refletir sobre os propósitos que nos movem a buscar lazer,
-divertimento, férias...
+It is necessary to reflect on the purposes that move us to seek leisure,
+fun, vacation...
 
-É muito comum, em cidades litorâneas, no verão, o trânsito intenso e as buzinas
-nervosas fazendo parecer que as pessoas estão ali contrariadas, cumprindo uma
-penalidade.
+It is very common, in coastal cities, in summer, heavy traffic and horns
+nervous making it seem that people are there upset, fulfilling a
+Penalty.
 
-As crianças, no interior dos veículos, parecem assustadas, e não devem entender
-como podem suas férias ser tão tumultuadas.
+Children inside the vehicles seem frightened, and should not understand
+how can your vacation be so tumultuous.
 
-Talvez algumas pessoas não se dêem conta de que estão de férias. Que estão lá
-para obter satisfação, tranqüilidade, paz, e não para competir no trânsito,
-irritando-se e irritando os outros.
+Maybe some people don't realize they're on vacation. That are there
+to obtain satisfaction, tranquility, peace, and not to compete in traffic,
+angering and irritating others.
 
-Outras desejam levar para esses locais de lazer o seu “barulho particular”, com
-o qual estão acostumadas.
+Others wish to take to these leisure places their "particular noise", with
+which they are used to.
 
-Falam alto, ouvem música mais alto ainda, como se o mundo fosse feito só para
-elas, e todas as demais pessoas devam se submeter aos seus gostos e desgostos.
-Quando isso acontece, o lazer se converte em perturbação generalizada e causa
-um efeito totalmente oposto ao esperado.
+They speak loudly, hear even louder music, as if the world were made only to
+them, and all other people should submit to their tastes and heartbreak.
+When this happens, leisure becomes widespread disruption and causes
+an effect totally opposite the expected.
 
-Por todas essas razões, vale a pena pensar nos propósitos que nos movem a
-buscar o entretenimento.
+For all these reasons, it is worth thinking about the purposes that move us to
+seek entertainment.
 
-E, mais importante, vale lembrar que vivemos num mundo em que precisamos
-respeitar aqueles que dividem o espaço conosco.
+And more importantly, it is worth remembering that we live in a world where we need
+respect those who divide space with us.
 
-Se não for assim, para que serve o entretenimento?
+If not, what's the fun of entertainment for?
 
-### Pense nisso!
-Lembre-se que as pessoas que buscam o lazer têm os mesmos direitos que você, e
-todos têm o dever de contribuir para o bem geral.
+### Think about it!
+Remember that people seeking leisure have the same rights as you, and
+everyone has a duty to contribute to the general good.
 
-Lembre-se, ainda, que o seu direito termina onde começa o direito do outro.
-Respeitar esse direito é o mínimo que se espera de uma sociedade civilizada.
-Pense nisso, e tenha uma boa diversão!
+Remember, furthermore, that your right ends where the other's right begins.
+Respecting this right is the least expected of a civilized society.
+Think about it, and have good fun!
 
 ## Source
 Equipe de redação do Momento Espírita, sob inspiração de conferência de J. Raul

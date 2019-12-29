@@ -12,100 +12,100 @@ topics:
 - faithlicidade
 ---
 
-O que se faz naquele dia em que tudo parece dar errado?
+What do you do that day when everything seems to go wrong?
 
-Há quem diga: Levantei com o pé esquerdo.
+Some say, I got up on my left foot.
 
-Entende-se que quem assim fala, acredita que um pé é mais valioso do que outro.
+It is understood that those who speak so believe that one foot is more valuable than another.
 
-Esquece-se de que ambos os pés são preciosos, pois que a base sobre a qual
-recai o peso do corpo, sustentado pelas pernas.
+Forget that both feet are precious, for the basis on which
+the weight of the body falls, sustained by the legs.
 
-De toda forma, nesse dia em que tudo deve dar errado, porque começou errado, o
-que fazer?
+Anyway, on that day when everything must go wrong, because it started wrong, the
+what to do?
 
-Primeiro: repelir a idéia de uma perseguição de Deus aos Seus filhos.
+First, repel the idea of a persecution of God to His children.
 
-As coisas não dão errado porque Deus quer.
+Things don't go wrong because God wants to.
 
-Dão errado porque nós, os Seus filhos, agimos errado.
+They go wrong because we, Your children, act wrong.
 
-Vejamos. Você levantou pela manhã atrasado? De quem é a culpa?
+See. Did you get up late in the morning? Whose fault is it?
 
-Não é do despertador, que não soou o alarme, ou soou mais tarde.
+It's not the alarm clock, it didn't sound the alarm, or it sounded later.
 
-A questão é sua, porque quem programa as funções do aparelho é você.
+The question is yours, because you're the one who programs the functions of the device.
 
-Portanto, não há porque se zangar. O que acontece, em seguida, para o melhor ou
-para o pior, é sua decisão.
+So there's no reason to get angry. What happens then for the best or
+for the worst, it's your decision.
 
-Você pode levantar de um pulo, pôr-se em pé, sair às tontas do quarto e... se
-bater na porta, em um móvel.
+You can get up from a jump, stand up, go out to the toilets of the room and... If
+knock on the door, on a mobile.
 
-Pensasse que nada traria de volta os minutos passados, levantaria com calma e
-faria tudo com mais vagar.
+I thought nothing would bring back the minutes past, i'd get up calmly and
+I'd do anything with more wandering.
 
-Quando você está com pressa e tenta fazer várias coisas ao mesmo tempo, tem
-muita probabilidade de algo desagradável acontecer.
+When you're in a hurry and try to do several things at the same time, you have
+very likely something unpleasant will happen.
 
-O leite transborda, sujando o fogão, você se corta ao fazer a barba, o botão da
-camisa cai, pela violência que você usa, tentando abotoá-lo.
+The milk overflows, dirtying the stove, you cut yourself when shaving, the button of the
+shirt falls, for the violence you wear, trying to button it.
 
-Enfim, a lista é quase interminável. E a culpa, com certeza, não é de Deus.
+Anyway, the list is almost endless. And it's definitely not God's fault.
 
-Faça tudo com calma. O carro não dá partida?
+Do everything calmly. Won't the car start?
 
-Verifique o porquê e resolva, se possível, sem se estressar.
+Check why and resolve, if possible, without stressing.
 
-Perdeu o horário do ônibus?
+Did you miss the bus schedule?
 
-Lembre que a sua ansiedade ou a sua irritação não fará o próximo se adiantar.
-Espere.
+Remember that your anxiety or irritation won't make the next one get ahead.
+Hope.
 
-Se preciso, avise seu superior, sua chefia, seu cliente, do atraso.
+If necessary, notify your superior, your boss, your client, of the delay.
 
-Se perderá uma aula, uma prova, já perdeu. De que adianta gritar, se zangar?
-Nada trará de volta os minutos perdidos.
+If you're going to miss a class, you've lost. What's the point of yelling, getting mad?
+Nothing will bring back the lost minutes.
 
-A palavra já diz: perdidos.
+The word already says: lost.
 
-O trânsito está congestionado? Não faça tolices, não viole as regras do bom
-motorista.
+Is traffic congested? Don't do nonsense, don't violate the rules of good
+Driver.
 
-Tenha sempre à mão um livro, uma revista e aproveite o tempo.
+Always have a book, a magazine and enjoy the time.
 
-A chuva o surpreendeu no caminho? Aguarde um pouco. Tudo passa. A chuva também
-passa.
+Did the rain surprise you on the way? Wait a minute. Everything goes away. The rain also
+Passes.
 
-Aguardar um pouco não lhe deve causar maior preocupação.
+Waiting a while shouldn't cause you more concern.
 
-Enfim, em tudo seja responsável e pense que em suas mãos está permitir que tudo
-ande nos eixos, ou não ande.
+Anyway, in everything be responsible and think that in your hands is allowing everything
+walk on the axes, or don't walk.
 
-Tudo se resolva, a pouco e pouco, ou não.
+Everything is resolved, little by little, or not.
 
-Por fim, pense: não vale a pena perder minutos preciosos da vida por estresse,
-irritação ou impaciência.
+Finally, think: it's not worth losing precious minutes of life for stress,
+irritation or impatience.
 
-Deus quer a sua felicidade. Colabore com Ele nesta conquista.
+God wants your happiness. Collaborate with Him in this achievement.
 
                                     *  *  *
 
-Tudo no Universo traduz harmonia, precisão. Os planetas obedecem às suas
-trajetórias e cada qual se enquadra, na linha do dever que lhe é própria.
+Everything in the Universe translates harmony, precision. Planets obey their
+trajectories and each one falls, in the line of duty that is proper to it.
 
-Os astros giram, as estrelas lançam sua luz ao espaço. Tudo obedece ao Grande
-Pai de todos nós.
+The stars spin, the stars shed their light into space. Everything obeys the Great
+Father of all of us.
 
-Não sejamos diferentes. Harmonizemo-nos.
+Let's not be different. Let's get in the way.
 
-Colaboremos com nossa própria felicidade.
+Let us collaborate with our own happiness.
 
-E pensemos a cada dia: Hoje tudo vai dar certo. Perfeitamente certo.
+And let's think every day: Today everything's going to work out. Perfectly right.
 
-Eu farei o possível para tudo acontecer acertadamente.
+I'll do everything i can to make it happen right.
 
- 
+
 
 ## Source
 Redação do Momento Espírita.

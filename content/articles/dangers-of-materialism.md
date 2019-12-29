@@ -10,74 +10,74 @@ topics:
 ---
 
 
-Quando ouvimos a palavra materialismo, por vezes desconhecemos o seu real
-significado e suas dimensões.
+When we hear the word materialism, sometimes we don't know its real
+meaning and its dimensions.
 
-De modo geral, temos uma visão superficial do termo, que em verdade representa
-correntes filosóficas antigas com bases bem sedimentadas.
+In general, we have a superficial view of the term, which actually represents
+ancient philosophical currents with well-sedimented bases.
 
-Ele está na via oposta ao idealismo, o espiritualismo e a metafísica, desde que
-afirma a prioridade da matéria sobre o Espírito. Até mesmo o pensamento seria
-uma manifestação interior da matéria.
+It is on the opposite path to idealism, spiritualism and metaphysics, provided that
+affirms the priority of matter on the Spirit. Even thought would be
+an inner manifestation of matter.
 
-Vale ressaltar que o materialismo se estende ao modo de viver em que o gozo das
-coisas materiais se apresenta como uma filosofia de vida, caracterizada pelo
-grande apego aos bens materiais.
+It is noteworthy that materialism extends to the way of living in which the enjoyment of
+material things presents itself as a philosophy of life, characterized by the
+great attachment to material goods.
 
-Segundo essa filosofia, a vida se inicia no momento do nascimento e acaba com a
-morte do corpo.
+According to this philosophy, life begins at the moment of birth and ends the
+death of the body.
 
-As correntes espiritualistas, no lado oposto, apresentam a realidade do
-Espírito, isto é, demonstram que somos algo mais do que um aglomerado de
-matéria e que há uma inteligência, uma alma, um ser imponderável, no comando da
-máquina corpórea.
+Spiritualist currents on the opposite side present the reality of
+spirit, that is, demonstrate that we are something more than a cluster of
+matter and that there is an intelligence, a soul, an imponderable being, in charge of the
+body machine.
 
-O Espiritismo, quando se apresenta como a ciência que trata da natureza, da
-origem e do destino dos Espíritos, bem como de suas relações com o mundo
-corporal, deixa claro seu perfil espiritualista, devidamente embasado em
-métodos científicos de estudo.
+Spiritism, when it presents itself as the science that deals with nature,
+origin and destiny of spirits, as well as their relations with the world
+body, makes clear his spiritualist profile, duly based on
+scientific methods of study.
 
-Ao estudar essa essência inteligente que todos somos, a Doutrina Espírita abre
-um horizonte de consequências importantíssimas para a vida.
+By studying this intelligent essence that we are all, the Spiritist Doctrine opens up
+a horizon of very important consequences for life.
 
-Suponhamos que um homem de vinte anos tenha a certeza de que vai morrer aos
-vinte e cinco, que fará ele nesses cinco anos que lhe restam?
+Suppose a twenty-year-old man is sure he's going to die at
+twenty-five, what will he do in those five years he has left?
 
-Trabalhará para o futuro? Certamente que não. Ele tratará de desfrutar a vida o
-mais possível, considerando como um engano obrigar-se a fadigas e privações sem
-proveito.
+Will you work for the future? I'm sure you don't. He will try to enjoy life the
+as possible, considering as a mistake to force themselves to fatigue and deprivation without
+Advantage.
 
-Mas se ele tiver a certeza de viver até aos oitenta anos, agirá de forma
-totalmente diferente, porque compreenderá a necessidade de sacrificar alguns
-instantes do repouso atual para assegurar o repouso no futuro, durante longos
-anos.
+But if he's sure to live until he was eighty, he'll act in a way
+totally different, because it will understand the need to sacrifice some
+moments of the current home to ensure rest in the future, during long
+Years.
 
-O mesmo ocorre com aquele para quem a vida futura é uma certeza.
+The same goes for the one for whom future life is a certainty.
 
-Quando existe dúvida quanto à existência da vida futura o indivíduo é
-conduzido, naturalmente, a tudo sacrificar aos prazeres do presente, daí dar
-importância excessiva aos bens materiais.
+When there is doubt as to the existence of future life the individual is
+led, of course, to all sacrifice to the pleasures of the present, hence giving
+excessive importance to material goods.
 
-A cobiça, a inveja e o ciúme daquele que tem pouco contra o que tem muito, são
-estimulados pela importância atribuída aos bens materiais.
+The greed, envy and jealousy of those who have little against what is very, are
+stimulated by the importance attributed to material goods.
 
-Da cobiça ao desejo de se conseguir, a qualquer preço, o que o vizinho possui
-não há mais que um passo, surgindo, então, os ódios, as discussões, os
-processos, as guerras e todos os males engendrados pelo egoísmo.
+From greed to the desire to achieve, at any price, what the neighbor has
+there is more than a step, emerging then hatreds, discussions,
+processes, wars and all evils engendered by selfishness.
 
-Com a dúvida sobre o futuro, o homem, abatido nesta vida pelo desgosto e pelo
-infortúnio, só vê o fim dos seus sofrimentos na morte, e, não esperando mais
-nada, acha racional abreviá-los pelo suicídio.
+With doubt about the future, man, slaughtered in this life by heartbreak and
+misfortune, only sees the end of his sufferings in death, and, not expecting more
+nothing, you find it rational to spread them by suicide.
 
-Vejamos aí um dos grandes perigos do materialismo, a falta de significado da
-existência, a vida vazia, sem propósito e sem perspectiva de futuro.
+Let's see one of the great dangers of materialism, the lack of meaning of
+existence, empty life, purposeless and without a future perspective.
 
-Somos Espíritos atuando sobre a matéria. A matéria nos serve, e não o
-contrário.
+We are spirits acting on matter. The matter serves us, not the
+Otherwise.
 
-Pensemos a respeito e alicercemos nossos valores nessas certezas maiores. Isso
-nos dará sentido à existência, isso nos apontará a felicidade.
- 
+Let us think about it and foundation our values on these greater certainties. Right
+it will give us meaning to existence, this will point us to happiness.
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. II, item 100,

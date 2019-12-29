@@ -9,99 +9,99 @@ topics:
 - respect
 ---
 
-A modernidade é rica de meios para que as pessoas externem seus pensamentos.
+Modernity is rich in means for people to exterhrate their thoughts.
 
-Mediante os recursos da internet, muitas cotidianamente partilham com o mundo o
-seu modo de ver a vida.
+Through the resources of the Internet, many daily share with the world the
+his way of seeing life.
 
-Em blogs, redes sociais, colunas virtuais e vídeos, democratizou-se e
-ampliou-se a exposição pessoal.
+In blogs, social networks, virtual columns and videos, it became democratized and
+personal exposure has been expanded.
 
-Nesse ambiente, são constantes as críticas ao comportamento alheio.
+In this environment, criticism stems from other people's behavior.
 
-Também são habituais as frases de efeito postas para circular.
+Also usual are the effect phrases put to circulate.
 
-Pensamentos de grandes vultos são relembrados e frisados.
+Thoughts of great figures are remembered and beaded.
 
-Tudo isso tem um grande potencial renovador.
+All this has great renewing potential.
 
-Mas para que seja mesmo positivo, convém refletir sobre uma passagem do
-Evangelho.
+But in order to be even positive, it is appropriate to reflect on a passage of the
+Gospel.
 
-Nela, Jesus convida seus discípulos para irem juntos às aldeias vizinhas, para
-que Ele ali também pregasse.
+In it, Jesus invites his disciples to go together to the neighboring villages, to
+that He preached there too.
 
-E afirma que foi para a atividade de pregação que veio ao mundo.
+And he claims it was for the preaching activity that came into the world.
 
-É interessante pensar a respeito do significado do conceito de pregação.
+It is interesting to think about the meaning of the concept of preaching.
 
-Ele tem sido deturpado com frequência, para justificar muita falação
-inconsequente.
+He has been misrepresented frequently, to justify much speech
+Inconsequential.
 
-Por certo, Jesus incluía no ato de pregar todos os gestos sacrificiais de sua
-vida.
+For sure, Jesus included in the act of preaching all the sacrificial gestures of his
+Life.
 
-Ele não só falava, mas também exemplificava.
+Not only did he talk, but he also exemplified.
 
-Geralmente, vemos na Terra a missão de ensinar muito desmoralizada.
+We generally see on Earth the mission of teaching very demoralized.
 
-A ciência oficial dispõe de cátedras.
+Official science has chairs.
 
-A política possui tribunas.
+Politics has tribunes.
 
-A religião fala de púlpitos.
+Religion speaks of pulpits.
 
-Contudo, os que ensinam, com exceções louváveis, quase sempre se caracterizam
-por dois modos diferentes de agir.
+However, those who teach, with commendable exceptions, are almost always characterized by
+by two different ways of acting.
 
-Exibem certas atitudes quando pregam, mas adotam outras quando em atividade
-diária.
+They exhibit certain attitudes when they preach, but adopt others when in activity
+Daily.
 
-Disso resulta uma grave perturbação geral.
+This results in a serious general disturbance.
 
-Afinal, os ouvintes também se sentem à vontade para mudar a roupa do caráter.
+After all, listeners also feel comfortable changing character clothes.
 
-Em situação semelhante se encontram muitos dos que bradam contra o mal por meio
-da internet.
+In a similar situation are many of those who cry against evil through
+of the internet.
 
-Eles reclamam da desonestidade alheia.
+They complain about other people's dishonesty.
 
-Apontam que alguém deveria tomar providências ou adotar medidas para salvar o
-semelhante.
+They point out that someone should take action or take steps to save the
+Similar.
 
-Mas raramente se dispõem a fazer algo de efetivo para que o mundo se torne
-melhor.
+But they rarely have to do something effective in order for the world to become
+Better.
 
-Também por vezes quem reclama do governo ou dos políticos segue sem cumprir os
-seus deveres.
+Also sometimes those who complain about the government or politicians follow without complying with the
+their duties.
 
-Não trata de bem educar seus filhos.
+It's not good to educate your children.
 
-Não dá a devida atenção a seu cônjuge, não cuida de seus pais velhos ou
-enfermos.
+It does not pay due attention to your spouse, does not take care of your old parents or
+Sick.
 
-Ou sonega tributos, procura levar vantagem quando a oportunidade aparece.
+Or he denies tributes, seeks to take advantage when the opportunity appears.
 
-É uma grave incoerência apontar o erro no comportamento dos outros e não
-cumprir os próprios deveres com retidão.
+It is a serious incoherence to point out the error in the behavior of others and not
+fulfill their own duties with righteousness.
 
-Toda dissertação moldada no bem é útil.
+Every dissertation shaped in good is useful.
 
-Jesus veio ao mundo para isso.
+Jesus came into the world for that.
 
-Pregou a verdade em todos os lugares, fez discursos de renovação, comentou a
-necessidade do amor para a solução dos problemas.
+He preached the truth everywhere, made renewal speeches, commented on the
+need of love for the solution of problems.
 
-No entanto, misturou palavras e testemunhos vivos, desde a primeira palavra de
-Seu apostolado até a cruz.
+However, he mixed words and testimonies alive, from the first word of
+Your apostolate to the cross.
 
-Por pregação, portanto, Jesus entendia igualmente os sacrifícios da vida.
+By preaching, therefore, Jesus also understood the sacrifices of life.
 
-Seu despojamento no Calvário é a prova viva disso.
+Your stripping on Calvary is living proof of that.
 
-Pense a respeito.
+Think about it.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. 38 do

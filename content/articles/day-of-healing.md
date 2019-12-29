@@ -16,92 +16,92 @@ topics:
 - mother
 ---
 
-Debbie tinha apenas dezesseis anos quando seu professor de inglês a sequestrou
-e lhe tirou a vida.
+Debbie was only sixteen when her English teacher kidnapped her
+and took his life.
 
-Sua mãe, Betty, ficou tão deprimida que passou a negligenciar seus outros
-quatro filhos.
+Her mother, Betty, became so depressed that she came to neglect her others
+four children.
 
-Dia após dia ela amaldiçoava o assassino. Ele lhe retirara o hálito de vida.
-Ele destroçara a vida de uma adolescente risonha e que tecia planos para o
-futuro.
+Day after day she cursed the killer. He had taken his breath out of life.
+He had destroyed the life of a laughing teenager and who had plans for the
+Future.
 
-Nada diminuía a sua dor. Nem a ausência de qualquer motivo evidente para aquele
-crime terrível. Nem a condenação do professor à prisão perpétua.
+Nothing diminished your pain. Nor the absence of any obvious reason for that
+terrible crime. Nor the teacher's sentence to life imprisonment.
 
-O ódio a consumia. Começou a ter constantes dores de cabeça e nas costas.
-Depois de algum tempo, mal conseguia ficar de pé.
+Hatred consumed her. He started to have constant headaches and back pains.
+After a while, I could barely stand up.
 
-Seis anos se passaram morosos, doloridos. Até que, no funeral de sua irmã, um
-trecho da oração dominical a impressionou.
+Six years passed long, sore. Until, at his sister's funeral, a
+passage of Sunday prayer impressed her.
 
-Uma frase, a respeito da qual nunca meditara: Assim como perdoamos a quem nos
-tenha ofendido.
+A phrase, about which he had never meditated: Just as we forgive those who
+has offended.
 
-Ela procurou literatura a respeito do perdão. Talvez encontrasse uma resposta
-para sua vida.
+She sought literature on forgiveness. Maybe I'd find an answer
+for your life.
 
-Foi visitar o túmulo de Debbie. Pela primeira vez leu com atenção o que estava
-gravado na lápide: Do que o mundo precisa agora é de amor.
+He went to visit Debbie's grave. For the first time he read carefully what was
+engraved on the tombstone: What the world needs now is love.
 
-Logo, Betty estava repetindo em voz alta, como se fosse um mantra: Quero
-perdoar.
+Soon, Betty was repeating out loud, as if it were a mantra: I want to
+Forgive.
 
-Meses depois, resolveu escrever ao assassino: Cansei de sentir raiva de você.
-Posso visitá-lo?
+Months later, he decided to write to the killer: I'm tired of feeling mad at you.
+Can I visit him?
 
-Onze anos depois da morte de sua adorada filha, ela o visitou na prisão.
+Eleven years after the death of her beloved daughter, she visited him in prison.
 
-Disse a ele o que Debbie significava para ela. O quanto ela sofria. Ambos
-acabaram chorando.
+I told him what Debbie meant to her. How much she suffered. Both
+they ended up crying.
 
-Quando deixou a prisão, naquele dia, sentia-se uma pessoa diferente. Seu
-coração estava leve.
+When he left prison that day, he felt like a different person. your
+heart was light.
 
-Ela lançara fora a mágoa e a raiva que tanto a haviam consumido naqueles longos
-e arrastados anos.
+She had thrown away the sorrow and anger that had consumed her so much in those long
+and dragged years.
 
-Os amigos, espantados, não conseguiam entender a sua atitude. A sua resposta
-era: O perdão foi o maior presente que dei a mim e aos meus filhos.
+Friends, amazed, couldn't understand their attitude. Your answer
+it was: Forgiveness was the greatest gift I gave to myself and my children.
 
-Passou a trabalhar como mediadora num programa para vítimas de crimes
-violentos.
+She went on to work as a mediator in a program for victims of crime
+Violent.
 
-Em paz consigo mesma, afirma que foi uma incrível jornada de cura que salvou a
-sua vida.
+In peace with herself, he states that it was an incredible journey of healing that saved the
+your life.
 
-E a jornada se chama perdão.
-
-                                   *   *   *
-
-O perdão substitui sentimentos hostis que destroem a organização física, a paz,
-por sentimentos positivos que fazem o corpo se acalmar, relaxar, melhorando a
-saúde.
-
-Agarrar-se a um ressentimento por meses ou anos significa assumir um
-compromisso com a raiva.
-
-O perdão pode ser um poderoso antídoto contra a raiva. Quem se permite consumir
-pela raiva faz ligações perigosas com a hipertensão crônica e tem aumentado o
-risco de doenças cardíacas.
-
-Além de acarretar benefícios emocionais, purgar a raiva pode ajudar a curar
-parte do que nos aflige fisicamente.
-
-O simples fato de pensar em solucionar uma mágoa já pode ajudar.
-
-Vale a pena perdoar! É uma questão de desejar o bem para si mesmo.
+And the journey is called forgiveness.
 
                                    *   *   *
 
-Se não conseguirmos perdoar totalmente, o fato de não estar fervendo de raiva,
-nem planejando vingança, é um bom começo.
+Forgiveness replaces hostile feelings that destroy physical organization, peace,
+positive feelings that make the body calm down, relax, improving the
+Health.
 
-De toda forma, o perdão é poderoso. Embora não possa mudar o passado, o fato de
-confrontar problemas não resolvidos e as pessoas por trás deles, pode conduzir
-a um futuro mais saudável e feliz.
+Clinging to a resentment for months or years means taking on a
+commitment to anger.
 
-Pensemos nisso!
+Forgiveness can be a powerful antidote against anger. Who allows themselves to consume
+anger makes dangerous links with chronic hypertension and has increased the
+risk of heart disease.
+
+In addition to bringing emotional benefits, purging anger can help heal
+part of what physically afflicts us.
+
+The simple fact of thinking about solving a heartache can already help.
+
+It's worth forgiving! It's a matter of wishing for good for yourself.
+
+                                   *   *   *
+
+If we can't totally forgive, the fact that it's not boiling with anger,
+nor planning revenge, it's a good start.
+
+Anyway, forgiveness is powerful. Although it cannot change the past, the fact that
+confront unsolved problems and the people behind them can drive
+to a healthier and happier future.
+
+Let's think about it!
 
 ## Source
 Redação do Momento Espírita, com base no artigo

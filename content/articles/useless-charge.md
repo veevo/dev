@@ -9,81 +9,81 @@ topics:
 ---
  
 
-Certo dia, um professor, atento ao comportamento dos seus alunos, observou que
-poderia ajudá-los a resolver alguns problemas de cunho íntimo e propôs uma
-atividade.
+One day, a teacher, attentive to the behavior of his students, noted that
+could help them solve some intimate problems and proposed a
+Activity.
 
-Pediu a todos que levassem uma sacola e algumas pedras, de vários tamanhos e
-formas para a próxima aula.
+He asked everyone to carry a bag and some stones, of various sizes and
+forms for the next lesson.
 
-No dia seguinte, orientou que cada um escolhesse uma pedra e escrevesse nela o
-nome de cada pessoa de quem sentiam mágoa, inveja, rancor, ou ciúme. A pedra
-deveria ser escolhida conforme o tamanho do sentimento.
+The next day, he advised each one to choose a stone and write in it the
+name of every person of whom they felt sorrow, envy, grudge, or jealousy. The stone
+should be chosen according to the size of the feeling.
 
-Depois que todos haviam terminado a tarefa, o professor pediu que colocassem as
-pedras na sacola e a carregassem junto ao corpo para todos os lugares onde
-fossem, dia e noite.
+After everyone had finished the task, the teacher asked them to put the
+stones in the bag and carried it next to the body to all the places where
+were, day and night.
 
-Se alguma pessoa viesse a lhes causar sofrimento ainda intenso, eles poderiam
-substituir a pedra por uma maior. E se uma nova pessoa os magoasse, deveriam
-escolher uma nova pedra, escrever o nome dela e colocar na sacola.
+If anyone were to cause them suffering still intensely, they could
+replace the stone with a larger one. And if a new person hurt them, they should
+Choose a new stone, write her name and put it in the bag.
 
-E quem resolvesse o problema com algumas das pessoas cujos nomes haviam escrito
-nas pedras, poderiam retirar a pedra e lançá-la fora.
+And whoever solved the problem with some of the people whose names had written
+on the stones, they could remove the stone and throw it away.
 
-Assim foi feito. Algumas sacolas ficaram cheias e muito pesadas, mas ninguém
-reclamou.
+That's how it was done. Some bags were full and too heavy, but no one
+Complained.
 
-Naturalmente, com o passar dos dias, o conteúdo das sacolas aumentou em vez de
-diminuir.
+Of course, over the days, the contents of the bags increased instead of
+Decrease.
 
-O incômodo de carregar aquele peso se tornava cada vez mais evidente.
+The hassle of carrying that weight became increasingly evident.
 
-Com o passar dos dias os alunos começaram a mostrar descontentamento. Afinal de
-contas, estavam sendo privados de muitos movimentos, pois as pedras pesavam e
-alguns ferimentos surgiram, provocados pelas saliências de algumas pedras.
+As the days went by, the students began to show discontent. After all,
+accounts, were being deprived of many movements, for the stones weighed and
+some injuries have arisen, caused by the protrusions of some stones.
 
-Para não esquecer a sacola em nenhum lugar, os alunos deixavam de prestar
-atenção em outras coisas que eram importantes para eles.
+Not to forget the bag anywhere, the students stopped providing
+attention on other things that were important to them.
 
-Passado algum tempo, os alunos pediram uma reunião com o professor e falaram
-que não dava mais para continuar a experiência, pois estavam cansados de
-carregar aquele peso morto e alguns ferimentos incomodavam.
+After some time, the students asked for a meeting with the teacher and spoke
+that could no longer continue the experience, for they were tired of
+carry that dead weight and some injuries bothered.
 
-O professor, que já aguardava pelo momento, falou-lhes com sabedoria:
+The teacher, who was waiting for the moment, spoke to them wisely:
 
-Essa experiência foi criada para lhes mostrar o tamanho do peso espiritual que
-a mágoa, a inveja, o rancor ou o ciúme ocasionam.
+This experience was created to show them the size of the spiritual weight that
+sorrow, envy, grudge or jealousy cause.
 
-Quem mantém esses sentimentos no coração, perde precioso tempo na vida, deixa
-de prestar atenção em fatos importantes, além de provocar enfermidades como
-consequência.
+Whoever keeps these feelings in the heart, wastes precious time in life, leaves
+to pay attention to important facts, in addition to causing diseases such as
+Consequence.
 
-Esse é o preço que se paga todos os dias para manter a dor e os sentimentos
-negativos que desejamos guardar conosco.
+That's the price you pay every day to keep the pain and feelings
+negative so we want to keep with us.
 
-Agora a escolha é sua. Vocês têm duas opções: jogam fora as pedras ou continuam
-a mantê-las diariamente, desperdiçando forças para carregá-las.
+Now it's your choice. You have two options: throw away the stones or continue
+to keep them daily, wasting forces to carry them.
 
-Se vocês optarem pela paz íntima terão que se livrar desses sentimentos
-negativos.
+If you choose intimate peace you will have to get rid of these feelings
+Negative.
 
-Um a um os alunos foram se desfazendo das pesadas sacolas e todos foram
-unânimes em admitir que estavam se sentindo mais leves, em todos os sentidos.
+One by one the students were falling apart from the heavy bags and all were
+unanimous in admitting that they were feeling lighter, in every way.
 
-A proposta era de deixar com as pedras os ressentimentos que cada uma delas
-representava. E isso dava a cada um a sensação de alívio.
+The proposal was to leave with the stones the resentments that each of them
+Represented. And that gave each one the feeling of relief.
 
-Por fim todos se abraçaram e confessaram que naquele gesto simples descobriram
-que não vale a pena perder tempo e saúde carregando um fardo inútil e
+Finally everyone hugged and confessed that in that simple gesture they discovered
+that it's not worth wasting time and health carrying a useless burden and
 prejudicial.
 
                                    *   *   *
 
-Seja qual for a dificuldade que te impulsione à mágoa, reage, mediante a
-renovação de propósitos, não valorizando ofensas nem considerando ofensores.
+Whatever difficulty that drives you to grief, reacts, through the
+renewal of purposes, not valuing offenses or considering offenders.
 
-                                                                               
+
 
 
 ## Source

@@ -14,94 +14,94 @@ topics:
 ---
 
 
-Quem de nós já não passou por um mau momento na vida?
+Who of us hasn't been through a bad time in our lives?
 
-Momentos inesperados que surgem parecendo ameaçar as melhores construções da
-nossa caminhada.
+Unexpected moments that appear to threaten the best buildings of the
+our walk.
 
-Nesses momentos, nossa organização nervosa se deixa destrambelhar, ocasionando
-reações imprevisíveis.
+In these moments, our nervous organization lets itself be displeasured, causing
+unpredictable reactions.
 
-Descobrimos, em nós próprios, conteúdos desconhecidos.
+We discovered unknown content in ourselves.
 
-Foi o que aconteceu com Vanessa naquela tarde.
+That's what happened to Vanessa that afternoon.
 
-Ela, que sempre parecera calma e equilibrada, se permitiu envolver na
-profundidade do sofrimento, ante uma notícia alarmante.
+She, who had always seemed calm and balanced, allowed herself to be involved in the
+depth of suffering, in the face of alarming news.
 
-Pelo telefone, foi avisada de um grave acidente ocorrido com seu marido. E,
-ainda, um pedido de sua presença urgente, no hospital municipal.
+On the phone, she was told of a serious accident that occurred with her husband. And
+request for his urgent presence in the municipal hospital.
 
-O impacto pareceu lhe tirar o chão dos pés. Não sabia o que fazer por primeiro:
-chamar um táxi? Dirigir o próprio carro? Pedir a alguém para acompanhá-la?
+The impact seemed to get the ground off his feet. I didn't know what to do first:
+call a cab? Drive your own car? Ask someone to accompany you?
 
-E começou a falar, sem parar, maldizendo a sorte.
+And he started talking, non-stop, cursing his luck.
 
-Quando, por fim, chegou ao hospital e soube que o esposo não resistira, dadas
-as lesões profundas sofridas, tudo piorou.
+When, finally, he arrived at the hospital and knew that her husband had not resisted, given
+the deep injuries suffered, everything worsened.
 
-Queria saber quem era o culpado, quem fora o irresponsável causador do
-acidente, quem tomaria providências para punir essa pessoa.
+I wanted to know who was to blame, who had been the irresponsible cause of the
+accident, who would take steps to punish that person.
 
-Maldizia a Deus e ao mundo por não se conformar com a situação de perda que
-sofrera.
+He misled God and the world for not conforming to the situation of loss that
+suffered.
 
-Tornou-se de tal forma inconveniente, que causou problemas aos que se
-encontravam no mesmo local. Por fim, teve tal crise nervosa, que precisou ser
-socorrida e medicada devidamente.
+It has become so inconvenient that it caused problems for those who
+found in the same place. Finally, there was such a nervous crisis, which had to be
+and properly medicated.
 
                                     *  *  *
 
-Sentimentos negativos só fazem piorar os momentos especiais que necessitamos
-enfrentar.
+Negative feelings only make the special moments we need worse
+Face.
 
-Quando nossa sensibilidade se apresenta em desequilíbrio somente aumentamos os
-problemas.
+When our sensitivity is in imbalance, we only increase the
+Problems.
 
-A visão imprecisa ou impensada de determinados fatos nos fazem vê-los como
-invencíveis.
+The inaccurate or thoughtless view of certain facts makes us see them as
+Invincible.
 
-Essa visão equivocada do acontecimento, alimentada pelos sentimentos infelizes
-que trazemos em nosso íntimo favorece o alongamento do momento infeliz.
+This mistaken view of the event, fueled by unhappy feelings
+that we bring in our hearts favors the stretching of the unfortunate moment.
 
-Os sentimentos nobres conquistados e vivenciados no decorrer de nossa vida nos
-ajudarão a enfrentar o que nos chegue, com um tanto de calma.
+The noble feelings conquered and experienced throughout our lives
+will help to face what comes to us, with a little calm.
 
-Até mesmo porque problemas não se resolvem na confusão, nem na impaciência ou
-na gritaria.
+Even because problems are not solved in confusion, neither impatience nor impatience or
+in the screaming.
 
-Em verdade, eles nos exigem ponderação, calma para tentar encontrar a melhor
-solução, ou tomar a providência que seja a mais acertada, conforme o caso se
-apresente.
+In fact, they require us weighting, calm to try to find the best
+solution, or take the action that is the right, as the case may be
+Present.
 
-Se temos o hábito da oração, ela nos auxiliará a nos mantermos equilibrados,
-ante fatos inesperados que nos aconteçam.
+If we have the habit of prayer, it will help us stay balanced,
+unexpected facts that happen to us.
 
-O momento mau passa como tudo passa em nossas vidas.
+The bad moment goes by like everything goes on in our lives.
 
-O que fica é a nossa maneira pessoal de enfrentar as provas a que somos
-submetidos.
+What stays is our personal way of facing the evidence to which we are
+Submitted.
 
-Os testes morais, os desencantos, as perdas de entes queridos, as desilusões e
-decepções deixam suas marcas em nós.
+Moral tests, disenchantments, loss of loved ones, disappointments and
+disappointments leave their marks on us.
 
-Quando positivas, nos deixarão mais fortalecidos, mais experientes.
+When positive, they will make us stronger, more experienced.
 
-Saber extrair a lição do mau momento é que faz a diferença para cada um de nós.
+Knowing how to extract the lesson from the bad moment is that it makes a difference for each of us.
 
-Bom seria se desde cedo aprendêssemos a enxergar a vida com mais compreensão,
-para sofrermos menos.
+It would be good if from an early age we learned to see life with more understanding,
+to suffer less.
 
-Assimilarmos que decepções são oportunidades de praticarmos a nossa força de
-vontade, humildade e superação.
+Let us note that disappointments are opportunities to practice our strength of
+will, humility and overcoming.
 
-Que bons sentimentos, paciência, conhecimento e desejo sincero de acertar, nos
-trarão melhores maneiras de encarar o mau momento que surgir.
+What good feelings, patience, knowledge and sincere desire to get right, in the
+will bring better ways to face the bad moment that arises.
 
-Assim é que podemos transformá-lo em bendita hora de aprendizado e crescimento
-espiritual.
+So we can turn it into blessed learning and growth time
+Spiritual.
 
-Pensemos nisso!
+Let's think about it!
 
 
 ## Source

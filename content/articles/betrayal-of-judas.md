@@ -12,87 +12,87 @@ topics:
 - love
 ---
 
-Um ouvinte nos escreveu perguntando se Judas, ao nascer, trouxe a missão de
-trair o Cristo. Argumenta que, se não houvesse um traidor, Jesus não teria sido
-preso e supliciado. O que quer dizer, que as profecias não se cumpririam.
+A listener wrote to us asking if Judas, at birth, brought the mission of
+betray the Christ. He argues that if there was no traitor, Jesus would not have been
+imprisoned and pleaded. Which means the prophecies wouldn't be fulfilled.
 
-Na verdade, mesmo sem Judas, mais cedo ou mais tarde, Jesus teria sido preso,
-sim. Os sacerdotes do Templo já estavam armando todo o plano.
+In fact, even without Judas, sooner or later, Jesus would have been arrested,
+Yes. The priests of the Temple were already setting up the whole plan.
 
- Bom recordar que todos renascemos com um programa de vida. Traçamos, no mundo
-espiritual, antes de adentrar no corpo de carne, as linhas gerais da nossa
-reencarnação. Linhas que obedecem às nossas condições espirituais e
-necessidades de resgate, isto é, de pagamento das faltas cometidas.
+ Good to remember that we all reborn with a life program. We trace, in the world
+before entering the body of flesh, the general lines of our
+Reincarnation. Lines that obey our spiritual conditions and
+redemption needs, i.e. payment of the faults committed.
 
-Contudo, ninguém nasce predestinado a praticar o mal. Se assim fosse, cairia
-por terra a Lei de Progresso e a Justiça Divina. A Lei de Progresso porque se
-poderia admitir que alguém poderia dar passos para trás e a Justiça Divina
-porque se Deus assim dispusesse, não poderia depois realizar a cobrança pelo
-mal praticado.
+However, no one is born predestined to do evil. If so, it would fall
+law of progress and divine justice. The Progress Act because
+could admit that someone could take steps back and divine justice
+because if God so had, he could not then carry out the charge for the
+poorly practiced.
 
-Todas as diretrizes que antecedem a reencarnação, o renascimento na carne, são
-as que têm a ver com o crescimento do Espírito e pagamento das suas dívidas.
+All guidelines leading up to reincarnation, rebirth in the flesh, are
+those that have to do with the growth of the Spirit and payment of their debts.
 
-Judas, portanto, não nasceu com a missão de trair o Cristo. O seu ato foi
-deliberação sua, envolvido por paixões que ele não conseguiu resolver.
+Judas, therefore, was not born with the mission of betraying Christ. His act was
+his deliberation, involved by passions that he could not solve.
 
-Convidado a ser um dos doze para compor o colégio apostólico, não entendeu a
-Mensagem Divina do Messias.
+Invited to be one of the twelve to compose the apostolic college, did not understand the
+Divine Message of the Messiah.
 
-Judas era da cidade de Karioth. Comerciante. Por isso mesmo habituado a lidar
-com valores, com moedas. Tinha cabeça para o comércio. Objetivava lucros. Era o
-responsável por carregar e administrar as poucas moedas que, nas andanças com
-Jesus, possuíam os apóstolos. Para suas despesas mais necessárias, necessidades
-básicas.
+Judas was from the city of Karioth. Trader. That's why you used to deal with
+with values, with coins. He had a head for the trade. He objected to profits. It was the
+responsible for loading and managing the few coins that, in the wanderings with
+Jesus, they possessed the apostles. For your most necessary expenses, needs
+Basic.
 
-À semelhança de muita gente em Israel, Judas entendia que o Messias viera para
-a libertação do povo da escravidão romana. Era o libertador. Alguém semelhante
-a Moisés, que tirara do Egito os filhos de Abraão.
+Like many people in Israel, Judas understood that the Messiah had come to
+the liberation of the people from Roman slavery. He was the liberator. Someone similar
+to Moses, who had taken from Egypt the children of Abraham.
 
-Intimamente acreditava que Jesus, se colocado em posição que lhe pusesse em
-risco a vida, tomaria uma atitude. O poder de Jesus ele conhecia. E confiava.
-Confiava que Jesus agiria, chamasse as forças celestes e subjugasse o poder de
-Roma. Seria o sinal para a total libertação.
+Intimately believed that Jesus, if placed in a position that put him in
+life-threatening, it would take an attitude. The power of Jesus he knew. And I trusted you.
+He trusted that Jesus would act, call the heavenly forces, and subdue the power of
+Rome. It would be the signal for full release.
 
-Jesus seria o rei de Israel. Ele, Judas, um dos seus mais fiéis servidores. Era
-o entendimento do mundo que fazia com que Judas se deixasse envolver por tais
-pensamentos. O reino de Deus, de que falava o Messias, não havia ainda sido
-compreendido por ele. Por isso decide negociar com os sacerdotes do Templo.
-Entregar o amigo em troca de trinta moedas.
+Jesus would be the king of Israel. He, Judas, one of his most faithful servers. Was
+understanding of the world that caused Judas to get involved by such
+Thoughts. The kingdom of God, of which the Messiah spoke, had not yet been
+understood by him. That's why you decide to negotiate with the priests of the Temple.
+Deliver your friend in exchange for thirty coins.
 
-Quando observa Jesus sendo julgado, arrastado, humilhado, sem nada fazer, ele
-entende. Jesus jamais agrediria ninguém. Seu reino não era deste mundo. Era o
-reino do Espírito o que Ele falava e pregava.
+When he observes Jesus being judged, dragged, humiliated, doing nothing, he
+Understand. Jesus would never assault anyone. His kingdom was not from this world. It was the
+kingdom of the Spirit what He spoke and preached.
 
-Apavora-se. Tenta devolver as moedas. Desfazer o negócio. Mas somente encontra
-a ironia daqueles que, com habilidade, haviam se servido da sua ambição e da
-sua ignorância acerca dos verdadeiros valores.
+Freak out, try to return the coins. Undo the business. But you only find
+the irony of those who, with skill, had served themselves as their ambition and the
+ignorance about true values.
 
-Como não consegue que a vida de Jesus seja poupada, toma-se de vergonha.
-Infelizmente, a vergonha foi tanta que o conduziu ao trágico ato do suicídio.
+Since you can't get Jesus' life spared, you're ashamed.
+Unfortunately, the shame was so much that it led to the tragic act of suicide.
 
-As informações espirituais são de que o próprio Jesus o socorreu após a morte.
-E Judas, como todo Espírito que erra, renasceu muitas vezes para saldar o seu
-débito com a Lei Divina.
+Spiritual information is that Jesus himself helped him after death.
+And Judas, like every Spirit who errs, was often reborn to pay off his
+debt to the Divine Law.
 
-Hoje é uma alma reabilitada que serve na Seara de Amor do Mestre Jesus.
+Today it is a rehabilitated soul that serves in the Seara of Love of Master Jesus.
 
-Falhou, errou. Pagou com lágrimas, dores e trabalho o seu erro.
-
-                                   *   *   *
-
-Há registros de que, com as trinta moedas que Judas devolveu ao Templo, foi
-adquirido um campo para servir de cemitério aos forasteiros e peregrinos que
-morressem em Jerusalém.
-
-O terreno ficou conhecido como campo de sangue.
-
-No lugar de Judas, para compor os doze, os apóstolos escolheram Matias.
+You failed, you made a mistake. You paid with tears, pain and work your mistake.
 
                                    *   *   *
 
-O teu ofensor merece tua compaixão, nunca a tua vingança.
- 
+There are records that, with the thirty coins judas returned to the Temple, it was
+acquired a camp to serve as a cemetery to outsiders and pilgrims who
+died in Jerusalem.
+
+The terrain became known as a blood field.
+
+In Judas's place, to compose the twelve, the apostles chose Matias.
+
+                                   *   *   *
+
+Your offender deserves your compassion, never your revenge.
+
 
 ## Source
 Redação do Momento Espírita, com

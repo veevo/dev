@@ -7,84 +7,84 @@ topics:
 - mother
 ---
 
-Tratando sobre o ato de dar, assim escreveu Gibran Khalil Gibran:
+Dealing with the act of giving, so wrote Gibran Khalil Gibran:
 
-Então, um homem rico disse ao profeta: “Fala-nos da dádiva!”
+Then a rich man said to the prophet, "Tell us about the gift!"
 
-E ele  respondeu:
+And he said:
 
-“Vós pouco dais quando dais de vossas posses.
+"You do little when you take your possessions.
 
-É quando dais de vós próprios que realmente dais.
+That's when you're given yourselves that you really do.
 
-Pois, o que são vossas posses senão coisas que guardais por medo de precisardes
-delas amanhã?
+Yes, what are your possessions but things you keep for fear of needing
+of them tomorrow?
 
-E amanhã, que trará o amanhã ao cão ultraprudente que enterra ossos na areia
-movediça enquanto segue os peregrinos para a cidade santa?
+And tomorrow, that will bring tomorrow to the ultraprudent dog that buries bones in the sand
+quickas you follow the pilgrims to the holy city?
 
-Há os que dão pouco do muito que possuem, e fazem-no para serem elogiados, e
-seu desejo secreto desvaloriza suas dádivas.
+There are those who give little of their much, and do so to be praised, and
+his secret desire devalues his gifts.
 
-E há os que têm pouco e dão-no inteiramente.
+And there are those who have little and give it entirely.
 
-Esses confiam na vida e na generosidade da vida, e seus cofres nunca se
-esvaziam.
+These trust in life and generosity of life, and their coffers never
+Empty.
 
-E há os que dão com alegria, e essa alegria é sua recompensa.
+And there are those who give with joy, and that joy is your reward.
 
-E há os que dão sem sentir pena nem buscar alegria e sem pensar na virtude.
+And there are those who give without feeling sorry or seeking joy and without thinking about virtue.
 
-Dão como, no vale, a flor espalha sua fragrância no espaço.
+They give how, in the valley, the flower spreads its fragrance in space.
 
-Pelas mãos de tais pessoas, Deus fala; e através de seus olhos,  Ele sorri para
-o mundo.
+Through the hands of such people, God speaks; and through his eyes, He smiles at
+the world.
 
-É belo dar quando solicitado; é mais belo, porém, dar sem ser solicitado, por
-haver apenas compreendido.
+It is beautiful to give when requested; is more beautiful, however, give without being requested, for
+only understood.
 
-E para os generosos, procurar quem recebe é uma alegria maior ainda que a de
-dar.
+And for the generous, seeking who receives is a greater joy even if that of
+To give.
 
-E existe alguma coisa que possais guardar?
+And is there anything you can keep?
 
-Tudo que possuís será um dia dado.
+All you own will be a given day.
 
-Dai agora, portanto, para que a época da dádiva seja vossa e não de vossos
-herdeiros.
+Give now, therefore, that the time of gift may be yours and not your
+Heirs.
 
-E vós que recebeis – e vós todos recebeis – não assumais nenhum encargo de
-gratidão a fim de não pordes um jugo sobre vós e vossos benfeitores.
+And you who receive - and you all receive - do not assume any burden of
+gratitude so that you do not put a yoke upon you and your benefactors.
 
-Antes, erguei-vos, junto com eles, sobre asas feitas de suas dádivas.
+Before, stand, together with them, upon wings made of their gifts.
 
-Pois se ficardes demasiadamente preocupados com vossas dívidas, estareis
-duvidando da generosidade daquele que tem a terra liberal por mãe e Deus por
-pai.
+Because if you become too worried about your debts, you will be
+doubting the generosity of the one who has the liberal land by mother and God by
+Father.
 
-Dizeis muitas vezes: Eu daria, mas somente a quem merece.
+You say many times: I would give, but only to those who deserve it.
 
-As árvores de vossos pomares não falam assim, nem os rebanhos de vossos pastos.
+The trees of your orchards don't talk like that, nor do the herds of your pastures.
 
-Dão para continuar a viver, pois reter é perecer.
+They can continue to live, for retaining is perishing.
 
-Certamente, quem é digno de receber seus dias e suas noites é digno de receber
-de vós tudo o mais.
+Certainly, who is worthy to receive their days and their nights is worthy to receive
+of you everything else.
 
-E quem mereceu beber do oceano da vida, merece encher sua taça em vosso pequeno
-córrego.
+And those who deserved to drink from the ocean of life deserve to fill their glass in your little
+Stream.
 
-E que mérito maior haverá do que aquele que reside na coragem e na confiança,
-mais ainda, na caridade de receber?
+And what greater merit there will be than the one who resides in courage and trust,
+even more, in the charity to receive?
 
-E quem sois vós para que os homens devam expor seu íntimo e desnudar seu
-orgulho a fim de que possais ver seu mérito despido e seu amor-próprio
-rebaixado?
+And who are you so that men should expose their intimate and bare their
+pride so that you may see his naked merit and his self-esteem
+Demoted?
 
-Procurai ver, primeiro, se mereceis ser doadores e instrumentos do dom.
+Try to see first if you deserve to be donors and gift instruments.
 
-Pois, na verdade, é a vida que dá a vida, enquanto vós, que vos julgais
-doadores, sois simples testemunhas.”
+For, in fact, it is the life that gives life, while you, who judge yourselves
+donors, you are simple witnesses."
 
 
 ## Source

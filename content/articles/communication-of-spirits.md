@@ -18,80 +18,80 @@ topics:
 - wisdom
 ---
 
-Algumas pessoas têm estranhos conceitos a respeito dos Espíritos.
+Some people have strange concepts about spirits.
 
-Acreditam que, após a morte, todos se tornam anjos de pureza e sabedoria.
+They believe that after death, everyone becomes angels of purity and wisdom.
 
-É comum se ter notícias de pessoas famosas. Muitos artistas que vêm dizer das
-suas atividades no mundo espiritual. Falam de garra, de luta.
+It's common if you hear from famous people. Many artists who come to say of the
+activities in the spirit world. They talk about grit, fighting.
 
-E as pessoas se deixam iludir. Não se dão conta do estilo de vida daquelas
-criaturas. E nem do gênero de morte.
+And people let themselves be deluded. You don't realize the lifestyle of those
+Creatures. And not even the kind of death.
 
-Temos ouvido elogios às mensagens de um ou de outro.
+We've been hearing compliments for messages from one or the other.
 
-Criaturas que, durante a vida física, se permitiram toda sorte de prazeres:
-álcool, fumo, sexo, drogas.
+Creatures that, during physical life, allowed themselves all sorts of pleasures:
+alcohol, smoking, sex, drugs.
 
-Alguns até perderam o corpo de carne por suicídio indireto e direto.
+Some even lost the body of flesh by indirect and direct suicide.
 
-Porém, vem dizer que estão bem. Que continuam a compor, que está tudo legal com
-eles. Falam até em serem protetores de alguns dos seus fãs.
+But it comes to say they're okay. That continue to compose, that everything is legal with
+They. They even talk about being protectors of some of their fans.
 
-A crermos serem verdadeiras tais mensagens, é de nos perguntarmos: Onde a
-justiça de Deus?
+To believe that such messages are true, we are asked: Where the
+justice of God?
 
-Pois o homem de bem anda no reto dever a vida toda e estará bem no mundo
-espiritual. O inconsequente e leviano também?
+For the man of good walks in the right life and will be well in the world
+Spiritual. The inconsequential and frivolous too?
 
-Vigilância! Bom senso! Não nos deixemos seduzir por tolices.
+Surveillance! Common sense! Let's not be seduced by nonsense.
 
-A cada um será dado segundo as suas obras. A afirmativa é do Cristo.
+Each will be given according to his works. The statement is of Christ.
 
-Vamos convir assim que os que na Terra dilapidaram o tesouro do corpo, se
-encontrarão no mundo espiritual doentes, necessitados de auxílio, confusos.
+Let's convir as soon as those on Earth diluted the treasure of the body, if
+will find in the spiritual world sick, in need of help, confused.
 
-Seres que necessitarão da Misericórdia Divina. De tempo para se equilibrarem.
+Beings who will need Divine Mercy. Time to balance.
 
-Nenhuma chance imediata de se tornarem anjos da guarda ou Espíritos guias.
+No immediate chance of becoming guardian angels or guiding spirits.
 
-Falando das penas e recompensas, os Espíritos asseveraram: a felicidade dos
-Espíritos é sempre proporcional à sua elevação.
+Speaking of the feathers and rewards, the Spirits affirmed: the happiness of the
+Spirits are always proportional to their elevation.
 
-Para os que delinquiram no mundo, as penas proporcionais: o avarento fica às
-voltas com coisas materiais, que já não pode gozar.
+For those who delinquiat in the world, proportional penalties: the miser is
+comes back with material things, which can no longer enjoy.
 
-O devasso com as orgias de que ainda deseja participar.
+The debauchery with the of which he still wants to participate.
 
-O orgulhoso inveja as honras que não mais recebe. Enfim, cada um vive no mundo
-espiritual o que viveu na Terra.
+The proud envy of the honors he no longer receives. Anyway, everyone lives in the world
+spiritual what lived on earth.
 
-A morte a ninguém transforma.
+Death to no one transforms.
 
-Seres angélicos só os que na carne serviram no bem, doaram-se e realizaram o
-que era bom.
+Angelic beings only those who served in the flesh, donated and carried out the
+that was good.
 
-Os que cultivaram o belo, continuarão a fazê-lo. Os que criaram o
-desequilíbrio, a desarmonia, prosseguirão a fazê-lo.
+Those who cultivated the beautiful will continue to do so. Those who created the
+imbalance, disharmony, will continue to do so.
 
-Um dia despertarão. Nesse dia, iniciarão seu curso para o reequilíbrio, que é
-sempre lento.
+One day they'll wake up. On that day, they will begin their course for rebalancing, which is
+always slow.
 
-Afinal, a natureza não dá saltos, não há varinha mágica para transformar um mau
-em bom, altruísta, benevolente.
+After all, nature does not jump, there is no magic wand to transform a bad
+in good, selfless, benevolent.
 
                                    *   *   *
 
-Em 1969, o Espírito Irmão X entrevistou o Espírito de Marilyn Monroe.
+In 1969, Brother Spirit X interviewed the Spirit of Marilyn Monroe.
 
-Ela morreu por ingestão de pílulas. Suicídio indireto, pois não buscava a
-morte. Só desejava dormir um pouco.
+She died from eating pills. Indirect suicide, as it did not seek the
+Death. I just wanted to get some sleep.
 
-Acerca dos seus planos para o futuro, falou:
+About his plans for the future, he said:
 
-À condição de doente, quero melhorar. Em seguida, como aluna no educandário da
-vida, preciso repetir as lições e provas em que fali... Por agora, não devo e
-nem posso ter outro objetivo que reencarnar, lutar, sofrer e reaprender.
+To the condition of sick, I want to improve. Then as a student in the educandary of the
+life, I need to repeat the lessons and evidence I have failed... For now, I shouldn't and
+nor can I have another goal than to reincarnate, fight, suffer and relearn.
 
 
 ## Source

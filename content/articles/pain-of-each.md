@@ -7,88 +7,88 @@ topics:
 - prayer
 ---
 
-Do canto onde se encontrava, o médico admirava a jovem, com discrição.
+From the corner where she was, the doctor admired the young woman, with discretion.
 
-Ela trajava vestido claro, usava cabelo curto e seus olhos verdes coloriam o
-rosto sem maquiagem.
+She wore light dress, wore short hair and her green eyes colored the
+face without makeup.
 
-Tomava uma xícara de chá, no intervalo anterior ao segundo ato da ópera.
+He had a cup of tea in the interval before the second act of the opera.
 
-De repente, seu ar pensativo se transfigurou num sorriso que iluminou a sala.
+Suddenly, his thoughtful air transfigured into a smile that lit up the room.
 
-Encantado por ela, o jovem médico somente percebeu o motivo da sua alegria
-quando um rapaz loiro chegou perto dela o suficiente para a beijar.
+Delighted by her, the young doctor only realized the reason for her joy
+when a blond boy came close to her enough to kiss her.
 
-Naquele belo salão do Teatro da Ópera de Estocolmo, de paredes, teto e
-ornamentações reluzentes de ouro, Dráuzio observou o casal.
+In that beautiful hall of the Stockholm Opera House, walls, ceiling and
+gleaming gold ornamentations, Dráuzio observed the couple.
 
-O rapaz trajava terno cinza-escuro, camisa branca de gola rulê. De corpo esguio
-e traços herdados dos ancestrais vikings, ele estava à altura da beleza da
-moça.
+The boy wore a dark gray suit, white red neck shirt. Slender body
+and traits inherited from viking ancestors, he was up to the beauty of the
+Girl.
 
-Parecia um casal de artistas de cinema.
+It looked like a couple of movie artists.
 
-Olhando-os, Dráuzio ficou a imaginar quanta diferença havia entre nascer num
-lugar sem gente pobre, como Estocolmo, e num bairro operário de São Paulo.
+Looking at them, Dráuzio wondered how much difference there was between being born in a
+place without poor people, such as Stockholm, and in a working-class neighborhood of São Paulo.
 
-Se ele tivesse recebido a mesma educação e fosse tão bonito quanto aquele
-rapaz, será que sua vida teria sido mais fácil? Mais feliz?
+If he had received the same education and was as beautiful as that
+Boy, would your life have been easier? Happier?
 
-Sozinho, no burburinho das pessoas bem-vestidas do salão de ouro, ele sentiu
-inveja.
+Alone, in the buzz of the well-dressed people of the golden hall, he felt
+Envy.
 
-Queria ter tido as mesmas oportunidades e ser bonito como aquele rapaz.
+I wish I'd had the same opportunities and be handsome as that boy.
 
-Claro, sem deixar de ser ele mesmo. Queria ter encarnado naquele corpo.
+Sure, just though he's himself. I wish I'd incarnated in that body.
 
-Queria poder usufruir do que ele tinha, naquele país culto, organizado, sem
-miséria por perto.
+I wish I could enjoy what he had in that cultured country, organized, without
+misery close by.
 
-Quando acabou a ópera, ele voltou para o pequeno apartamento de hóspedes que o
-instituto médico, onde estagiava, lhe cedera.
+When the opera was over, he returned to the small guest apartment that the
+medical institute, where he interned, had given him in.
 
-Chovia e ele chegou com as meias ensopadas. Fazia frio.
+It rained and he arrived with soaked socks. It was cold.
 
-Pensou em tomar um banho quente mas o chuveiro se negou a funcionar.
+He thought about taking a hot shower but the shower refused to work.
 
-Agasalhou-se o mais que pôde e se sentou junto ao aparelho de calefação,
-sentindo saudades de sua casa e de sua mulher.
+He warmed up as much as he could and sat next to the heating apparatus,
+feeling home and his wife's home.
 
-Poucos dias depois, ele teve nas mãos um prontuário grosso como uma lista
-telefônica. Tratava-se de um caso grave de câncer.
+A few days later, he had in his hands a thick medical record as a list
+Phone. It was a severe case of cancer.
 
-Há oito anos em tratamento, o portador tivera algumas melhoras. Agora, a doença
-se apresentava de uma forma mais agressiva.
+Eight years in treatment, the carrier had some improvement. Now, the disease
+presented itself in a more aggressive way.
 
-Dráuzio concluiu que o único tratamento a tentar seria novo esquema de
-medicamentos. Ao menos, eles poderiam controlar a doença por algum tempo.
+Dráuzio concluded that the only treatment to try would be a new scheme of
+Medicines. At least they could control the disease for a while.
 
-Era uma enfermidade incurável.
+It was an incurable illness.
 
-Quando a enfermeira abriu a porta, Dráuzio custou a acreditar: o doente era o
-rapaz bonito da ópera.
+When the nurse opened the door, Dráuzio cost him to believe: the patient was the
+cute opera boy.
 
-Como naquela noite, ele usava camisa de gola alta para ocultar os gânglios
-saltados e a cicatriz da biópsia.
+Like that night, he wore a high-collared shirt to hide the ganglia
+jumped and biopsy scar.
 
                                    *   *   *
 
-No mundo de provas e expiações em que nos situamos, não há quem não tenha dores
-a suportar.
+In the world of trials and atonements in which we are located, there are no ones who do not have pain
+to bear.
 
-Enfermidades no lar, desemprego, abandono, dificuldades de relacionamento, cada
-qual tem seu cadinho de dor.
+Sickness in the home, unemployment, abandonment, relationship difficulties, each
+which has its crucible of pain.
 
-Ninguém está isento do sofrimento.
+No one is exempt from suffering.
 
-Ricos, pobres, potentados e anônimos, cada qual tem seu fardo a carregar.
+Rich, poor, potentated and anonymous, each of which has its burden to bear.
 
-Algumas são dores profundas e ocultas, que passam despercebidas até mesmo pelos
-familiares, por vezes.
+Some are deep and hidden pains, which go unnoticed even by the
+family members sometimes.
 
-Por isso é que o Mestre de Nazaré nos ensinou: No mundo só tereis aflições.
-Aprendei de mim que sou manso e humilde de coração e encontrareis refrigério
-para vossas almas.
+That is why the Master of Nazareth taught us: In the world you will only have afflictions.
+Learn from me that I am meek and humble of heart and you will find reflectors
+for your souls.
 
 
 ## Source

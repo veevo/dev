@@ -8,73 +8,73 @@ topics:
 - family
 ---
 
-Um ancião que estava para morrer procurou um jovem e narrou uma história de
-heroísmo:
+An elder who was about to die sought out a young man and narrated a story of
+Heroism:
 
-Durante a guerra, ajudou um homem a fugir. Deu-lhe abrigo, alimento e proteção.
+During the war, he helped a man escape. He gave him shelter, food and protection.
 
-Quando já estavam chegando a um lugar seguro, esse homem decidiu traí-lo e
-entregá-lo ao inimigo.
+When they were already coming to a safe place, this man decided to betray him and
+Hand it over to the enemy.
 
-E como você escapou? – Perguntou o jovem.
+And how did you escape? Asked the young man.
 
-Não escapei. Eu sou o outro, sou aquele que traiu. – Diz o velho. Mas, ao
-contar esta história como se fosse o herói, posso compreender tudo o que ele
-fez por mim.
+I didn't escape. I'm the other one, I'm the one who betrayed. "Says the old man. But at the
+tell this story as if it were the hero, I can understand all that he
+did it for me.
 
                                    *   *   *
 
-A sabedoria deste conto nos fala sobre a empatia, essa ação de nos colocarmos
-no lugar do outro, de procurar sentir o que o outro sente.
+The wisdom of this tale tells us about empathy, this action of putting ourselves
+in the place of the other, to try to feel what the other feels.
 
-A empatia nos torna menos orgulhosos e egoístas, pois faz com que pensemos não
-só em nossos pontos de vista, em como estamos nos sentindo, mas também na vida
-alheia, no que se passa no íntimo de alguém.
+Empathy makes us less proud and selfish, because it makes us think no
+only in our views, in how we are feeling but also in life
+of the other way, in what is happening in someone's depths.
 
-Quando nos colocamos no lugar do outro, a compreensão se torna mais fácil de
-ser alcançada, e nossos corações se sentem mais aptos a perdoar.
+When we put ourselves in the place of the other, understanding becomes easier to
+be achieved, and our hearts feel more apt to forgive.
 
-Quando nos colocamos no lugar do outro, temos a oportunidade de acalmar a raiva
-e de evitar a vingança.
+When we put ourselves in each other's shoes, we have the opportunity to calm anger
+and to avoid revenge.
 
-Quando nos colocamos no lugar do outro, desenvolvemos a compaixão, e procuramos
-fazer algo para amenizar o sofrimento do próximo.
+When we put ourselves in the place of the other, we develop compassion, and seek
+do something to alleviate the suffering of others.
 
-Quando nos colocamos no lugar do outro, expandimos nossa capacidade de amar e
-de entender que precisamos viver em família para realizar nosso crescimento.
+When we put ourselves in the place of the other, we expand our ability to love and
+to understand that we need to live as a family to achieve our growth.
 
-Quando nos colocamos no lugar do outro, preparamos nossa intimidade para
-receber as sementes da humildade, descobrindo a verdade de que somos todos
-irmãos, e que precisamos uns dos outros para colher os bons frutos da
-felicidade futura.
+When we put ourselves in the place of the other, we prepare our intimacy to
+receive the seeds of humility, discovering the truth that we are all
+brothers, and that we need each other to reap the good fruits of the
+future happiness.
 
-A empatia nos torna mais humanos, mais próximos da realidade do outro, de suas
-dificuldades e de seu caminho.
+Empathy makes us more human, closer to the reality of the other, of their
+difficulties and their way.
 
-Passamos a analisar a vida através de outros pontos de vista, de outros ângulos
-e, assim, nos tornamos mais sábios, mais maduros.
+We began to analyze life through other points of view, from other angles
+and thus we become wiser, more mature.
 
-O hábito de nos colocarmos no sentimento de alguém é um grande recurso de que
-dispomos para nossas conquistas espirituais elevadas.
+The habit of putting ourselves in someone's feeling is a great resource that
+we have for our high spiritual achievements.
 
-O coração que se isola, que vê somente o que seus olhos permitem e não partilha
-da vida de seu próximo, está estacionado nas trilhas do tempo.
+The heart that isolates itself, which sees only what your eyes allow and does not share
+of the life of his neighbor, is parked in the tracks of time.
 
-É chegado o momento das grandes modificações, das grandes revoluções no
-interior do homem, e a empatia aí está, como excelente agente de transformação
+The time has come for major modifications, of the great revolutions in the
+man's inner ness, and empathy there is, as an excellent agent of transformation
 moral. 
 
                                     *  *  *
 
-Fazei aos homens tudo o que desejai que eles vos façam, pois é nisto que
-consistem a lei e os profetas.
+Do to men everything I have desired them to do to you, for this is what
+consist of law and prophets.
 
-O médico das almas, Jesus, sempre buscou mostrar os caminhos mais seguros para
-nossas vidas. Nesta máxima revolucionária e, ao mesmo tempo, simples, introduz
-na Terra o conceito de empatia, de agir conforme aquilo que desejamos para nós
-mesmos.
+The doctor of souls, Jesus, has always sought to show the safest ways to
+our lives. In this revolutionary and simple maxim, at the same time, introduces
+on earth the concept of empathy, of acting according to what we desire for us
+Same.
 
-As verdades estão conosco. É tempo de instituí-las em nossos dias.
+The truths are with us. It's time to institute them in our day.
 
 ## Source
 Redação do Momento Espírita, com base no livro Maktub, de

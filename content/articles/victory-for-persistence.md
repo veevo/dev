@@ -9,82 +9,82 @@ topics:
 - mother
 ---
 
-Neide nasceu numa cidadezinha do Interior. Era a mais velha de oito irmãos e,
-por isso, a mãe a encarregara de ajudar a criá-los.
+Neide was born in a small town in the interior. She was the oldest of eight brothers and,
+therefore, the mother had instructed her to help raise them.
 
-Quando completou oito anos, seu pai morreu. Neide precisou deixar a escola para
-se dedicar à casa e ao cuidado dos menores, para que a mãe pudesse trabalhar.
+When he turned eight, his father died. Neide had to leave school for
+devote herself to the house and the care of minors, so that the mother could work.
 
-Era ela quem dava banho, preparava as mamadeiras, fazia a comida, trocava as
-fraldas, limpava a casa.
+She was the one who bathed, prepared the bottles, made the food, changed the
+diapers, cleaned the house.
 
-À noite, exausta, deitava-se na cama e sonhava com o dia em que poderia voltar
+At night, exhausted, lay in bed and dreamed of the day when he could return
 a estudar.
 
-A vida era dura. A mãe mal conseguia ganhar o suficiente para prover as
-necessidades dos filhos.
+Life was hard. The mother could barely earn enough to provide the
+needs of children.
 
-Passaram fome e frio, muitas vezes.
+They've been hungry and cold, often.
 
-À medida que cresciam, seus irmãos e irmãs recebiam tarefas para realizar.
-Dessa forma, a responsabilidade pela casa era distribuída, aliviando um pouco a
-carga da menina.
+As they grew older, their brothers and sisters were given tasks to perform.
+Thus, the responsibility for the house was distributed, relieving a little
+load of the girl.
 
-Aos dezessete anos, ela conheceu aquele que viria a ser seu marido.
+At the age of seventeen, she met the one who would become her husband.
 
-Casou-se e mudou-se com ele para a capital.
+He married and moved with him to the capital.
 
-No início, a vida na cidade grande foi assustadora. O jovem casal não estava
-acostumado com a maldade humana e vezes sem conta foi enganado, humilhado,
-perseguido.
+At first, life in the big city was scary. The young couple was not
+accustomed to human wickedness and over and over again was deceived, humiliated,
+Pursued.
 
-Neide chorava e rezava a Deus pedindo forças, esforçando-se para não se deixar
-abater diante das dificuldades.
+Neide cried and prayed to God asking for strength, striving not to leave
+to the difficulties.
 
-Seu marido, um jovem de alma nobre, sabia do grande sonho da esposa de estudar,
-e a incentivava.
+Her husband, a young man of noble soul, knew of his wife's great dream of studying,
+and encouraged her.
 
-Arrumou dois empregos para que ela pudesse trabalhar menos e ter tempo para os
-estudos.
+He got two jobs so she could work less and have time for the
+Studies.
 
-Neide ia para a escola todas as noites com a alegria de quem vai receber um
-prêmio. Não perdia nenhuma aula.
+Neide went to school every night with the joy of those who will receive a
+Prize. I didn't miss any classes.
 
-Quando sua filha nasceu, não esmoreceu. O marido cuidava da pequena para que
-ela pudesse concluir o curso de enfermagem.
+When your daughter was born, you didn't fade. Her husband took care of the little one so that
+she could complete the nursing course.
 
-Era um modelo de dedicação. Enquanto algumas colegas se negavam a realizar
-tarefas que consideravam menos nobres, não havia tarefa que Neide se negasse a
-cumprir. E fazia com todo o respeito por aqueles que estavam sob seus cuidados.
+It was a model of dedication. While some colleagues refused to carry out
+tasks they considered less noble, there was no task for Neide to deny himself to
+Fulfill. And he did with all due respect to those who were in his care.
 
-No dia da formatura, professores e colegas fizeram uma homenagem à aluna que
-ensinara a todos uma importante lição de amor, dedicação e humildade: a
-enfermeira Neide.
+On graduation day, teachers and colleagues paid tribute to the student who
+taught everyone an important lesson in love, dedication and humility: the
+Nurse Neide.
 
-Chamada ao microfone, ela tremia e chorava de emoção.
+Called to the microphone, she trembled and cried with emotion.
 
-Não se sentia nada especial. Apenas fizera o que seu coração mandava. O que
-dizer àquelas pessoas que a aplaudiam?
+He didn't feel special at all. He had just done what his heart was in charge. What
+tell those people who applauded her?
 
-Quando os aplausos cessaram, falou de sua infância, de como chorava à noite por
-não poder ir à escola, nem ter o que comer, o que vestir e o que calçar.
+When the applause ceased, he spoke of his childhood, of how he cried at night for
+not being able to go to school, nor have what to eat, what to wear and what to wear.
 
-Contou de suas preces a Deus para que a ajudasse a realizar seu sonho de
+He told of her prayers to God that he would help her realize her dream of
 estudar.
 
-Tenho certeza de que Deus ouviu minhas preces. Ele me deu um marido amoroso,
-que sempre me incentivou e apoiou. E colocou em meu caminho pessoas que me
-ajudaram.
+I'm sure God heard my prayers. He gave me a loving husband,
+who always encouraged me and supported me. And put in my way people who me
+Helped.
 
-Todas as noites agradeço por ter saúde, poder trabalhar, ter o que comer, ter
-uma família, ter conseguido realizar meu grande sonho.
+Every night I thank you for being healthy, being able to work, have to eat, have
+a family, have managed to fulfill my great dream.
 
-Acho que sou a pessoa mais feliz do mundo e sou grata por isso.
+I think I'm the happiest person in the world and I'm grateful for that.
 
-Quando terminou, plateia, professores e colegas não conseguiam conter as
-lágrimas.
+When it was over, audiences, teachers and colleagues could not contain the
+Tears.
 
-Estavam diante da pessoa mais simples e também a mais rica do mundo!
+They were facing the simplest and also richest person in the world!
 
 ## Source
 Redação do Momento Espírita.  

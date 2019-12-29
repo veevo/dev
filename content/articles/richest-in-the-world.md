@@ -11,88 +11,88 @@ topics:
 - prayer
 ---
 
-É comum ouvirmos histórias envolvendo pessoas ilustres da nossa atualidade.
+It is common to hear stories involving illustrious people from our present day.
 
-Nem sempre verídicas. Algumas muito positivas mas que, após uma pesquisa, se
-revelam totalmente sem fundamento.
+Not always true. Some very positive but that, after a survey,
+reveal totally unfounded.
 
-Optamos então por narrar o fato, de excelente lição, sem apontar o eventual
-envolvido.
+We then chose to narrate the fact, of excellent lesson, without pointing out the eventual
+Involved.
 
-Conta-se que um dos homens mais ricos da atualidade, ao ser indagado a respeito
-de alguém que lhe sobrepujasse em fortuna, teria respondido com a seguinte
-narrativa.
+It is said that one of the richest men today, when asked about
+of someone who overcame him in fortune, would have responded with the following
+Narrative.
 
-Quando eu ainda não era famoso, certa feita, no aeroporto de Nova York, vi um
-vendedor de jornais.
+When I was not yet famous, certain done, at new york airport, I saw a
+newspaper salesman.
 
-Desejei comprar um exemplar, mas descobri que não tinha moedas suficientes.
-Devolvi o exemplar ao jornaleiro, agradeci, dizendo que me faltava dinheiro
-para pagar.
+I wanted to buy a copy, but I found out I didn't have enough coins.
+I returned the copy to the newsman, I thanked him, saying that I lacked money
+to pay.
 
-O vendedor insistiu para que eu levasse o jornal mesmo assim. “Estou lhe
-dando”, falou, firme.
+The salesman insisted i take the paper anyway. "I am
+giving," he said, firmly.
 
-Passados uns dois ou três meses, no mesmo aeroporto, o fato tornou a acontecer.
-De igual forma, o rapaz me ofereceu o jornal, sem que eu tivesse o suficiente
-em moedas para lhe pagar.
+After about two or three months, at the same airport, the fact happened again.
+Likewise, the boy offered me the newspaper, without me having enough
+coins to pay you.
 
-Recusei, mas ele disse: “Pode levar. Compartilho isso dos meus ganhos. Não
-estarei perdendo”.
+I refused, but he said, "You can take it. I share this of my earnings. No
+I'll be losing."
 
-E lá fui eu com meu exemplar outra vez.
+And there I went with my copy again.
 
-O tempo passou. Quase vinte anos depois, famoso e conhecido no mundo, lembrei
-daquele vendedor. Estaria ainda no aeroporto, na mesma função?
+Time has passed. Almost twenty years later, famous and known in the world, I remembered
+that seller. Would you still be at the airport in the same role?
 
-Procurei-o e afinal o encontrei. Perguntei se ele sabia quem eu era.
+I looked for him, and I found him after all. I asked him if he knew who I was.
 
-“Claro que sim”, disse logo. “Quem não sabe?” E disse meu nome.
+"Of course i do, " he said soon. "Who doesn't know?" And i said my name.
 
-Perguntei em seguida: “Você lembra que me deu o jornal gratuitamente?”
+I then asked, "Do you remember you gave me the paper for free?"
 
-“Sim, lembro, e foram duas vezes.”
+"Yes, I remember, and it was twice."
 
-“Pois então”, eu lhe falei, “quero pagar a ajuda que me deu naquela época. O
-que você gostaria de ter? O que quiser, eu lhe dou.
+"So," I told him, "I want to pay the help you gave me back then. The
+what would you like to have? Whatever you want, I'll give it to you.
 
-“Bem”, falou o homem, “o senhor realmente acredita que pode igualar a minha
-ajuda? Veja bem: quando eu lhe dei os jornais, era um pobre vendedor.
+"Well, " said the man, "you really believe you can match my
+Help? You see, when I gave you the papers, I was a poor salesman.
 
-O senhor agora, muito rico, deseja me dar algo. Acha que a sua doação pode se
-igualar com a minha?”
+You now, very rich, wish you give me something. Do you think your donation can be
+match mine?"
 
-E concluiu o entrevistado: Nesse dia, eu percebi que o vendedor de jornais era
-mais rico do que eu porque ele não esperou se tornar rico para ajudar alguém.
+And concluded the interviewee: That day, I realized that the newspaper salesman was
+richer than me because he didn't expect to become rich to help someone.
 
                                    *   *   *
 
-Se pensarmos, de forma apressada, poderemos qualificar o vendedor de jornais
-como alguém orgulhoso.
+If we think, in a hasty way, we can qualify the newspaper seller
+as someone proud.
 
-No entanto, precisamos extrair a lição, exatamente como no-la ensina o
-Evangelho.
+However, we need to extract the lesson, just as we teach the
+Gospel.
 
-Observando as doações, no templo, Jesus diz que as duas pequenas moedas
-depositadas pela viúva eram uma doação muito mais significativa do que as
-inúmeras moedas deixadas pelos ricos fariseus.
+Observing donations in the temple, Jesus says that the two small coins
+deposited by the widow were a much more significant donation than the
+countless coins left by the rich Pharisees.
 
-A questão é a criatura se privar de algo para ofertar ao outro, que atravessa
-uma necessidade.
+The point is the creature depriving itself of something to offer to the other, which crosses
+a necessity.
 
-Em essência, essa pessoa é a potencialmente rica porque rico é o seu coração,
-que pensa no semelhante, antes que em si mesma.
+In essence, this person is the potentially rich because rich is his heart,
+who thinks of the similar, before in herself.
 
-Afinal, quando damos daquilo que nos sobra, daquilo que não nos faz falta,
-naturalmente tem seu mérito, porque denota nosso desprendimento, nossa vontade
-de auxiliar.
+After all, when we give what we have left, what we don't need,
+of course has its merit, because it denotes our detachment, our will
+auxiliary.
 
-Contudo, mais excelente doação é daquela criatura que dá do que lhe poderá
-fazer falta. Reparte o pão que tem para saciar a própria fome.
+However, the most excellent donation is that creature that gives you than you can
+miss. It breaks down the bread you have to satiate your own hunger.
 
-Oferece a água para aplacar a sede de alguém embora também se ache sedento.
+It offers water to placate someone's thirst although they are also thirsty.
 
-Essa é a verdadeiramente rica.
+That's the truly rich one.
 
 ## Source
 Redação do Momento Espírita, a partir de

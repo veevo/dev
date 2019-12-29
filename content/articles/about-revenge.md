@@ -12,73 +12,73 @@ topics:
 - family
 ---
 
-A vingança é uma espécie de justiça bárbara, de tal maneira que quanto mais a
-natureza humana se inclinar para ela, tanto mais deve a Lei exterminá-la.
+Revenge is a kind of barbaric justice, in such a way that the more the
+human nature leans towards it, the more the Law should exterminate it.
 
-Porque a primeira injúria não faz mais que ofender a Lei, ao passo que a
-vingança da injúria põe a Lei fora do seu ofício.
+Because the first injury does nothing but offend the Law, while the
+revenge of injury puts the Law out of its office.
 
-Estas são algumas considerações do filósofo e ensaísta inglês Francis Bacon
-sobre esse movimento de revide do mal, que ainda tem tanto poder em nós.
+These are some considerations of the English philosopher and essayist Francis Bacon
+on this movement of evil revide, which still has so much power in us.
 
-Ele acrescenta: De certo, ao exercer a vingança, o homem iguala-se ao inimigo;
-mas, passando sobre ela, é-lhe superior; Porque é próprio do príncipe perdoar.
+He adds: Certainly, in exercising revenge, man equals the enemy;
+but, passing upon her, is superior to her; Because it's the prince's own forgiving.
 
-O que passou, passou, e é irrevogável; Os homens prudentes já têm bastante que
-fazer com as coisas presentes e vindouras; não devem, portanto, preocupar-se
-com bagatelas como o trabalhar em coisas pretéritas.
+What passed, passed, and is irrevocable; Prudent men already have enough that
+do with the things present and coming; should therefore not worry
+with bagatelas like working on past things.
 
-Por que hei-de ficar ressentido com alguém, apenas pela razão de que ele mais
-ama a si próprio do que a mim? E se alguém me fez mal, apenas por pura maldade,
-então, esse é unicamente como a roseira e o cardo que picam e arranham apenas
-porque não podem de outra forma proceder.
+Why should I be resentful of someone, just for the reason that he more
+do you love yourself than me? And if someone hurt me, just for pure wickedness,
+so this is solely like the rose bush and thistle that sting and scratch only
+because they cannot otherwise proceed.
 
-Destas sábias colocações, que refletem igualmente o pensamento cristão,
-retiramos reflexões muito importantes:
+Of these wise placements, which also reflect Christian thought,
+we draw very important reflections:
 
-Você sabia que quando se vinga, torna-se igual, ou mais baixo que seu ofensor?
+Did you know that when you take revenge, you become the same, or lower than your offender?
 
-Você sabia que quando não aceita uma ofensa, ou um mal qualquer, este mal
-permanece com quem o criou e não o atinge?
+Did you know that when you don't accept an offense, or any evil, this evil
+remains with whom you created it and does not affect you?
 
-Você sabia que quando gasta seu tempo, suas energias, planejando e cultivando
-sentimentos de vingança, deixa de produzir o bem?
+Did you know that when you spend your time, your energies, planning and cultivating
+feelings of revenge, no longer produce good?
 
-Por isso, é tempo de tomarmos o controle de nossas emoções, de domarmos nossos
-sentimentos inferiores, percebendo que só temos a ganhar se deixarmos de odiar.
+So it's time we took control of our emotions, to tame our
+inferior feelings, realizing that we only have to gain if we stop hating.
 
-Este é o início do perdão.
+This is the beginning of forgiveness.
 
-Talvez você ainda não esteja preparado para perdoar certas coisas que lhe
-aconteceram, por serem recentes ou mesmo muito traumáticas. Não se preocupe.
+Maybe you're not ready yet to forgive certain things that you
+happened because they are recent or even very traumatic. Don't worry, i'll be right back.
 
-O perdão é um processo. Um passo de cada vez. E o primeiro passo trata da
-autopreservação, isto é, de cuidar da sua saúde, física e mental, pois quem
-guarda mágoa está se envenenando, diariamente, sem saber.
+Forgiveness is a process. One step at a time. And the first step deals with the
+self-preservation, that is, to take care of their health, physical and mental, because those who
+heartache guard is poisoning himself, daily, without knowing.
 
-Assim, o primeiro passo é: deixe de odiar.
+So the first step is, stop hating.
 
-Conforme tão bem disse o pensador citado:
+As the thoughter quoted said so well:
 
-Por que hei-de ficar ressentido com alguém, apenas pela razão de que ele mais
-ama a si próprio do que a mim? E se alguém me fez mal, apenas por pura maldade,
-então, esse é unicamente como a roseira e o cardo que picam e arranham apenas
-porque não podem de outra forma proceder.
+Why should I be resentful of someone, just for the reason that he more
+do you love yourself than me? And if someone hurt me, just for pure wickedness,
+so this is solely like the rose bush and thistle that sting and scratch only
+because they cannot otherwise proceed.
 
-Sim, há pessoas num estado de desequilíbrio tão avançado, enfermos da alma, que
-só conseguem agir dessa forma, infelizmente.
+Yes, there are people in such an advanced state of imbalance, sick of the soul, that
+can only act that way, unfortunately.
 
-Ainda irão despertar, ainda terão que se corrigir e arcar com suas
-responsabilidades, mas, não será o ódio, nem a vingança, que irão conseguir
-esse intento.
+They will still wake up, they will still have to correct themselves and afford their
+responsibilities, but it will not be hatred, nor revenge, which will achieve
+intent.
 
-Por isso, siga adiante... Você é maior do que tudo isso. Você não merece viver
-encarcerado no ódio. Pense em sua saúde, pense em sua família, nos que o amam
-verdadeiramente. Esses lhe querem ver bem, e não adoecido.
+So move on... You're bigger than all this. You don't deserve to live
+incarcerated in hatred. Think about your health, think of your family, those who love you
+Truly. These want to see you well, not get hurt.
 
-É preciso ser maior do que a vingança, do contrário ela nos consumirá aos
-poucos.
- 
+It must be greater than revenge, otherwise it will consume us to
+Few.
+
 
 ## Source
 Redação do Momento Espírita, com base no cap.

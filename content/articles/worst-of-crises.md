@@ -13,69 +13,69 @@ topics:
 - wisdom
 ---
 
-Tiago, um dos Apóstolos de Jesus, era bastante fiel às tradições da época, ao
-cumprimento das Leis e aos livros sagrados de seu povo.
+James, one of jesus' Apostles, was quite faithful to the traditions of the time, at the
+the laws and sacred books of his people.
 
-Costumava refletir sobre a profundidade dos ensinamentos de Jesus, e sobre a
-grande oportunidade que era conviver com Ele.
+He used to reflect on the depth of Jesus' teachings, and on the
+great opportunity that was to live with Him.
 
-Certa vez, interrogou o Mestre, preocupado com as sucessivas crises políticas e
-econômicas que o povo local vivenciava, por conta do domínio esmagador de Roma.
+He once questioned the Master, concerned about the successive political crises and
+that the local people experienced, because of the overwhelming dominance of Rome.
 
-Queria saber por que viviam entre crises econômicas sucessivas, e, se uma crise
-pior ainda estava por acontecer.
+I wonder why they lived between successive economic crises, and if a crisis
+worse was yet to happen.
 
-Jesus, na Sua infinita calma, bondade e sabedoria respondeu: A pior crise,
-Tiago, é a de caráter moral do homem, que acaba por causar todas as outras.
+Jesus, in His infinite calm, kindness, and wisdom replied: The worst crisis,
+James, it is the moral character of man, who ends up causing all the others.
 
-Explicou que o ser humano ainda se acomoda na ignorância, ligado a paixões que
-o dominam e o infelicitam.
+He explained that the human being still settles in ignorance, linked to passions that
+dominate him and congratulate him.
 
-Salientou que, na raiz da crise moral se encontra o egoísmo, que sempre atuará
-prejudicando o próximo.
+He stressed that, at the root of the moral crisis, selfishness is found, which will always act
+harming others.
 
-Na falta da solidariedade e da fraternidade florescem a ambição, a loucura, a
-perturbação e os desastres decorrentes desses vícios morais.
+In the absence of solidarity and fraternity, ambition, madness,
+and the disasters arising from these moral vices.
 
-As pessoas se isolam em seu orgulho, na ilusão do poder, da raça, da fé
-religiosa ou política, contribuindo para a desarmonia entre as criaturas.
+People isolate themselves in their pride, in the illusion of power, race, faith
+religious or political, contributing to the disharmony among creatures.
 
-A ambição desmedida pelas posses materiais causa profundos desequilíbrios, com
-alguns possuindo muito, e tantos possuindo quase nada.
+The unmeasured ambition for material possessions causes profound imbalances, with
+some possessing a lot, and so many possessing almost nothing.
 
-O consumo desenfreado pode levar indivíduos e, até mesmo uma nação, à ruína.
+Unbridled consumption can lead individuals and even one nation to ruin.
 
-Em sua conversa com Tiago, o Mestre diz que a severa crise daqueles dias era a
-mesma, desde o início dos tempos, e que se prolongaria ainda por um longo
-período na sociedade terrestre.
+In his conversation with James, the Master says that the severe crisis of those days was the
+since the beginning of time, and which would still last for a long period of
+period in terrestrial society.
 
-Jesus encerra dizendo: No futuro, as crises existenciais, políticas e morais
-cederão lugar ao entendimento, com base no amor, porque, então, a mais severa
-das crises do ser humano estará resolvida: a crise moral.
+Jesus ends by saying: In the future, existential, political and moral crises
+will yield place to understanding, based on love, because then the most severe
+human crises will be resolved: the moral crisis.
 
-As considerações feitas por Jesus há mais de dois mil anos são de uma
-atualidade impressionante.
+The considerations made by Jesus more than two thousand years ago are of a
+impressive timeliness.
 
-Hoje, as crises morais, como crimes e corrupção, tomam enorme tempo em
-noticiários e grandes manchetes em jornais.
+Today, moral crises, such as crimes and corruption, take enormous time in
+news and big headlines in newspapers.
 
-As crises políticas, na forma de guerras, se repetem, baseadas na ilusão da
-posse, no orgulho e no poder.
+Political crises, in the form of wars, are repeated, based on the illusion of
+possession, pride and power.
 
-As crises econômicas, baseadas no descaso político, na ganância dos que
-comandam o sistema financeiro, e na obsessão individual de amealhar bens se
-repetem, causando desequilíbrios de grande porte.
+Economic crises, based on political disregard, on the greed of those who
+command the financial system, and in the individual obsession of collecting assets if
+repeated, causing large imbalances.
 
-No entanto, sabemos, escutando nosso caro amigo e guia, que a mudança real
-começa em cada um de nós, e que o mundo caminha, mesmo que a passos lentos aos
-nossos olhos, para uma mudança real.
+However, we know, listening to our dear friend and guide, that real change
+begins in each of us, and that the world walks, even if in slow steps to the
+our eyes, for a real change.
 
-Um novo mundo só será possível se for baseado no amor, com os atos valendo mais
-do que as palavras, com entendimento e fraternidade.
+A new world will only be possible if it is based on love, with acts worth more
+than words, with understanding and brotherhood.
 
-No futuro, crise será uma palavra restrita ao dicionário. Mas para que isso
-aconteça uma longa e silenciosa batalha deve ser travada no íntimo do ser
-humano, em busca do equilíbrio e do amor!
+In the future, crisis will be a word restricted to the dictionary. But for that
+a long and silent battle must be fought in the depths of being
+in search of balance and love!
 
 ## Source
 Redação do Momento Espírita, com base no cap. 11, do livro

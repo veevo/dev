@@ -19,73 +19,73 @@ topics:
 Desde que a bebida alcoólica foi descoberta, o beber passou a ser um ato
 facilmente assimilável pelos jovens adolescentes e futuros adultos.
 
-Em torno do ato de beber criou-se uma aura de magia, como se ele fosse a
-resposta para os problemas existenciais.
+Around the act of drinking a magical aura was created, as if it were the
+response to existential problems.
 
-Na mitologia, Baco, considerado o deus do vinho, dizia que quem bebesse aquele
-líquido sagrado ficaria possuído por poderes divinos.
+In mythology, Bacchus, considered the god of wine, said that whoever drank that
+sacred liquid would be possessed by divine powers.
 
-Surgiram festas de orgia chamadas bacanais, regadas a muito álcool e com elas,
-a violência. Hoje, a ação do álcool influencia milhares de pessoas.
+parties called nifties, watered to a lot of alcohol and with them,
+violence. Today, alcohol action influences thousands of people.
 
-Algumas dizem beber para se divertirem, relaxarem, outras para adquirirem
-coragem. Todas se matando lentamente.
+Some say drinking for fun, relaxing, others to acquire
+Courage. All slowly killing himself.
 
-O álcool provoca, em alguns, relaxamento, agressividade, descontrole emocional.
-Em outros, alegria desmedida e desinibição.
+Alcohol causes, in some, relaxation, aggressiveness, emotional lack of control.
+In others, unmeasured joy and disinhibition.
 
-O seu uso contínuo provoca a dependência física e é reconhecido pela
-Organização Mundial de Saúde como uma doença.
+Its continuous use causes physical dependence and is recognized by the
+World Health Organization as a disease.
 
-No Brasil as estatísticas apontam milhões de dependentes do álcool. Uns
-dependentes leves, pessoas que bebem quase todos os dias até três doses.
+In Brazil statistics indicate millions of alcohol addicts. Some
+people who drink almost every day up to three doses.
 
-Outros, dependentes moderados, os que bebem diariamente até três doses e, nos
-finais de semana, bebem de forma exagerada. Finalmente, os dependentes graves,
-que bebem sempre. São os que apresentam uma série de transtornos se a bebida
-lhes faltar, desde tremores até ansiedade.
+Other moderate dependents, those who drink daily up to three doses and, in the
+weekends, they drink in an exaggerated way. Finally, the serious dependents,
+who always drink. They are the ones who present a number of disorders if the drink
+from tremors to anxiety.
 
-Em nosso país, o alcoolismo é um dos maiores problemas de saúde pública.
+In our country, alcoholism is one of the biggest public health problems.
 
-Preocupados com os números crescentes de alcoólatras, os Conselhos Comunitários
-de Segurança estabeleceram algumas regras que definem como os pais criam um
-alcoólatra infantil:
+Concerned about the growing numbers of alcoholics, community councils
+established some rules that define how parents create a
+infant alcoholic:
 
-comece na infância a molhar a chupeta no copo de cerveja e dar ao seu filho.
-Ache graça nas caretas que ele fizer;
+Start in childhood to wet the pacifier in the beer glass and give it to your son.
+Find grace in the faces he makes;
 
-quando ele quiser mais bebida alcoólica, continue dando;
+when he wants more alcohol, keep giving;
 
-nunca lhe dê orientação. Não pode, pois faz mal;
+never give you guidance. It cannot, for it is bad;
 
-quando ele estiver bebendo, apoie, ache graça;
+when he is drinking, support, find grace;
 
-beba sempre com ele;
+always drink with him;
 
-dê-lhe dinheiro para beber com os amigos;
+give him money to drink with friends;
 
-satisfaça todos os seus desejos, principalmente o que diz respeito a bebidas
-caras;
+satisfy all your wishes, especially what is for drinks
+faces;
 
-quando ele estiver caindo de bêbado, dê apoio total;
+when he is falling drunk, give full support;
 
-quando se meter em alguma encrenca, dê esta desculpa: Nunca consegui dominá-lo.
+When you get into any trouble, give this excuse: I could never dominate you.
 
-Depois de seguir todas essas regras, prepare-se para uma vida de desgosto. Você
-conseguiu formar mais um alcoólatra para o mundo.
+After following all these rules, prepare for a life of heartbreak. You
+managed to form another alcoholic for the world.
 
                                    *   *   *
 
-Cuidemos da nossa saúde e da dos nossos filhos. Aprendamos e ensinemos a não
-desperdiçar as bênçãos do corpo.
+Let us take care of our health and that of our children. Let's learn and teach you not to
+waste the blessings of the body.
 
-O corpo físico é um bendito talento que deve ser bem utilizado a fim de que
-possamos subir os degraus da evolução que perseguimos.
+The physical body is a blessed talent that should be well used in order to
+we can climb the steps of the evolution we pursue.
 
-Respeitemos esse talento bendito que o Criador nos ofertou na Terra.
+Let us respect this blessed talent that the Creator has offered us on earth.
 
-Vivamos o nosso dia-a-dia com a visão de que somos os grandes responsáveis pelo
-estado geral de doença ou de saúde do nosso corpo físico.
+We live our day-to-day with the view that we are the great responsible for the
+general state of disease or health of our physical body.
 
 ## Source
 Redação do Momento Espírita com base no cap. 29

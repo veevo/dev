@@ -14,85 +14,85 @@ topics:
 - wisdom
 ---
 
-Até onde o amor pode chegar? A pergunta é feita toda vez que algumas tragédias
-abalam a opinião pública.
+How far can love go? The question is asked every time some tragedies
+shake public opinion.
 
-Tragédias como suicídios, assassinatos e perseguições de criaturas que até um
-momento antes afirmavam se amarem profundamente.
+Tragedies such as suicides, murders and persecution of creatures that even a
+moment before they claimed to love each other deeply.
 
-Nesse cenário, vidas humanas são sacrificadas. Jovens, com um futuro promissor
-à frente, face à possibilidade de perderem a sua amada, optam pelo suicídio.
+In this scenario, human lives are sacrificed. Young people, with a promising future
+ahead, given the possibility of losing their beloved, they opt for suicide.
 
-E como uma forma de vingança, fazem questão de deixar um bilhete
-incriminatório, quando não decidem dar cabo da própria vida frente a quem
-afirmam ser o objeto do seu amor.
+And as a form of revenge, they make a point of leaving a note
+incriminating, when they do not decide to ruin their own lives in front of whom
+claim to be the object of their love.
 
-Criaturas que viveram juntas alguns anos, que geraram filhos, de repente, face
-a uma traição, um abandono, optam pela morte própria e dos filhos.
+Creatures that lived together a few years, who have raised children, suddenly face
+to a betrayal, an abandonment, opt for the death of their own and of the children.
 
-Filhos que, na maioria das vezes são muito pequenos e a quem não é perguntado
-se desejam morrer. Ou servir de instrumento de vingança contra o outro.
+Children who are most often very small and to whom they are not asked
+if they wish to die. Or serve as an instrument of revenge against each other.
 
-Ante tais fatos, nos indagamos se será verdadeiramente amor o sentimento que
-une as criaturas que se destroem mutuamente, e levam consigo outros seres,
-filhos da própria carne?
+In the face of such facts, we wonder if it will truly love the feeling that
+unites creatures that destroy each other, and take with them other beings,
+children of their own flesh?
 
-Será amor este sentimento que prefere destruir a renunciar?
+Is love this feeling you prefer to destroy to resign?
 
-O amor é de essência Divina, afirmam os Espíritos nobres. Ora, se é divino,
-somente pode criar coisas belas, cenários de tranqüilidade e de paz.
+Love is of divine essence, affirm the noble Spirits. Now, if it's divine,
+can only create beautiful things, scenarios of tranquility and peace.
 
-Quem ama não agride o ser amado, em circunstância alguma. Não amado, prossegue
-amando, desde que a plenitude do amor é o seu próprio exercício.
+Those who love do not harm the being loved under any circumstances. Unloved, proceeds
+loving, since the fullness of love is his own exercise.
 
-O amor se caracteriza por sentimentos de generosidade, de altruísmo, de
-desprendimento.
+Love is characterized by feelings of generosity, altruism, of
+Detachment.
 
-Quem ama deseja sempre o bem do outro, não importando as circunstâncias.
+Those who love always desire the good of the other, regardless of the circumstances.
 
-Devemos concluir que, enquanto estivermos nos agredindo, o sentimento poderá
-ter muitas nuanças, mas não se poderá chamar amor.
+We must conclude that as long as we are assaulting each other, the feeling may
+have many nuances, but you can't call love.
 
-Nesse contexto, é igualmente salutar recordemos que ninguém é dono de ninguém.
+In this context, it is equally salutary to remember that no one owns anyone.
 
-Os que devemos constituir os lares, já traçamos as metas antes da reencarnação,
-no Mundo Espiritual. Sempre atendendo a propósitos de elevação e progresso.
+Those who must constitute homes, we have already set the targets before reincarnation,
+in the Spirit World. Always serving the purposes of elevation and progress.
 
-Lembrarmos que os nossos filhos não são nossa propriedade. Vêm através de nós,
-mas não nos pertencem.
+Let us remember that our children are not our property. They come through us,
+but they don't belong to us.
 
-Fornecemos-lhes corpos para se desenvolverem na Terra. Contudo, a alma pertence
-ao Pai de todos nós.
+We provide them with bodies to develop on Earth. However, the soul belongs
+to the Father of all of us.
 
-Vindos por nosso intermédio, trazem eles também suas missões e provas a
-cumprir. E não temos o direito de lhes criar obstáculos.
+Coming through us, they also bring their missions and evidence to
+Fulfill. And we have no right to create obstacles to them.
 
-Se estivermos sofrendo situações em que o amor parece ter adoecido,
-permitamo-nos a reflexão, a meditação.
+If we are suffering situations where love seems to have become ill,
+let us allow ourselves to reflect, meditation.
 
-Se alguém que vive ao nosso lado deseja partir, não o agrilhoemos, em nome do
-nosso amor.
+If someone who lives next to us wishes to leave, we do not attack him, in the name of the
+our love.
 
-Se alguém nos fere ou nos agride, não revidemos, recordando que sempre o que
-assim age, se encontra enfermo.
+If someone harms us or attacks us, we do not review us, remembering that always what
+thus acts, is sick.
 
-Como enfermo, não necessita da nossa sentença de morte ou perseguição acirrada,
-mas de médico do corpo e da alma.
+As a sick, it does not require our sentence of death or fierce persecution,
+but of a doctor of the body and soul.
 
-Se amamos, doemos nossa cota de amor, orando pelos nossos amores, onde estejam,
-com quem estejam, como se encontrem.
+If we love, we donate our share of love, praying for our loves, wherever they are,
+with whom they are, how they are.
 
                                    *   *   *
 
-O amor tudo resolve.
+Love all works out.
 
-Se, por acaso, o céu dos teus sorrisos está com as estrelas da alegria
-apagadas, ama, assim mesmo.
+If, by chance, the sky of your smiles is with the stars of joy
+erased, loves, anyway.
 
-Desta forma, iluminarás outros corações que se encontram em trevas mais
-sombrias, porque todo aquele que ama irradia luz e calor. Permanece feliz em
-qualquer circunstância.
- 
+In this way, you will illuminate other hearts that are in darkness more
+dark, because everyone you love radiates light and heat. Remains happy in
+any circumstances.
+
 
 ## Source
 Redação do Momento Espírita com base em reportagem da Revista Isto é nº 1444,

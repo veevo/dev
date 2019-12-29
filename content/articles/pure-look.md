@@ -14,88 +14,88 @@ topics:
 ---
  
 
-Em seu famoso Sermão da Montanha, Jesus afirmou que a candeia do corpo são os
-olhos.
+In his famous Sermon on the Mountain, Jesus stated that the singing of the body are the
+Eyes.
 
-Também disse que, se os olhos forem bons, todo o corpo terá luz.
+He also said that if the eyes are good, the whole body will have light.
 
-Mas se eles forem maus, todo o corpo será trevoso.
+But if they're bad, the whole body will be clover.
 
-A candeia era um utensílio utilizado para iluminação.
+The candeia was a utensil used for lighting.
 
-Devia ser colocada em local alto e de destaque, a fim de que sua luz se
-espraiasse ao longe.
+It should be placed in a high and prominent place, so that its light may become
+shuns in the distance.
 
-Consoante antigos ditados populares, os olhos são a janela ou o espelho da
-alma.
+Depending on popular ancient sayings, the eyes are the window or mirror of the
+Soul.
 
-Esses adágios revelam a importante correlação existente entre os olhos e a
-essência da criatura.
+These adagios reveal the important correlation between the eyes and the
+essence of the creature.
 
-De ordinário, é preferencialmente por eles que o ser humano percebe a realidade
-que o cerca.
+Ordinary, it is preferably for them that the human being perceives the reality
+that surrounds him.
 
-A partir dessa percepção, ordena seu sentir e seu proceder.
+From this perception, it orders your feeling and its proceed.
 
-O que ele focaliza, o que elege como importante para prestar atenção, dá o tom
-de seu viver.
+What he focuses on, what he chooses as important to pay attention, sets the tone
+of his living.
 
-Como disse Jesus, se os olhos são bons, todo o corpo é luminoso.
+As Jesus said, if the eyes are good, the whole body is luminous.
 
-O mundo é rico de distrações.
+The world is rich in distractions.
 
-Sem uma orientação firme, é possível perder-se nelas e tornar-se alguém fútil.
+Without a firm orientation, it is possible to get lost in them and become a futile someone.
 
-Novelas e séries de TV, Internet e revistas são apenas alguns dos passatempos à
-disposição.
+Soap operas and TV series, Internet and magazines are just some of the hobbies to
+Disposal.
 
-Não possuem nada de intrinsecamente errado, mas não constituem o objetivo da
-existência.
+They have nothing intrinsically wrong, but do not constitute the objective of
+Existence.
 
-Justamente por isso, não podem consumir tempo em excesso.
+Precisely for this, they cannot consume excessive time.
 
-O Espírito não toma um corpo de carne para se distrair, mas para se
-aperfeiçoar.
+The Spirit does not take a body of flesh to be distracted, but to
+Perfect.
 
-O tempo mais bem aproveitado é o despendido no burilamento intelectual e moral.
+The best-enjoyed time is the one spent on intellectual and moral fraud.
 
-Em conversas instrutivas, no aconchego da família, com os amigos do coração.
+In instructive conversations, in the warmth of the family, with friends of the heart.
 
-Ou no aprendizado de uma língua, na meditação sobre um texto de moral ou
-filosofia.
+Or in learning a language, meditating on a text of morals or
+Philosophy.
 
-Também possui grande valor a dedicação a uma causa, a atenção dada a pessoas
-carentes ou enfermas.
+Dedication to a cause also has great value, the attention given to people
+needy or sick.
 
-Entretanto, não é apenas com o excesso de distrações que se deve ter cautela.
+However, it is not only with the excess of distractions that one should be cautious.
 
-Pior do que gastar tempo com banalidades é fixar a atenção em coisas
-deletérias.
+Worse than spending time on banalities is fixing attention to things
+deleterious.
 
-Vive-se na Terra uma época de grande permissividade e vigora o discurso de que
-quase tudo é normal.
+A time of great permissiveness is lived on Earth and the discourse that
+almost everything is normal.
 
-Assim, pode não parecer chocante gostar de pornografia, manter conversas
-picantes ou ficar acordado por conta de noitadas.
+So it may not seem shocking to like porn, keep conversations
+or stay awake on account of night-stays.
 
-Mas é preciso cuidado com aquilo em que se fixa detidamente o olhar, para não
-comprometer a própria dignidade.
+But care must be taken with what the look is properly fixed, not to
+compromise one's own dignity.
 
-O gosto pela podridão, ainda que socialmente aceito, conspurca a essência do
-ser.
+The taste for rot, even if socially accepted, comforts the essence of the
+Be.
 
-Para não ter um corpo trevoso, conforme o dizer evangélico, importa ter bons
-olhos.
+In order not to have a clover body, as the gospel say, it is important to have good
+Eyes.
 
-Ou seja, focar a atenção no que de belo e puro há no mundo.
+That is, focus attention on what is beautiful and pure in the world.
 
-Tomar gosto por conversações e leituras sadias.
+Take taste for conversations and sound readings.
 
-Gastar o próprio tempo em atividades construtivas e dedicar-se a obras sociais.
+Spend your own time on constructive activities and devote yourself to social works.
 
-O resultado dessa opção pelo bem será uma formosa luz que revestirá todo o ser.
+The result of this option for good will be a beautiful light that will wear all being.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita.

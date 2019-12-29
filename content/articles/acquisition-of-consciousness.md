@@ -13,87 +13,87 @@ topics:
 ---
 
 
-Allan Kardec, o grande responsável pela Codificação do Espiritismo, perguntou
-aos sábios do espaço onde estão escritas as leis de Deus.
+Allan Kardec, the great responsible for the Codification of Spiritism, asked
+to the wise of the space where god's laws are written.
 
-E eles responderam: Na consciência.
+And they answered: In conscience.
 
-Dessa forma, todos os seres humanos trazem consigo, esculpidas na própria
-consciência, as Leis Divinas.
+In this way, all human beings bring with them, carved into their own
+consciousness, the Divine Laws.
 
-Todavia, embora estejam escritas, nem todos conseguem ler e interpretar essas
-Leis e praticá-las. Para isso é necessário o desenvolvimento do senso moral.
+However, although they are written, not everyone can read and interpret these
+Laws and practice them. For this it is necessary the development of moral sense.
 
-Essa conquista é fruto do esforço pessoal, do estudo, da meditação, dos
-pensamentos nobres.
+This achievement is the result of personal effort, study, meditation,
+noble thoughts.
 
-O despertar da consciência é efeito natural do processo evolutivo, e essa
-conquista permitirá ao ser avaliar fatores profundos como o bem e o mal, o
-certo e o errado, o dever e a irresponsabilidade, a honra e a desonra, o nobre
-e o vulgar, o lícito e o irregular, a liberdade e a libertinagem.
+The awakening of consciousness is a natural effect of the evolutionary process, and this
+achievement will allow us to evaluate profound factors such as good and evil, the
+right and wrong, duty and irresponsibility, honor and dishonor, noble
+and the vulgar, lawful and irregular, freedom and freedom.
 
-Essa consciência não é de natureza intelectual, atividade dos mecanismos
-cerebrais. É força que os impulsiona, porque nascida nas experiências
-evolutivas, a exteriorizar-se em forma de ações.
+This awareness is not of an intellectual nature, activity of the mechanisms
+Brain. It is strength that drives them, because born in experiences
+evolution, to be externalized in the form of actions.
 
-Encontramo-la em pessoas incultas intelectualmente, e ausente em outras,
-portadoras de conhecimentos acadêmicos.
+We find it in intellectually uncultivated people, and absent in others,
+with academic knowledge.
 
-Especialistas em problemas respiratórios, por exemplo, que conhecem os danos
-provocados pelo tabagismo, pelo alcoolismo e por outras drogas, e que, apesar
-disso, usam, eles próprios, qualquer um desses flagelos, demonstram que ainda
-não desenvolveram a consciência plena.
+Specialists in respiratory problems, for example, who know the damage
+caused by smoking, alcoholism and other drugs, and that, despite
+of this, they use, themselves, any of these scourges, demonstrate that still
+have not developed full consciousness.
 
-Os seus dados culturais são frágeis de tal forma que não dispõem de valor para
-manter uma conduta saudável.
+Your cultural data is fragile in such a way that they have no value for
+maintain healthy conduct.
 
-Por outro lado, há indivíduos que não têm conhecimento intelectual mas possuem
-lucidez para agir diante dos desafios da existência, elegendo um comportamento
-não agressivo e digno, mesmo que a custa de sacrifícios.
+On the other hand, there are individuals who do not have intellectual knowledge but have
+lucidity to act in the face of the challenges of existence, electing a
+not aggressive and worthy, even at the expense of sacrifices.
 
-A consciência pode ser treinada mediante o exercício dos valores morais
-elevados, que objetivam o bem do próximo e, por consequência, o próprio bem.
+Consciousness can be trained through the exercise of moral values
+which aim for the good of others and, consequently, the good itself.
 
-Caso deseje iluminar sua consciência, eis algumas breves regras que vão ajudar
-você a alcançar esse propósito:
+If you wish to enlighten your consciousness, here are some brief rules that will help
+you achieve this purpose:
 
-Administre os seus conflitos. O conflito psicológico é inerente à natureza
-humana e todos o sofrem.
+Manage your conflicts. Psychological conflict is inherent in nature
+human and all suffer it.
 
-Evite eleger homens-modelo para seguir. Eles também são falíveis e, às vezes,
-se comprometem, o que, de maneira alguma deve constituir desestímulo.
+Avoid electing model men to follow. They are also fallible and sometimes
+undertake, which in no way should constitute disincentive.
 
-Permita-se maior dose de confiança nos seus valores, esforçando-se para
-melhorar sempre e sem desânimo. Se errar, repita a ação, se acertar, siga
-adiante.
+Allow yourself to be a higher dose of confidence in your values, striving to
+improve always and without discouragement. If you miss, repeat the action, if you get it right, follow
+Ahead.
 
-Não fuja ao enfrentamento de problemas usando desculpas falsas,
-comprometedoras, que o surpreenderão mais tarde com dependências infelizes.
+Don't run away from tackling problems using false excuses,
+compromising, which will surprise you later with unfortunate dependencies.
 
-Reaja à depressão, trabalhando sem autopiedade nem acomodação preguiçosa.
+React to depression, working without self-pity or lazy accommodation.
 
-Tenha em mente que os seus não são os piores problemas. Eles pesam o volume que
-você lhes dá.
+Keep in mind that yours are not the worst problems. They weigh the volume that
+You give them.
 
-Liberte-se da queixa pessimista e medite mais nas fórmulas para perseverar e
-produzir.
+Free yourself from the pessimistic and meditate complaint more in the formulas to persevere and
+Produce.
 
-Nunca ceda espaço à hora vazia, que se preenche de tédio, mal-estar ou
-perturbação.
+Never give way to empty hour, which fills in boredom, malaise or
+Disturbance.
 
-Lembre-se que você é humano e o processo de conscientização é lento. Você
-adquirirá segurança e lucidez através da ação contínua e firme.
+Remember that you are human and the awareness process is slow. You
+safety and lucidity through continuous and firm action.
 
                                    *   *   *
 
-A existência terrena é toda uma oportunidade para enriquecimento contínuo.
+Earthly existence is an opportunity for continuous enrichment.
 
-Cada instante é ensejo de nova ação propiciadora de crescimento, de
-conhecimento, de conquista.
+Every moment is the opportunity of new growth-providing action,
+knowledge, of conquest.
 
-Saber utilizá-la é desafio para a criatura que aspira por novas realizações.
+Knowing how to use it is a challenge for the creature that aspires to new achievements.
 
-Pense nisso, mas pense agora!
+Think about it, but think about it now!
 
 
 ## Source

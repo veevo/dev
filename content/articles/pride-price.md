@@ -13,93 +13,93 @@ topics:
 - mother
 ---
 
-Os afazeres nas manhãs de sábado, naquela família, eram rotineiros, quase
-tradicionais. Era o dia da faxina.
+The chores on Saturday mornings, in that family, were routine, almost
+Traditional. It was cleaning day.
 
-Cabia à mãe coordenar as atividades, distribuindo às filhas os deveres
-domésticos, enquanto aos filhos cabiam os deveres do mundo.
+It was up to the mother to coordinate the activities, distributing to her daughters the duties
+while the children fit the duties of the world.
 
-Injusta ou não, essa era a estrutura familiar vigente.
+Unfair or not, this was the current family structure.
 
-Certa manhã, após grande esforço físico e tempo dedicado, Cecília terminava de
-encerar e fazer brilhar o assoalho da sala.
+One morning, after great physical effort and dedicated time, Cecilia finished
+wax and make the living room floor shine.
 
-Sem os recursos da tecnologia, fazer com que as tábuas de madeira, gastas com o
-tempo, reluzissem tal qual a mãe queria, não era tarefa fácil.
+Without the resources of technology, make the wooden planks, spent on the
+time, gleaming just as the mother wanted, it was no easy task.
 
-Quase a concluir o serviço, surgiu à porta seu irmão gêmeo, Jeremias.
+Almost completing the service, his twin brother Jeremiah came at the door.
 
-Ao vê-lo adentrar a sala, imediatamente Cecília o proibiu de dar um passo a
-mais. Afirmava que ele deveria dar a volta, pelos fundos da casa e entrar pela
-cozinha. Nem pensar em atravessar a sala, perfeitamente brilhante, como
-desejava a mãe.
+Upon seeing him enter the room, Cecilia immediately forbade him to take a step to
+More. He stated that he should go around, through the back of the house and enter through the
+Kitchen. No way of crossing the room, perfectly bright, as
+desired the mother.
 
-Ele insistiu e deu uns passos para dentro. Ela, cansada, ficou com muita raiva
-e gritou: Se pisar nesta sala, que estou acabando de encerar, nunca mais falo
-com você!!
+He insisted and took a few steps inside. She, tired, was very angry
+and cried out, If I step into this room, which I'm just waxing, I never speak again
+with you!!
 
-O irmão achou divertido o desafio. Riu e andou, a passos firmes, sala adentro.
+Brother thought the challenge was fun. He laughed and walked, in firm footsteps, room inside.
 
-Furiosa com as pegadas empoeiradas do irmão, que ficou do outro lado, a
-afrontá-la, tomando tudo como uma grande brincadeira, Cecília cumpriu sua
-promessa.
+Furious at the dusty footprints of her brother, who stood on the other side, the
+to confront her, taking everything as a great joke, Cecilia fulfilled her
+Promise.
 
-Nos primeiros dias, todos os familiares acreditavam que se tratava de uma
-birra.
+In the early days, all family members believed that it was a
+Beer.
 
-Porém, as semanas foram passando céleres, e o silêncio entre os dois não se
-modificou.
+However, the weeks were swift, and the silence between the two did not
+Modified.
 
-Ela não cedia, pois havia feito claramente uma promessa. Ele não se aproximava,
-pois via naquilo tudo uma infantilidade da irmã.
+She did not give in, for she had made a promise clearly. He wasn't getting close,
+because I saw in all a childishness of the sister.
 
-Os anos foram se somando. O silêncio passou a ser hábito entre os dois.
+The years have been added. Silence became a habit between the two.
 
-Eles se enamoraram, cada qual se casou e deixou a casa dos pais, constituindo
-suas próprias famílias.
+They were in love, each of whom married and left their parents' house, constituting
+their own families.
 
-Os anos não modificaram a disposição de nenhum deles. Ninguém cedeu, tentou
-reaproximação, diluir algo que acontecera, num dia que já se fazia distante.
+The years have not changed the disposition of any of them. No one gave in, tried
+rapprochement, dilute something that had happened, on a day that was already distant.
 
-Vinte e cinco anos se passaram desde aquela tolice de uma manhã de sábado.
+Twenty-five years have passed since that nonsense on a Saturday morning.
 
-O telefone tocou e a notícia atingiu o coração de Jeremias como um gélido
-punhal.
+The phone rang and the news struck Jeremiah's heart like a frosty
+Dagger.
 
-Rapidamente foi ao encontro da irmã no hospital, vitimada por um acidente
+She quickly went to meet her sister in the hospital, victimized by an accident
 vascular cerebral.
 
-Ao vê-la imóvel no leito, deu-se conta dos anos corridos, da grande tolice que
-ambos se permitiram.
+When he saw her immovable in bed, he realized the years after, of the great nonsense that
+both allowed themselves.
 
-Por orgulho, mantiveram silêncio por tantos anos, afastaram-se um do outro,
-deixaram de conviver, de estreitar ainda mais os laços do afeto.
+Out of pride, they kept quiet for so many years, moved away from each other,
+no longer live together, to further strengthen the bonds of affection.
 
-Tudo por não querer ceder, não dar o primeiro passo, fazer o primeiro gesto, no
-sentido da reconciliação, de um simples pedido de desculpas.
+All for not wanting to give in, not take the first step, make the first gesture, in the
+sense of reconciliation, a simple apology.
 
-Por quê? - Perguntava-se ele, aturdido, ante a irmã imóvel, no leito do
+Why is that? - He wondered, stunned, before his still sister, on the bed of the
 hospital.
 
-Qual o preço de tão absurdo orgulho? Abrira mão da convivência, do compartilhar
-a vida com ela, por orgulho.
+What is the price of such absurd pride? Give up coexistence, sharing
+life with her, out of pride.
 
-Afinal, ele sempre esperara que ela, que fizera a promessa, tomasse a
-iniciativa da reconciliação e voltassem a se falar, a conviver.
+After all, he had always hoped that she, who had made the promise, to take the
+initiative of reconciliation and to speak again, to live together.
 
-Agora, ante a dura lição, ele pôde aquilatar o preço que pagara pelo seu
-orgulho.
+Now, in the face of the hard lesson, he was able to aquilatar the price he had paid for his
+Pride.
 
-Logo mais descobriria que a irmã não retornaria à consciência.
+Soon i'd find out that her sister wouldn't return to consciousness.
 
                                    *   *   *
 
-Tolo orgulho o que carregamos no coração. Repensemos nossas atitudes e, se
-descobrirmos que alguém aguarda nossas desculpas, caminhemos em sua direção, de
-imediato, sem aguardar o amanhã.
+Foolish pride what we carry in our hearts. Let us rethink our attitudes and, if
+we find out that someone awaits our apologies, we walk towards you, of
+without waiting for tomorrow.
 
-Sejamos nós a dar o primeiro passo, a estender a mão, a sorrir, a viver bem.
-                                                                               
+Let us take the first step, reach out, smile, live well.
+
 
 ## Source
 Redação do Momento Espírita.

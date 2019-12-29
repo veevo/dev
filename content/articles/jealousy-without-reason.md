@@ -14,89 +14,89 @@ topics:
 - child
 ---
 
-Ao deixar a roupa suja no lugar apropriado, tropecei no diário da minha irmã
-de treze anos.
+As I left the laundry in the proper place, I stumbled into my sister's diary
+thirteen years old.
 
-Logo pensei: O que eu faço agora?
+I soon thought, "What do I do now?
 
-Eu sempre tive ciúme de minha irmã caçula. Seu sorriso charmoso, sua
-personalidade cativante e muitos outros talentos ameaçavam meu lugar como filha
+I've always been jealous of my little sister. Your charming smile, your
+captivating personality and many other talents threatened my place as daughter
 principal.
 
-Eu competia com ela silenciosamente e via crescer suas habilidades naturais.
+I competed with her quietly and saw her skills grow.
 
-Por conseqüência, nós raramente nos falávamos. Eu procurava oportunidades para
-criticá-la e superar seus feitos.
+As a result, we rarely spoke. I was looking for opportunities for
+criticize her and overcome her deeds.
 
-Agora, seu diário estava aos meus pés. Eu não pensei nas conseqüências. Não
-levei em conta a sua privacidade, a moralidade de minhas ações, nem seus
-sentimentos.
+Now your diary was at my feet. I didn't think about the consequences. No
+took into account your privacy, the morality of my actions, nor your
+Feelings.
 
-Eu apenas saboreei a chance de encontrar segredos suficientes para sujar a
-reputação de minha concorrente.
+I just savored the chance to find enough secrets to foul the
+reputation of my competitor.
 
-Raciocinei que seria meu dever, como irmã mais velha, verificar suas
-atividades.
+I reasoned that it would be my duty, as the older sister, to check your
+Activities.
 
-Apanhei o livro do chão e o abri. Folheei as páginas, procurando por meu nome,
-convencida de que descobriria tramas e calúnias.
+I took the book from the floor and opened it. I flipped through the pages, looking for my name,
+convinced that she would discover plots and slander.
 
-Quando encontrei, o sangue gelou em meu rosto. Era pior do que eu suspeitava.
+When I found it, the blood froze on my face. It was worse than I suspected.
 
-Senti-me fraca e sentei-me no chão. Não havia nenhuma conspiração, nenhuma
-difamação.
+I felt weak and sat on the floor. There was no conspiracy, no
+Defamation.
 
-Havia uma descrição sucinta de si mesma, de seus objetivos e de seus sonhos,
-seguidos por um curto resumo da pessoa que mais a inspirava. Eu comecei a
-chorar.
+There was a succinct description of herself, of her goals and of her dreams,
+followed by a short summary of the person who inspired her the most. I started to
+Cry.
 
-Eu era sua heroína. Admirava-me por minha personalidade, minhas realizações e,
-ironicamente, por minha integridade.
+I was your hero. I admired myself for my personality, my accomplishments, and,
+ironically, by my integrity.
 
-Queria ser como eu. Tinha me observado por anos, quieta, maravilhando-se com
-minhas escolhas e ações. Eu parei a leitura, golpeada pelo crime que havia
-cometido.
+I wanted to be like me. He had watched me for years, quiet, marveling at
+my choices and actions. I stopped reading, struck by the crime that had
+Committed.
 
-Eu tinha perdido tanta energia para mantê-la fora do meu caminho...
+I had lost so much energy to keep her out of my way...
 
-Agora, eu violara sua confiança.
+Now, I had violated your trust.
 
-Lendo as sérias palavras que minha irmã tinha escrito, me pareceu derreter uma
-barreira gelada em meu coração e eu desejei conhecê-la de verdade.
+Reading the serious words my sister had written, seemed to melt a
+icy barrier in my heart and I wished to meet her for real.
 
-Eu podia, finalmente, pôr de lado a insegurança estúpida que me manteve longe
-dela por tanto tempo.
+I could finally put aside the stupid insecurity that kept me away
+hers for so long.
 
-Naquela tarde, quando consegui me sustentar sobre as próprias pernas, decidi ir
-até ela.
+That afternoon, when I managed to support myself on my own legs, I decided to go
+up to her.
 
-Mas, desta vez, para conhecer em vez de julgar, para abraçar em vez de lutar.
-Para viver como verdadeiras irmãs.
+But this time, to meet instead of judging, to embrace rather than fight.
+To live as true sisters.
 
 *   *   *
 
-Por vezes, temos agido como crianças, com relação às pessoas que nos cercam.
+Sometimes we've been acting like children, with respect to the people around us.
 
-Imaginamos que não gostam de nós, que desejam nossa infelicidade, nossa queda.
+We imagine they don't like us, who desire our unhappiness, our downfall.
 
-Importante não estabelecer pré-julgamentos em nenhuma situação, por mais que os
-fatos conspirem a favor.
+It is important not to establish pre-judgments in any situation, however much
+facts conspire in favor.
 
-Nem sempre será possível descobrir os sentimentos dos outros pelas aparências.
+It will not always be possible to discover others' feelings for appearances.
 
-Há pessoas que não conseguem exprimir seus sentimentos e dão impressão de
-frieza ou indiferença.
+There are people who cannot express their feelings and give an impression of
+coldness or indifference.
 
-Por essa razão é que o pré-julgamento é altamente prejudicial.
+That's why pretrial is highly damaging.
 
-Assim sendo, se for preciso imaginar os sentimentos dos outros, façamos
-esforços para imaginar sempre o melhor.
+Therefore, if we need to imagine the feelings of others, let us
+efforts to always imagine the best.
 
-O ciúme produz o câncer da suspeita, transformando os sonhos de sua esperança
-em pesadelo cruel, que se converte em enfermidade demorada, a lhe corroer
-interiormente.
+Jealousy produces the cancer of suspicion, transforming the dreams of his hope
+into a cruel nightmare, which becomes a time-consuming illness, to erode it
+Inside.
 
-Pense nisso!
+Think about it!
 
 ## Source
 Redação do Momento Espírita, com base em

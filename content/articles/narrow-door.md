@@ -23,110 +23,110 @@ topics:
 - wisdom
 ---
 
-Em certo trecho do Evangelho, Jesus afirma ser estreita a porta que conduz à
-salvação e que poucos a encontram.
+In a certain passage of the Gospel, Jesus states that the door leading to the
+salvation and that few find it.
 
-Uma leitura apressada dessa passagem poderia conduzir à conclusão de que a
-ampla maioria da Humanidade fatalmente sucumbirá, vítima de seus equívocos.
+A hasty reading of this passage could lead to the conclusion that the
+vast majority of humanity will fatally succumb, the victim of its misconceptions.
 
-Entretanto, é necessário ponderar que Jesus também disse que nenhuma de Suas
-ovelhas se perderia.
+However, it is necessary to consider that Jesus also said that none of His
+sheep would be lost.
 
-Conjugando-se essas duas passagens, conclui-se que a obra da própria redenção é
-trabalhosa, mas todos a realizam.
+Combining these two passages, it is concluded that the work of redemption itself is
+laborious, but everyone does.
 
-Trata-se da única conclusão harmoniosa com a existência de um Deus Onipotente,
-Onisciente e Bondoso.
+It is the only harmonious conclusion with the existence of an Omnipotent God,
+Omniscient and kind.
 
-É incompatível com a bondade de Deus imaginar que Ele tenha criado seres
-destinados à perdição.
+It is incompatible with God's goodness to imagine that He has created beings
+destined for perdition.
 
-Como Ele tudo sabe e nada O pode surpreender, uma única criatura que se
-perdesse já colocaria em xeque Sua bondade.
+As He knows everything and nothing can surprise Him, a single creature that
+lost would already put in check His kindness.
 
-Afinal, no ato da Criação, Deus já saberia o triste destino daquele ser.
+After all, in the act of Creation, God would already know the sad destiny of that being.
 
-O Espiritismo ensina que todos os Espíritos são criados em estado de
-simplicidade e ignorância.
+Spiritism teaches that all Spirits are created in a state of
+simplicity and ignorance.
 
-Agraciados com os gérmens de todos os dons, devem desenvolvê-los à custa do
-próprio esforço.
+Awarded the twins of all gifts, they must develop them at the expense of the
+effort itself.
 
-No processo de aprender, equívocos são cometidos e maus hábitos, adquiridos.
+In the process of learning, misconceptions are committed and bad habits acquired.
 
-Entretanto, as oportunidades de aprendizado e reparação sempre se sucedem.
+However, learning and repair opportunities always follow.
 
-Quem se dedica seriamente ao aprendizado, realiza-o em breve tempo.
+Those who are seriously dedicated to learning, do so in a short time.
 
-Já os recalcitrantes são conduzidos por entre dores e decepções.
+Recalcitrants are led by pain and disappointment.
 
-Toda desgraça causada ao semelhante deve ser reparada.
+Every misfortune caused to the similar must be repaired.
 
-Todos os vícios precisam ser abandonados.
+All addictions need to be abandoned.
 
-Compaixão, pureza, lealdade e amor ao trabalho são apenas algumas das virtudes
-a serem assimiladas ao caráter.
+Compassion, purity, loyalty and love of work are just some of the virtues
+to be assimilated to character.
 
-O processo de sua consolidação e vivência constitui obra dos séculos.
+The process of its consolidation and experience is the work of the centuries.
 
-Ninguém se torna sábio e bondoso em um repente.
+No one becomes wise and kind in a sudden.
 
-No entanto, sabedoria e bondade são metas impostas por Deus a todos os
-Espíritos.
+However, wisdom and goodness are god-imposed goals to all
+Spirits.
 
-Por se tratarem de desígnios Divinos, eles se cumprem em cada ser, mais cedo ou
-mais tarde.
+Because they are Divine designs, they are fulfilled in each being, sooner or
+Later.
 
-Quando o Espírito se harmoniza com as Leis Divinas, ele transcende.
+When the Spirit harmonizes with divine laws, it transcends.
 
-Purificado de todos os vícios e mazelas, parte para novas etapas de sua jornada
-pelo Infinito.
+Purified from all addictions and ills, it departs for new stages of your journey
+by infinity.
 
-As dores e as tristezas ficam para trás.
+Pain and sorrows fall behind.
 
-Seu aprendizado continua em corpos mais sutis.
+Your learning continues on more subtle bodies.
 
-Liberto do apego às coisas materiais, também se distancia das dores que a
-matéria causa.
+Freed from attachment to material things, also distances itself from the pains that the
+matter cause.
 
-A estreiteza da porta a que se refere o Cristo relaciona-se com a dificuldade
-que o ser enfrenta para libertar-se de suas paixões.
+The narrowness of the door referred to by Christ relates to the difficulty of
+that the being faces to free himself from his passions.
 
-A conquista da sabedoria implica assimilar a real importância de todas as
-coisas e situações.
+The conquest of wisdom implies assimilating the real importance of all
+things and situations.
 
-Nem desprezo e nem apego, mas sábia utilização.
+Neither contempt nor attachment, but wise use.
 
-Dinheiro, alimento, sexo e poder, tudo isso é útil e bom na medida e no
-contexto certo.
+Money, food, sex and power, all this is useful and good in the measure and
+right context.
 
-Na obra da Criação não há nada de intrinsecamente errado ou mau.
+In the work of Creation there is nothing intrinsically wrong or bad.
 
-O exagero na utilização dos dons da vida é que causa distúrbios.
+The exaggeration in the use of life gifts is that it causes disturbances.
 
-Os recursos à disposição das criaturas são essencialmente neutros.
+The resources available to creatures are essentially neutral.
 
-Na abundância é necessário usar com sobriedade e partilhar.
+In abundance it is necessary to use with sobriety and share.
 
-Na falta, não se consumir em inveja e recalque.
+Failing, do not consume yourself in envy and repression.
 
-Em qualquer situação, ser um amante do trabalho e do progresso.
+In any situation, be a lover of work and progress.
 
-Para bem viver é necessário assumir a postura de dedicado aprendiz.
+For well living it is necessary to assume the posture of dedicated apprentice.
 
-Qualquer que seja a lição apresentada pela vida, fazê-la de bom grado.
+Whatever lesson life is presented, do it willingly.
 
-Prestar atenção nas situações que se sucedem, a fim de identificar e corrigir
-os próprios defeitos.
+Pay attention to the situations that follow in order to identify and correct
+the defects themselves.
 
-O burilamento do próprio caráter constitui a tarefa maior de cada ser.
+The circumvention of character itself is the greater task of each being.
 
-A conquista de virtudes e o abandono dos vícios são deveras trabalhosos.
+The conquest of virtues and the abandonment of vices are very laborious.
 
-Mas constituem a porta estreita pela qual todos devem passar rumo à suprema
-felicidade.
+But they are the narrow door by which everyone must move towards the supreme
+Happiness.
 
-Pense nisso.
+Think about it.
 
 
 ## Source

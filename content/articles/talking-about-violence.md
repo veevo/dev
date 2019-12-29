@@ -11,99 +11,99 @@ topics:
 - prayer
 ---
 
-Falando de violências...
+Speaking of violence...
 
-Violência é o ato de constranger física ou moralmente. É o uso da força.
+Violence is the act of embarrassing physically or morally. It's the use of force.
 
-Na atualidade, muitos somos os que afirmamos temer a violência. Por isso mesmo,
-erguemos altos muros ao redor de nossas residências, tentando evitar que ela
-nos atinja.
+Today, many are the ones who claim to fear violence. That's why,
+we erected high walls around our residences, trying to prevent her from
+reach us.
 
-Contratamos seguranças para proteger nossas empresas e nossos lares. Instalamos
-equipamentos sofisticados que nos alertem da chegada de eventuais usurpadores
-dos nossos bens.
+We hire security guards to protect our businesses and our homes. Installed
+sophisticated equipment that alerts us to the arrival of possible usurpers
+of our goods.
 
-Tememos o roubo, o furto, o constrangimento físico, a agressão. Resguardamo-nos
-da violência que vem de fora e pode nos atingir.
+We fear the robbery, the theft, the physical embarrassment, the aggression. We're back
+violence that comes from outside and can reach us.
 
-No entanto, existe outro tipo de violência para a qual não atentamos. É a que
-reside em nós.
+However, there is another type of violence that we do not pay attention to. It is the one that
+resides in us.
 
-É a violência da indiferença. Aquela que nos permite observar diariamente,
-pelos noticiários, as paisagens da fome, da miséria e prosseguirmos de braços
-cruzados.
+It's the violence of indifference. The one that allows us to observe daily,
+by the news, the landscapes of hunger, misery and continuing with our arms
+Cross.
 
-Sim, alguns de nós nos sensibilizamos, chegando às lágrimas, mas as manchetes
-seguintes nos desviam a atenção e tudo cai no esquecimento, quais notas
-apagadas e sem valor.
+Yes, some of us are sensitized, reaching tears, but the headlines
+the following divert our attention and everything falls by oblivion, which notes
+erased and worthless.
 
-Violência que nos faculta assistir, extremamente interessados, as notícias
-acerca da agressão sofrida por personalidade importante, ansiosos por detalhes
-e mais detalhes.
+Violence that allows us to assist, extremely interested, the news
+about the aggression suffered by important personality, eager for details
+and more details.
 
-Desejamos saber tudo e quanto maior for a violência para com a criatura, mais
-nos interessamos, pois afinal, depois, logo mais, iremos reprisar tudo para o
-colega, o vizinho, o amigo.
+We want to know everything and the greater the violence towards the creature, the more
+because after all, later, soon, we will reprise everything for the
+colleague, the neighbor, the friend.
 
-E não nos recordamos de nos recolher à intimidade do coração para orar pelo
-agredido, pelos seus. À parte a fama, são gente como toda gente. Sofrem como
-todos, desde que a dor tem caráter universal e imparcial.
+And we do not remember to gather the intimacy of the heart to pray for the
+assaulted by his own. Apart from fame, they're people like everyone else. Suffer as
+all, provided that pain has a universal and impartial character.
 
-Participamos ativamente ou assistimos impassíveis a programas em que o ser
-humano é exposto em toda sua nudez moral.
+We actively participate in or assist impassively to programmes where the
+human is exposed in all its moral nudity.
 
-Onde a problemática física ou de ordem íntima é levada a público como contos
-para diversão e lazer. Contudo, os envolvidos são seres humanos que sentem,
-sofrem, se angustiam.
+Where physical or intimate problems are brought public as short stories
+for fun and leisure. However, those involved are human beings who feel,
+suffer, distress.
 
-Violência de dentro, que alimentamos todos os dias, permitindo que ela se torne
-hidra voraz.
+Violence from within, which we feed every day, allowing it to become
+voracious hydra.
 
-Violência é a atitude com que destinamos velhos e enfermos difíceis a
-instituições,  sem jamais nos interessarmos pelo seu bem-estar.
+Violence is the attitude with which we target old and difficult sick to
+institutions, without ever taking an interest in their well-being.
 
-Costumamos aliviar a consciência dizendo que não dispomos de tempo para os
-cuidados, pois trabalhamos em demasia. Pagamos para que os atendam, à
-distância, a fim de não lhes ouvir os queixumes e lamentações.
+We often relieve awareness by saying that we do not have time for
+care, because we work too hard. We pay for them to meet them,
+distance, so as not to hear them the Queixumes and lamentations.
 
-E poderiam estar conosco! Se podemos dispor de recursos amoedados para os
-manter longe, por que não direcionar esses mesmos recursos a quem os possa
-cuidar, zelar, próximos de nós, sob nossos olhos vigilantes?
+And they could be with us! If we can afford the currency resources for
+keep away, why not direct these same resources to those who can
+caring, caring, caring, close to us, in our watchful eyes?
 
-Violência é o ato de mudez que elegemos para agredir o outro, no relacionamento
-doméstico, estabelecendo silêncios gélidos às interrogações afetuosas.
+Violence is the act of muteness that we elect to assault each other in the relationship
+establishing icy silences to affectionate interrogations.
 
-É o filho que se fecha em si mesmo, não respondendo aos questionamentos do amor
-materno e paterno, como forma de agressão por não lhe concederem o que anseia.
+It is the son who closes himself, not answering the questions of love
+as a form of aggression for not granting him what he craves.
 
-São os esposos que, entre si, contratam a mudez como símbolo do desconforto de
-viverem um ao lado do outro, como acorrentados sem remissão.
+It is the spouses who, among themselves, hire muteness as a symbol of the discomfort of
+live next to each other, as chained without remission.
 
-Violência é a indiferença pelo bem-estar alheio, que nos faculta chegar ao lar,
-sermos servidos em tudo e sequer erguer os olhos para ver as rugas de
-preocupação, as lágrimas de dor no rosto macerado de quem nos serve.
+Violence is the indifference to the well-being of others, which allows us to reach home,
+be served at all and even raise your eyes to see the wrinkles of
+worry, tears of pain on the macerated face of those who serve us.
 
-É levantar-se, comer, usufruir dos bens, deitar-se,  sem contribuir em nada
-para a paz do lar.
+It is to get up, eat, enjoy the goods, lie down, without contributing to anything
+for the peace of the home.
 
-E bastaria sorrir, agradecer, quem sabe, abraçar quem padece a carência da
-nossa ternura.
+And it would be enough to smile, thank you, who knows, to embrace those who suffer the lack of
+our tenderness.
 
-A violência de fora pode nos ferir e magoar. A violência de dentro, silenciosa,
-que aplicamos todos os dias, em nossos relacionamentos é igualmente perniciosa
-e destruidora.
+The violence from the outside can hurt us and hurt us. Violence from within, silent,
+that we apply every day, in our relationships is equally pernicious
+and destructive.
 
-Muitas enfermidades se aninham e evoluem gradualmente ou abruptamente, como
-resultado da própria violência íntima ou da de outrem, normalmente, afetos bem
-próximos.
+Many diseases nest and evolve gradually or abruptly, as
+result of the intimate violence itself or that of others, usually well-affected by the
+Next.
 
-Mudez, indiferença, frieza. Violências que se reprisam, armas cruéis.
+Mute, indifference, coldness. Violence that is reprised, cruel weapons.
 
-Principiemos por alijar de nós a violência, exercitando o diálogo, o perdão, os
-bons sentimentos.
+We begin to enlist violence from us, exercising dialogue, forgiveness,
+good feelings.
 
-E veremos, exatamente como no solo crestado pela invernia, rebentar em flores e
-verdura a primavera da paz, em nossos corações.
+And we will see, just as in the soil believed by the invernia, burst ing into flowers and
+the spring of peace, in our hearts.
 
 ## Source
 Redação do Momento Espírita.

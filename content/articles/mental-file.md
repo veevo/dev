@@ -11,89 +11,89 @@ topics:
 ---
  
 
-Com que tipo de informações você alimenta o seu arquivo mental?
+What kind of information do you feed your mental file with?
 
-Se ainda não havia pensado nisso, vale a pena meditar sobre o assunto, pois é
-de sua bagagem mental que depende a sua paz íntima.
+If I hadn't thought about it yet, it's worth meditating on the subject, for it's
+of his mental baggage that depends on his intimate peace.
 
-Quando você abre o jornal, logo cedo, o que você costuma buscar primeiro? As
-boas notícias, a página policial, os esportes?
+When you open the paper early on, what do you usually get first? The
+good news, the police page, the sports?
 
-Se chega a uma sala de espera e percebe sobre a mesa vários tipos de revistas,
-qual delas você escolhe?
+If you get to a waiting room and you notice on the table various types of magazines,
+which one do you choose?
 
-Ao ligar a TV, que tipo de programação assiste?
+When you turn on the TV, what kind of programming do you watch?
 
-Ao navegar pela Internet, quais os assuntos de sua preferência?
+When surfing the Internet, what matters are your preference?
 
-Dos acontecimentos diários, das cenas que presencia, das paisagens que vê, o
-que você costuma observar com mais atenção e guardar no seu arquivo mental?
+From the daily events, the scenes he witnesses, the landscapes he sees, the
+that you usually observe more carefully and save in your mental file?
 
-Talvez isso lhe pareça sem importância, mas, na verdade, de tudo isso dependem
-as suas atitudes, as suas emoções, a sua vida.
+Maybe this seems unimportant to you, but in fact, all this depends
+their attitudes, their emotions, their life.
 
-Como você é o que pensa e sente, todas as suas reações dependem das informações
-que acumula no dia-a-dia.
+As you think and feel, all your reactions depend on information
+accumulates in everyday life.
 
-Se costuma guardar sempre a parte boa, positiva, nobre, quando alguma situação
-lhe toma de assalto, irá agir com lucidez, tranquilidade e nobreza.
+If you always keep the good, positive, noble part when some situation
+He takes assault, will act with lucidity, tranquility and nobility.
 
-Mas se, ao contrário, procura alimentar sua mente com as desgraças, os fatos
-negativos, os desequilíbrios e as desarmonias humanas, terá uma reação
-correspondente ao seu ambiente mental.
+But if, on the contrary, it seeks to feed his mind with misfortunes, the facts
+human imbalances and disharmony, will have a reaction to
+corresponding to your mental environment.
 
-Assim, se deseja manter, em qualquer situação, a harmonia íntima, é saudável
-buscar alimentação condizente com seus propósitos.
+Thus, if you want to maintain, in any situation, intimate harmony, is healthy
+seek food consistent with its purposes.
 
-Quando abrir o jornal, busque alguma coisa que lhe ofereça leitura agradável,
-sadia.
+When you open the newspaper, look for something that offers you nice reading,
+Sound.
 
-Se pode escolher entre várias revistas, opte por aquela que lhe possibilite
-reflexões nobres, que lhe enriqueça os conhecimentos acerca da vida.
+If you can choose from several magazines, choose the one that allows you to
+noble reflections that enrich his knowledge about life.
 
-Se tem tempo para navegar pela Internet, não se detenha nas páginas de teor
-deprimente ou conteúdo duvidoso. Não faça dos seus arquivos mentais uma
-lixeira.
+If you have time to surf the Internet, do not stop on the content pages
+depressing or dubious content. Don't make your mental files a
+Recycle bin.
 
-Busque deter-se nas melhores imagens que compõem a paisagem por onde passa.
+Try to stop in the best images that make up the landscape through which you pass.
 
-Pense que os problemas existem, que as misérias humanas são uma realidade, que
-os fatos deprimentes poluem a Terra.
+Think that problems exist, that human miseries are a reality, that
+the depressing facts pollute the Earth.
 
-Mas considere também que, se você não pode mudar uma situação, não há motivo
-para carregá-la em seu arquivo mental.
+But also consider that if you can't change a situation, there's no reason
+to load it into your mental file.
 
-Por essa razão, busque sempre a melhor parte.
+For that reason, always seek the best part.
 
-Ao levantar-se pela manhã, olhe a sua volta o que tem de melhor.
+When you get up in the morning, look around you what's best.
 
-Observe o amanhecer, as cores que a natureza traz, as paisagens que o dia lhe
-oferece.
+Notice the dawn, the colors that nature brings, the landscapes that the day gives you
+Offers.
 
-Contemple a lua, mesmo sabendo que sob o luar existe a violência, a injustiça,
-a dor...
+Behold the moon, even though you know that under the moonlight there is violence, injustice,
+the pain...
 
-Admire o pôr do sol, ainda que tema os perigos que surgem com a escuridão.
+Admire the sunset, even if you fear the dangers that arise with darkness.
 
-Observe com atenção o inverno, mesmo que a paisagem não lhe pareça agradável,
-pois é a vida que dorme para ressurgir, ainda mais exuberante, com a primavera.
+Watch the winter carefully, even if the landscape does not seem pleasant to you,
+for it is life that sleeps to resurface, even more exuberant, with spring.
 
-Detenha-se um pouco para observar o sorriso de uma criança, mesmo que o descaso
-com a infância seja uma realidade.
+Stop a little to observe a child's smile, even if the neglect
+with childhood be a reality.
 
-Agindo assim, ao final de cada dia você terá uma boa razão para agradecer pelas
-oportunidades vividas.
+Acting like this, at the end of each day you will have a good reason to thank for the
+lived opportunities.
 
 *   *   *
 
-A sua vida íntima é alimentada, basicamente, por tudo aquilo que você mais
-valoriza.
+Your intimate life is basically fueled by everything you most
+Values.
 
-Assim, se deseja nutrir a esperança, alimente a sua intimidade com os valores
-nobres. Se quer construir a paz, enalteça-a com alimento correspondente,
-escolhendo sempre a parte boa de tudo o que o rodeia.
+Thus, if you wish to nourish hope, feed your intimacy with the values
+Noble. If you want to build peace, praise it with corresponding food,
+always choosing the good part of everything around him.
 
- 
+
 
 ## Source
 Redação do Momento Espírita inspirado em palestra proferida por Maurício Silva,

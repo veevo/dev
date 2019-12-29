@@ -10,79 +10,79 @@ topics:
 - family
 --- 
 
-A Terra é um imenso planeta, lar de bilhões de seres que aqui têm a
-oportunidade de viver e aprender, em uma maravilhosa escola.
+Earth is an immense planet, home to billions of beings who have the
+opportunity to live and learn, in a wonderful school.
 
-Este planeta que nos abriga é regido por Jesus, a quem nada passa despercebido,
-da mesma forma que nenhum som passa sem ser notado pelo maestro de uma
-orquestra, não importando o número de instrumentos que a compõe.
+This planet that houses us is governed by Jesus, to whom nothing goes unnoticed,
+in the same way that no sound passes without being noticed by the conductor of a
+no matter what number of instruments it composes.
 
-Tudo o que nos ocorre é do conhecimento de nosso querido Guia e Mestre, que já
-nos avisava que suave é Seu jugo e leve o Seu fardo, mostrando que ninguém terá
-uma carga de aprendizado acima das suas possibilidades.
+All that occurs to us is the knowledge of our dear Guide and Master, who has already
+warned us that soft is His yoke and take His burden, showing that no one will have
+a learning load above its possibilities.
 
-Porém, em meio a acontecimentos que nos causam preocupação, não raramente nos
-deixamos conduzir por sentimentos de medo e de abandono.
+However, amid events that cause us concern, not rarely in the
+we let us lead by feelings of fear and abandonment.
 
-Sendo a Terra uma escola, não é local apenas de folguedos e risos, mas também
-de tarefas e de aprendizados. Esses, muitas vezes, se fazem através de grandes
-dificuldades.
+Being the Earth a school, it is not only a place of folguedos and laughter, but also
+tasks and learning. These often do themselves through great
+Difficulties.
 
-As epidemias fazem parte da história da humanidade e, em séculos passados,
-dizimavam número expressivo da população da Terra.
+Epidemics are part of the history of humanity and, in centuries past,
+decimated the earth's population.
 
-A medicina, então ainda em sua infância, não possuía meios de combater
-rapidamente doenças que, por vezes, permaneciam por séculos sem esperança de
-cura.
+Medicine, then still in its infancy, had no means of fighting
+diseases that sometimes remained for centuries without the hope of
+Care.
 
-A higiene era precária e favorecia a disseminação dos microorganismos que
-encontravam solo fértil no organismo de muitos, associada à miséria e à fome.
+Hygiene was precarious and favored the spread of microorganisms that
+fertile soil in the body of many, associated with poverty and hunger.
 
-Mas, Jesus estava atento e não deixou de nos enviar grandes pesquisadores como
-Louis Pasteur que, em meados do século XIX expõe a tese de que os micróbios
-causavam as infecções.
+But Jesus was attentive and did not fail to send us great researchers as
+Louis Pasteur who in the mid-19th century exposes the thesis that microbes
+caused the infections.
 
-A partir de tal descoberta, os hábitos de higiene foram lentamente incorporados
-ao cotidiano, em uma verdadeira revolução para a época.
+From this discovery, hygiene habits were slowly incorporated
+to everyday life, in a true revolution for the time.
 
-Mais tarde, em meio à dor e à destruição da Segunda Guerra Mundial, a
-descoberta da penicilina, por Alexander Fleming traz à Humanidade, finalmente,
-uma possibilidade real de cura para muitas doenças infecciosas.
+Later, in the midst of the pain and destruction of World War II, the
+discovery of penicillin, by Alexander Fleming brings to humanity, finally,
+a real possibility of cure for many infectious diseases.
 
-Sempre atento às necessidades da Humanidade, nosso Mestre permitiu, através de
-tantas inteligências diferenciadas, o desenvolvimento surpreendente da ciência
-e, com ela, da medicina, principalmente no século XX.
+Always attentive to the needs of humanity, our Master has allowed, through
+so many differentiated intelligences, the surprising development of science
+and, with it, medicine, especially in the twentieth century.
 
-As enfermidades não desapareceram, mas já podem ser curadas. Epidemias
-continuam a surgir, mas com a mesma rapidez com que aparecem, a Ciência
-desvenda uma maneira de controlá-las através de vacinas ou de medicamentos.
+The diseases are not gone, but they can already be cured. Epidemics
+continue to emerge, but with the same speed with which they appear, science
+unveils a way to control them through vaccines or medicines.
 
-De maneira alguma estamos sozinhos no combate às doenças. Temos sempre conosco
-o amparo do Alto.
+There's no way we're alone in fighting diseases. We always have with us
+the high support.
 
 *   *   *
 
-Pensemos que tais situações não ocorrem por acaso e que nos trazem muitos
-ensinamentos.
+Let us think that such situations do not occur by chance and that bring us many
+Teachings.
 
-Nessas situações a Ciência progride, a solidariedade entre as pessoas é maior,
-os profissionais de saúde têm a oportunidade de reaprender a dar atenção e
-acolhimento a seus pacientes diante do sofrimento.
+In these situations science progresses, solidarity between people is greater,
+health professionals have the opportunity to relearn to give attention and
+welcoming their patients to suffering.
 
-Perante tais perigos relembramos dos cuidados básicos de higiene, bem como da
-alimentação adequada e saudável para ajudar nosso corpo em sua defesa. É uma
-busca do equilíbrio frente aos exageros tão comuns atualmente.
+In the face of such dangers we recall basic hygiene care, as well as the
+Proper and healthy diet to help our body in your defense. It's a
+seek balance in the face of such common exaggerations today.
 
-Valorizamos a permanência em nossas casas junto à família, ao invés das
-aglomerações em locais onde os vícios facilmente atraem os jovens, ou onde o
-consumismo desequilibra a vida financeira.
+We value staying in our homes with the family, rather than the
+agglomerations in places where addictions easily attract young people, or where the
+consumerism debalances financial life.
 
-E aprendemos a orar, pois a mente em oração fortalece o corpo físico e o
-protege, fazendo-o vibrar em uma frequência mais elevada.
+And we learn to pray, for the prayerful mind strengthens the physical body and the
+protects, making it vibrate at a higher frequency.
 
-Aproveitemos, pois, estes momentos delicados para nosso próprio aprendizado e,
-ao invés de medo e preocupação, tenhamos a certeza de que estamos sempre
-amparados.
+Let us therefore enjoy these delicate moments for our own learning and,
+rather than fear and concern, let's make sure that we're always
+Covered.
 
 ## Source
 Redação do Momento Espírita.

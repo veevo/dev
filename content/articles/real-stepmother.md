@@ -11,86 +11,86 @@ topics:
 ---
  
 
-Quase sempre, quando se fala em madrasta, a conotação é pejorativa. Associa-se
-a palavra a pessoa maldosa, má.
+Almost always, when talking about stepmother, the connotation is pejorative. It is associated with
+the word the evil, evil person.
 
-No entanto, madrastas são, por vezes, anjos que Deus envia para plenificarem de
-amor a vida dos órfãos.
+However, madrasts are sometimes angels that God sends to plenise of
+love the lives of orphans.
 
-Quando a Imperatriz Dona Amélia precisou acompanhar o esposo para Portugal,
-aqui deixando o menino Pedro, com apenas seis anos, escreveu uma carta de
-despedida, deixando registrado o seu mais profundo afeto.
+When Empress Dona Amelia had to accompany her husband to Portugal,
+here leaving the boy Peter, at the age of six, wrote a letter of
+farewell, leaving recorded his deepest affection.
 
-Nela demonstra o amor que tinha pelo filho que não gerara:
+It shows the love he had for his son he had not generated:
 
-Meu filho do coração e meu Imperador.
+My son of the heart and my Emperor.
 
-Adeus, menino querido, delícias de minha alma, alegria de meus olhos, filho que
-meu coração tinha adotado! Adeus para sempre!
+Goodbye, dear boy, delights of my soul, joy of my eyes, son who
+my heart had adopted! Goodbye forever!
 
-Quanto és formoso nesse teu repouso! Meus olhos chorosos não se puderam furtar
-de te contemplar.
+How beautiful you are in this rest of yours! My tearful eyes couldn't steal
+to behold you.
 
-És o espetáculo mais tocante que a Terra pode oferecer! Quanta grandeza e
-quanta fraqueza a humanidade encerra, representadas por ti, criança idolatrada:
-uma coroa, um trono e um berço.
+You're the most touching spectacle earth can offer! How greatness and
+how much weakness humanity contains, represented by you, idolized child:
+a crown, a throne and a cradle.
 
-Ah, querido menino, se eu fosse tua verdadeira mãe, se meu ventre te tivesse
-concebido, nenhuma força te arrancaria de meus braços!
+Oh, dear boy, if I were your real mother, if my womb had you
+conceived, no force would rip you out of my arms!
 
-Prostrada aos pés daqueles que abandonaram meu esposo, eu lhes diria entre
-lágrimas:
+Prostrate at the feet of those who abandoned my husband, I would tell them between
+Tears:
 
-"Não sou mais Imperatriz, e sim a mãe amantíssima... Permiti que vigie o nosso
-tesouro, esta criança, que é meu filho e vosso Imperador.
+"I am no longer Empress, but the mother very good... Allow us to keep an eye on our
+treasure, this child, who is my son and your Emperor.
 
-Vós o quereis seguro e bem tratado, e quem o haveria de guardar e cuidar com
-maior devoção senão eu, sua mãe? Se não posso ficar a título de mãe, ficarei
-como sua criada ou escrava para o servir e acalentar.
+You want him safe and well treated, and who would keep him and care with
+more devotion but me, your mother? If I can't stay as a mother, I'm going to be
+as his servant or slave to serve and cherish him.
 
-Mas tu, anjo de inocência e de formosura, não me pertences senão pelo amor que
-dediquei a teu augusto pai. Apenas sou tua madrasta, embora te queira como se
-fosses o sangue do meu sangue.
+But you, angel of innocence and beauty, belong to me but for the love that
+I dedicated it to your augustfather. I'm just your stepmother, although I want you as if
+you were the blood of my blood.
 
-Um dever sagrado me obriga a acompanhar o ex-Imperador no seu exílio, através
-dos mares, em terras estranhas...
+A sacred duty forces me to accompany the former Emperor in his exile, through
+of the seas, in strange lands...
 
-Adeus, pois, para sempre!"
+Goodbye, for, forever!"
 
-Mães brasileiras, vós que sois meigas e carinhosas para com vossos filhinhos,
-supri minhas vezes: adotai o órfão coroado. Dai-lhe, todas vós um lugar na
-vossa família e no vosso coração.
+Brazilian mothers, you who are meigas and affectionate towards your little children,
+I assumed my times: adopt the crowned orphan. Give him all a place in the
+your family and in your heart.
 
-Se a maldade e a traição lhe prepararem ciladas, ensinai, com voz terna, as
-palavras de misericórdia que consolam o infortúnio; as palavras de patriotismo
-que exaltam as almas generosas, e de vez em quando sussurrai aos seus ouvidos o
-nome de sua mãe de adoção.
+If wickedness and betrayal prepare you, teach, with a tender voice, the
+words of mercy that comfort misfortune; the words of patriotism
+who exalt generous souls, and from time to time whisper to their ears the
+name of his mother of adoption.
 
-Mães brasileiras, eu vos confio este preciosíssimo penhor da felicidade de
-vosso país, de vosso povo. Eu vo-lo entrego. Agora sinto minhas lágrimas
-correrem com menor amargura.
+Brazilian mothers, I entrust you with this precious pledge of happiness of
+your country, your people. I'll deliver it. Now I feel my tears
+run with less bitterness.
 
-Dorme, criança querida, enquanto nós, teu pai e tua mãe de adoção, partimos
-para o exílio, sem esperança de nunca mais te vermos... senão em sonhos.
+Sleep, dear child, while we, your father and your foster mother, leave
+into exile, with no hope that we will never see you again... but in dreams.
 
-Brasileiros! Eu vos conjuro que o não acordeis antes que me retire. A sua
-boquinha, molhada pelo meu pranto, ri-se à semelhança do botão de rosa com o
-orvalho matutino.
+Brazilian! I'll contell you that you didn't wake him up before I leave. Your
+mouth, wet by my weeping, laughs like the pink bud with the
+morning dew.
 
-Ele se ri, e o pai e a mãe o abandonam para sempre...
+He laughs, and his father and mother abandon him forever...
 
-Adeus, órfão-Imperador, vítima de tua grandeza antes que a saibas conhecer.
+Goodbye, orphan-Emperor, victim of your greatness before you know how to know her.
 
-Adeus... Toma um beijo... Ainda outro... Mais um último.
+Goodbye... Take a kiss... Still another... One more last.
 
-Adeus para sempre. Amélia.
+Goodbye forever. Amelia.
 
                                     *  *  *
 
-Poderá alguém, em sã consciência, afirmar que o amor dessa mulher não foi de
-verdadeira mãe?
+May one, in good conscience, affirm that this woman's love was not
+real mother?
 
- 
+
 ## Source
 Redação do Momento Espírita, com base em dados colhidos no livro História do
 Brasil, v. II, Bloch editores.

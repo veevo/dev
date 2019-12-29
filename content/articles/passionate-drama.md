@@ -16,76 +16,76 @@ topics:
 Quando a conheci eu tinha apenas 16 anos. Ela, eu não sei. Fomos apresentados
 numa festa por um rapaz que se dizia meu amigo.
 
-Foi atração à primeira vista.
+It was attraction at first glance.
 
-Ela me enlouquecia. Nossa ligação chegou a um ponto que já não conseguia viver
-sem ela.
+She drove me crazy. Our connection reached a point that we could no longer live
+without her.
 
-Mas era uma relação proibida. Meus pais não aceitavam. Fui repreendido
-na escola e passei a buscá-la às escondidas.
+But it was a forbidden relationship. My parents wouldn't take it. I was reprimanded
+at school and started sneaking her up.
 
-Mas aí não deu mais. Fiquei louco. Eu queria, mas não a tinha. Eu não podia
-permitir que me afastassem dela. Eu a desejava sempre mais.
+But then it didn't work out. I went crazy. I wanted to, but I didn't have it. I couldn't
+allow them to stay away from her. I always wanted her more.
 
-Num dia de descontrole, eu bati o carro, quebrei tudo dentro de casa e quase
-matei minha irmã.
+On a day of uncontrollable, I hit the car, broke everything indoors and almost
+I killed my sister.
 
-Eu estava louco, desesperado, precisava dela...
+I was crazy, desperate, I needed her...
 
-Hoje tenho 39 anos. Estou internado num hospital, sou inútil e vou morrer
-abandonado pelos meus pais, pelos amigos e por ela.
+I'm 39 today. I'm in a hospital, I'm useless and I'm going to die.
+abandoned by my parents, friends and her.
 
-Sabe qual o seu nome?
+Do you know what your name is?
 
-Cocaína.
+Cocaine.
 
-Devo a ela a perda da minha juventude, da minha vida, a minha destruição e a
-minha morte...
+I owe her the loss of my youth, my life, my destruction and
+my death...
 
-Esse desabafo vem assinado por um famoso cantor norte-americano que morreu há
-alguns anos e foi transcrito no jornal interno de uma empresa multinacional,
-visando alertar pais e filhos sobre o drama de pessoas que se tornam
-dependentes de drogas.
+This outburst is signed by a famous American singer who died there
+years and was transcribed in the internal newspaper of a multinational company,
+aiming to warn parents and children about the drama of people who become
+drug addicts.
 
-Hoje, o texto circula pela Internet, e é dedicado a todos os jovens,
-apaixonados por ela ou não, para que meditem sobre esse tipo de obsessão que
-não leva a nada, só destrói.
+Today, the text circulates the Internet, and is dedicated to all young people,
+in love with her or not, so that they meditate on this kind of obsession that
+it doesn't lead to anything, it just destroys.
 
-É um alerta aos pais de que é necessário preencher o vazio que se instala no
-coração dos jovens, para que eles não procurem apoio em braços de falsos
-amigos, que podem apresentá-los às drogas.
+It is a warning to parents that it is necessary to fill the void that is installed in the
+young people's hearts, so that they do not seek support in arms of false
+friends, who can introduce them to drugs.
 
-E, quando se fala em drogas, não imaginemos que o perigo está somente naquelas
-que são proibidas.
+And when you talk about drugs, let's not imagine that danger is only in those
+that are prohibited.
 
-Há muito jovem entregando sua saúde, sua juventude, seus sonhos e a sua vida a
-esses venenos livres que conhecemos como cigarro e  álcool.
+There is very young man delivering her health, youth, his dreams and his life to
+these free poisons we know as cigarettes and alcohol.
 
-São drogas socialmente aceitas, mas que têm levado muitos dos nossos moços a um
-sinistro fim, sob os olhares passivos de pais e de governantes.
+They are socially accepted drugs, but that have led many of our young men to a
+sinister end, under the passive eyes of parents and rulers.
 
-Quanto vale, afinal, a vida de um jovem?
+How much is a young man's life worth after all?
 
-Certamente, nem todo o dinheiro arrecadado com impostos sobre a comercialização
-desses venenos vale a vida de um cidadão.
+Certainly not all money collected from marketing taxes
+of these poisons is worth the life of a citizen.
 
-Mas é preciso que as famílias acordem para essa triste realidade e tomem
-providências urgentes.
+But families need to wake up to this sad reality and take
+urgent action.
 
-De nada vale cruzarmos os braços e criticar as fábricas de cigarros e de
-bebidas alcoólicas pois, se não houvesse consumidores, os produtos não estariam
-à venda.
+It is worth crossing our arms and criticizing cigarette and cigarette factories
+alcoholic beverages because, if there were no consumers, the products would not be
+for sale.
 
-O que temos a fazer, como cidadãos conscientes da necessidade de mudar esse
-quadro, é agir diretamente junto à raiz do problema. E vamos encontrá-la na
-intimidade de cada lar, onde os pais dão o exemplo e sustentam os vícios dos
-filhos, por não terem, eles mesmos, força e coragem suficientes para romper com
-seus próprios vícios.
+What we have to do, as citizens aware of the need to change this
+framework, is to act directly next to the root of the problem. And we're going to find her in the
+intimacy of each home, where parents set an example and sustain the vices of
+children, for not having, themselves, strength and courage enough to break with
+their own vices.
 
-Que o desabafo do cantor, que perdeu tudo para a cocaína, sirva de alerta para
-todos nós, e que possamos fazer algo positivo para ajudar nossos jovens a não
-seguirem pelo mesmo caminho.
- 
+May the vent of the singer, who lost everything to cocaine, serve as a warning to
+we all, and that we can do something positive to help our young people not
+go the same way.
+
 
 ## Source
 Redação do Momento Espírita com base em texto do jornal interno da Itaipu

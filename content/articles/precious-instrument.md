@@ -7,79 +7,79 @@ topics:
 - wisdom
 ---
 
-É bastante comum se ouvir referências à busca da fortuna. Pensando assim, há os
-que agem com loucura e perdem os bens em jogos diversos, desejando possuir mais
-e mais.
+It is quite common if you hear references to the pursuit of fortune. Thinking so, there are the
+who act crazy and lose the goods in various games, wishing to possess more
+and more.
 
-Pensa-se em loterias e outras formas fáceis de angariar valores, porque todos
-desejam ter um grande tesouro.
+Lotteries and other easy ways to raise values are thought, because all
+wish to have a great treasure.
 
-Entretanto, para todos os que nascem na Terra, o Divino Pai concedeu um tesouro
-inestimável.
+However, for all who are born on earth, the Divine Father has given a treasure
+Invaluable.
 
-É o corpo físico. Carinhosamente concebido na intimidade da mulher, partindo de
-um ovo minúsculo, ele se transforma num complexo de sessenta trilhões de
-células quando adulto.
+It's the physical body. Affectionately conceived in the intimacy of the woman, starting from
+a tiny egg, it turns into a sixty trillion complex of
+cells as an adult.
 
-Dentre os tantos órgãos espetaculares que o compõem, o cérebro, e só ele, é
-formado por mais de setenta bilhões de neurônios.
+Among the many spectacular organs that make up it, the brain, and only he, is
+formed by more than seventy billion neurons.
 
-Ele comanda todas as funções do organismo.
+He controls all the functions of the organism.
 
-Se desejamos atravessar a rua, em um local onde não haja semáforo, olhamos para
-um lado e outro. Se verificamos que um carro aponta na rua, rapidamente é nosso
-cérebro que calcula, sem que nos demos conta, em fração de segundo, a distância
-do veículo, a distância que temos para atravessar e determina o ritmo do nosso
-passo ou nos diz que devemos aguardar a passagem do veículo.
+If we want to cross the street, in a place where there is no traffic light, we look at
+one side and the other. If we see that a car points in the street, it's quickly our
+brain that calculates, without realizing, in a fraction of a second, the distance
+of the vehicle, the distance we have to cross and determines the pace of our
+step or tells us that we should wait for the passage of the vehicle.
 
-Por se tratar de uma máquina e uma máquina muito especial, o corpo é dotado de
-um sistema de autorreparação.
+Because it is a very special machine and machine, the body is equipped with
+a self-repair system.
 
-Pede-nos repouso quando necessita, determinando o número de horas para a
-recuperação devida. Pede-nos combustível em forma de ar puro, alimento sadio,
-acionando mecanismos próprios.
+Ask us to rest when you need to, determining the number of hours for
+recovery due. It asks us for fuel in the form of clean air, healthy food,
+triggering mechanisms of their own.
 
-Temos um estômago de tal forma disposto que, se sentimos fome e pensamos em
-comer uma pizza, logo o estômago se prepara para receber e realizar a digestão
-de uma pizza. Se, ao contrário, sentimos o aroma de um bife em preparo, todo
-ele se dispõe de forma diferente, ao ponto de sentirmos água na boca.
+We have a stomach in such a willing way that if we feel hungry and think of
+eat a pizza, so the stomach prepares to receive and perform digestion
+of a pizza. If, on the contrary, we feel the aroma of a steak in preparation, all
+it is available differently, to the point of feeling mouthwatering.
 
-O sangue, que corre por todo o nosso organismo, viaja por quase cento e setenta
-mil quilômetros de artérias, veias e vasos para levar alimento a todas as
-células.
+The blood, which runs throughout our body, travels for almost one hundred and seventy
+thousand kilometers of arteries, veins and vessels to bring food to all
+Cells.
 
-Tal instrumento valioso é forte, para vencer grandes lutas e desafios. Possui
-uma incrível elasticidade de adaptação. Ao mesmo tempo, se mostra frágil,
-podendo perecer e se decompor com rapidez.
+Such a valuable instrument is strong, to overcome great struggles and challenges. Has
+an incredible elasticity of adaptation. At the same time, it is fragile,
+perishing and decomting quickly.
 
-Por isso mesmo, nos exige cuidados. Nutri-lo sem exageros. Vitalizá-lo com
-pensamentos dignos, elevados, para que ele não se impregne de toxinas que lhe
-minariam as energias e envenenariam as possibilidades vitais.
+That's why it demands care for us. Nourish him without exaggeration. Vitalize it with
+worthy, high thoughts, so that he does not impregnate himself with toxins that he
+would undermine energies and poison vital possibilities.
 
-Respeitá-lo em público ou a sós, não o exibindo de forma vulgar, porque ele é a
-casa temporária do Espírito.
+Respect him in public or alone, not displaying him vulgarly, because he is the
+temporary home of the Spirit.
 
-Utilizá-lo bem, permitindo-lhe longas caminhadas e exercícios físicos, que o
-ajudem a se manter em forma, contudo não o desgastando em noitadas de loucura.
+Use it well, allowing you long walks and physical exercises, which the
+help stay in shape, yet not wearing it in crazy night.
 
-Não o destruamos pelo vício de qualquer natureza, mesmo aqueles que a sociedade
-considera toleráveis, aceitáveis.
+Let us not destroy it by the vice of any nature, even those that society
+considers tolerable, acceptable.
 
-Sirvamo-nos dele de tal forma que nunca tenhamos de nos arrepender, quando a
-doença o atingir por nossa própria imprudência.
+Let us serve him in such a way that we never have to repent, when the
+disease to achieve it by our own recklessness.
 
-Um dia, quando o deixarmos na Terra, haveremos de agradecer a Deus pela dádiva
-que ele foi, pelo tanto que nos permitiu progredir, fazer e realizar.
+One day, when we leave him on earth, we will thank God for the gift
+that he was, by so much that allowed us to progress, do and accomplish.
 
-Amemos, pois, esse instrumento divino, e nos tornemos através dele, um ser de
-intensa luz, vivendo e aprendendo sempre.
+Let us therefore love this divine instrument, and become through it, a being of
+intense light, living and learning always.
 
                                    *   *   *
 
-O corpo é instrumento valioso que o Criador concede ao Espírito para lhe
-facilitar o progresso, pelos milênios afora.
+The body is a valuable instrument that the Creator grants to the Spirit to
+progress for millennia.
 
-Amar o corpo, respeitá-lo, usá-lo com sabedoria é o que nos compete.
+Loving the body, respecting it, using it wisely is what competes with us.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 19, do

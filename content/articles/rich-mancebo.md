@@ -17,76 +17,76 @@ topics:
 - family
 ---
 
-Ele era um jovem rapaz. Sua casa era luxuosa e seus pertences valiosos.
+He was a young boy. His house was luxurious and his belongings valuable.
 
-Não lhe faltavam joias e ouro.
+He didn't lack jewelry and gold.
 
-Tinha saúde e constante companhia para festas alegres e competições esportivas.
+He had health and constant company for cheerful parties and sports competitions.
 
-Era, no entanto, vazio o seu coração.
+It was, however, empty his heart.
 
-Tinha sede de paz, sentia-se infeliz.
+He was thirsty for peace, he felt unhappy.
 
-Movido pela curiosidade, despertada pelos comentários a respeito dos
-maravilhosos feitos do Mestre Nazareno, ele foi a sua procura, encontrando-O à
-beira do lago de Genesaré, num final de tarde.
+Driven by curiosity, aroused by comments about the
+wonderful deeds of the Nazarene Master, he was his search, finding Him to the
+lakeside of Genesaré, in a late afternoon.
 
-Ao vê-lO, de longe, era como se reencontrasse um amigo, um Celeste Amigo.
+Seeing him, by far, it was like finding a friend, a Celeste Friend.
 
-Mas, de onde O conhecia? - Indagava-se com receio, procurando recordar-se com
-indizível e inútil esforço mental.
+But where did you know Him from? - He was asked with fear, seeking to remember with
+unspeakable and useless mental effort.
 
-Emoções inusitadas vibraram no seu ser. Desejou jogar-se ao solo, esmagado por
-forte constrição no peito.
+Unusual emotions vibrated in his being.
+strong constriction in the chest.
 
-Vende tudo quanto tens, reparte-o pelos pobres, e terás um tesouro no céu. Vem,
-e segue-me, disse-lhe Jesus.
+Sell everything you have, share it for the poor, and you'll have a treasure in heaven. Comes
+and follow me, Jesus told him.
 
-Sentiu-se arrebatado. Interiormente gritava: Irei contigo, Senhor, mas... 
-hesitava.
+He felt ravishing. Inwardly I was screaming, "I will go with you, Lord, but... 
+Hesitated.
 
-Permite-me primeiro, competir em Cesareia.  Aguardei muito essa ocasião e ela
-se avizinha. Exercitei-me, contratei escravos, adestrei duas parelhas de
-fogosos cavalos... Os jogos estão próximos..., argumentava o jovem, vencendo a
-emoção que o transfigurava.
+Allow me first, compete in Caesarea.  I waited a long time and she
+Ahead. I exercised myself, hired slaves, joined two little houses of
+fireworks... The games are near..., argued the young man, winning the
+emotion that transfigured him.
 
-Renuncia e segue-me, disse-lhe o Mestre. Não há tempo a perder.
+Resign and follow me, the Master told him. There's no time to waste.
 
-Quem era Ele, que assim lhe falava? Que poder exercia sobre sua vontade? O moço
-estava perturbado.
+Who was He, who was telling you like that? What power did you exercise over your will? The young man
+was disturbed.
 
-Em verdade, não receava dar o que possuía: joias, ouros, títulos... Porém a
-fortuna da juventude, os tesouros vibrantes da vaidade atendida e dos caprichos
-sustentados, as honras de família resguardadas pela tradição, os bajuladores...
+In fact, I wasn't afraid to give what you had: jewelry, diamonds, titles... But the
+fortune of youth, the vibrant treasures of the vanity served and the whims
+sustained, the family honors guarded by tradition, the flatterers...
 
-Seria necessário renunciar mesmo a tudo isso? – Interrogava-se, inquieto.
+Would it really be necessary to give up all this? "He wondered, restless.
 
-Sim, responderam-lhe os olhos fulgurantes de Jesus.
+Yes, Jesus' glowing eyes answered him.
 
-Subitamente, acionado por estranho vigor, fitou o Messias e balbuciou com voz
-apagada: Não posso...  Não posso seguir-Te agora... Perdoa-me. E saiu, quase a
-correr.
+Suddenly, triggered by strange vigor, he looked at the Messiah and babbled with voice
+erased: I can't...  I can't follow you now. Forgive me. And it came out, almost the
+Run.
 
-Uma semana depois, nos festins de Cesareia, em uma manobra menos feliz, um
-carro de corrida vira e um corpo tomba na arena, despedaçado pelas patas
-velozes em disparada.
+A week later, at the cesareia festins, in a less happy maneuver, a
+race car turns and a body falls in the arena, torn apart by the paws
+fast on fire.
 
-O moço rico sente as entranhas abertas, suor e sangue cobrem-lhe o corpo.
+The rich boy feels his bowels open, sweat and blood cover his body.
 
-Entre as névoas que lhe sombreiam os olhos parece ver o Mestre Nazareno e tem a
-inebriante impressão de escutá-lO:  Renuncia a ti mesmo, vem, e segue-me.
+Among the mists that shadow his eyes seems to see the Nazarene Master and has the
+intoxicating impression of escutá-lO: Renounce yourself, come, and follow me.
 
                                    *   *   *
 
-Todas as nossas justificativas para recusar o convite do Mestre de Nazaré são
-frutos do nosso egoísmo e da nossa própria ignorância.
+All our justifications for refusing the invitation of the Master of Nazareth are
+fruits of our selfishness and our own ignorance.
 
-É chegada a hora de despertarmos para a verdade, e definitivamente atendermos a
-esse Divino chamado.
+It is time to awaken to the truth, and we will definitely meet the
+this Divine call.
 
-Jesus nos aguarda.
+Jesus awaits us.
 
-                                                                               
+
 
 # Source
 Redação do Momento Espírita, com base no cap. V,

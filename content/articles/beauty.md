@@ -18,90 +18,90 @@ topics:
 - serenity
 ---
 
-Aspiração humana, a beleza física atinge em cheio nosso senso estético. Enche
-os olhos com suas cores e formas. Atrai, desperta desejos. Quem não a quer?
+Human aspiration, physical beauty achieves our aesthetic sense. Fills
+the eyes with their colors and shapes. It attracts, awakens desires. Who doesn't want it?
 
-Mas a beleza também traz consigo o pesado tributo da inveja, da cobiça, da
-vaidade e do orgulho.
+But beauty also brings with it the heavy tribute of envy, greed,
+vanity and pride.
 
-Mesmo assim, todos a queremos. Faz parte da natureza humana desejar
-sobressair-se, destacar-se por algo que os demais não têm.
+Still, we all want her. It is part of human nature to desire
+stand out, stand out for something that others don't have.
 
-Por isso estendemos nosso desejo de beleza física para parceiros, filhos,
-roupas, casa, jardim, objetos. Queremos beleza em tudo, a toda hora. E
-rejeitamos automaticamente o que consideramos feio.
+That's why we extend our desire for physical beauty to partners, children,
+clothes, house, garden, objects. We want beauty in everything, all the time. And
+we automatically reject what we consider ugly.
 
-Mas, o que é a beleza física? Um corpo perfeito, um rosto adorável? Cabelos
-brilhantes? Tudo isso é tão passageiro.
+But what is physical beauty? A perfect body, a lovely face? Hair
+Bright? All this is so fleeting.
 
-O corpo envelhece e um dia morrerá.
+The body ages and one day will die.
 
-Cuidar do corpo é fundamental, mantê-lo limpo, bem cuidado, é dever de todos
-nós. Mas não precisamos transformar o corpo no centro absoluto de nossa
-atenção.
+Taking care of the body is essential, keeping it clean, well taken care of, it's everyone's duty
+We. But we don't need to turn the body into the absolute center of our
+Attention.
 
-E como vemos isso acontecer, não é? Tanta gente que permanece horas sem fim em
-academias, gastando muito dinheiro em cirurgias plásticas, lipoaspirações,
-remédios para emagrecer, cremes para retardar o envelhecimento.
+And how do we see that happen, don't we? So many people who remain endless hours in
+academies, spending a lot of money on plastic surgeries, liposuction,
+medicines to lose weight, creams to slow aging.
 
-Uma saudável vaidade não é condenável. Querer estar bem, não afrontar os demais
-com uma aparência maltratada é o ideal. Mas há um limite para os exageros. E
-esse limite por vezes é ultrapassado.
+A healthy vanity is not reprehensible. Want to be okay, not to confront the others
+with a battered appearance is ideal. But there's a limit to exaggeration. And
+this limit is sometimes exceeded.
 
-O problema que isso tudo gera é que, ao fim da vida, o que será  daquele cuja
-atenção total estava no corpo?
+The problem that this all generates is that, at the end of life, what will be from that whose
+was full attention in the body?
 
-É por isso que vemos gente que envelhece atormentada, sem aceitar a própria
-idade, sem conseguir ser feliz. Há tantos que sofrem por causa da musculatura
-flácida, das rugas e da perda de viço da pele.
+That's why we see people who get tormented, without accepting their own
+age, without being able to be happy. There are so many who suffer because of the musculature
+wrinkles and loss of skin viço.
 
-Mas sofrer por isso não parece desnecessário?
+But doesn't suffering for it seem unnecessary?
 
-Sim. Devemos evitar cultivar o sofrimento em qualquer circunstância,
-especialmente por causa de um corpo que está destinado a desaparecer, voltar ao
-pó.
+Yes. We must avoid cultivating suffering under any circumstances,
+especially because of a body that is destined to disappear, return to the
+Powder.
 
-E, no entanto, a beleza da alma – que ficará para todo o sempre – raros se
-lembram de cultivar.
+And yet the beauty of the soul - which will remain forever and ever - rare if
+remember to cultivate.
 
-Essa beleza esplêndida, que se manifesta em gestos de amor, em palavras gentis,
-em paciência, doçura e serenidade.
+This splendid beauty, which manifests itself in gestures of love, in kind words,
+in patience, sweetness and serenity.
 
-Acredite: as atitudes afetuosas são os cremes que retiram a fealdade
-espiritual. São as cirurgias plásticas que restauram a beleza moral. Elas são o
-nosso principal investimento para o futuro.
+Believe me, affectionate attitudes are creams that take away foudade
+Spiritual. It's plastic surgeries that restore moral beauty. They are the
+our main investment for the future.
 
-Mas não pense que as coisas são simples como um estalar de dedos. Para
-exercitar a beleza da alma é necessário mais do que uma simples vontade. É
-preciso disciplina. E muito importante é ter os olhos voltados para algo além
-da vida na Terra.
+But don't think things are simple as a snap of fingers. To
+exercising the beauty of the soul is needed more than a simple will. Right
+I need discipline. And very important is to have your eyes turned to something beyond
+of life on Earth.
 
-Se você observar cuidadosamente, verá que a maioria das pessoas se prende
-demais aos valores materiais. A sensação que se tem é que a curta vida na Terra
-é o centro de toda atenção da maioria da Humanidade.
+If you observe carefully, you will see that most people hold on to
+too much to material values. The feeling you have is that the short life on Earth
+is the center of all the attention of most of humanity.
 
-Raros são os que fixam seu  pensamento em Deus e buscam agir de acordo com as
-leis criadas por Ele.
+Rare are those who fixate their thinking on God and seek to act according to the
+laws created by Him.
 
-Esses encaram  a vida na Terra somente como uma passagem. Por isso eles
-trabalham, agem, relacionam-se com as pessoas, mas têm profunda consciência de
-que tudo é passageiro e impermanente.
+They see life on Earth only as a passage. That's why they
+work, act, relate to people, but have deep awareness of
+that everything is fleeting and impermanent.
 
-Viver assim tem suas dificuldades. Primeiro, porque a sedução da Terra é muito
-grande. Os prazeres, condições e sensações materiais têm apelos muito fortes.
+Living like this has your difficulties. First, because the seduction of the Earth is very
+Great. The pleasures, conditions and material sensations have very strong appeals.
 
-Eles nos atraem, prendem e nos mantêm atados às cadeias das paixões e alegrias
-momentâneas.
+They attract us, hold us and keep us tied to the chains of passions and joys
+Momentary.
 
-Assim, os que desejam cultivar a beleza da alma devem ter disciplina porque
-precisam estar focados nos valores imortais da vida para perceber a prisão que
-é a vida terrena, para não se deixar aprisionar pela ilusão corporal.
+Thus, those who wish to cultivate the beauty of the soul must have discipline because
+need to be focused on the immortal values of life to realize the prison that
+it is the fraternal life, so as not to allow itself to be imprisoned by the body illusion.
 
-Esses, com os olhos postos nas estrelas, sabem que a vida é muito mais que a
-carne do corpo, que fazemos parte do imenso Plano Divino, onde a única beleza
-que importa é a do Espírito que vive para o bem.
+These, with their eyes set on the stars, know that life is much more than the
+flesh of the body, which we are part of the immense Divine Plan, where the only beauty
+that matters is that of the Spirit who lives for good.
 
-Pense nisso!
+Think about it!
 
 ## Source
 Redação do Momento Espírita.

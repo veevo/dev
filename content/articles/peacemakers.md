@@ -14,85 +14,85 @@ topics:
 - kindness
 ---
 
-Cada vez mais frequente se faz o número daqueles assustados pela violência
+More and more frequent is made the number of those frightened by violence
 social.
 
-As ocorrências que pareciam distantes, no noticiário, hoje são fatos em nossas
-relações sociais e familiares.
+The occurrences that seemed distant, in the news, today are facts in our
+social and family relationships.
 
-Somos todos tocados pela violência, senão pessoalmente, através de alguém do
-nosso círculo familiar ou de amigos.
+We are all touched by violence, if not personally, through someone from the
+our family circle or friends.
 
-Deixou de ser apenas um comentário abstrato para ser realidade a se conviver.
+It's no longer just an abstract comment to be a reality to get along with.
 
-Temendo-a, muitos nos trancamos em casa, fechamo-nos em nós mesmos e para o
-mundo.
+Fearing her, many lock ourselves in the house, we close ourselves and for the
+World.
 
-Vitimados pela violência, alguns aderimos a ela, tornando-nos agressivos, num
-mecanismo do instinto animal de defesa.
+Victimized by violence, some adhered to it, making us aggressive, in a
+mechanism of animal defense instinct.
 
-Armamo-nos, programamos vinganças, planejamos reações frente a um possível
-roubo, a uma invasão familiar, ou a uma abordagem na via pública.
+We arm ourselves, schedule revenge, plan reactions in the face of a possible
+theft, a family invasion, or an approach on the public road.
 
-Vítimas que nos sentimos da violência, nos utilizamos dela mesma para o que
-alegamos ser nossa autodefesa.
+Victims we feel of violence, we use it themselves for what
+we claim to be our self-defense.
 
-Sem nos darmos conta de que assim agindo, apenas engrossamos as fileiras dos
-violentos, passamos a atuar como agentes do mal.
+Without realizing that by doing so, we just thickenthe ranks of
+violent, we began to act as agents of evil.
 
-Porém, muitos nos cansamos da violência, não suportando mais viver nessa
-interminável troca de sermos agredidos e revidar, sermos vítima e algoz.
+However, many get tired of violence, no longer supporting living in this
+endless exchange of being assaulted and retaliated, being a victim and tormentor.
 
-Exauridos e um tanto mais amadurecidos, percebemos ser necessário encontrar
-outros mecanismos para o combate eficaz contra ela.
+Exhausted and somewhat more mature, we realized that it is necessary to find
+mechanisms for effective combat against it.
 
-Somos os que elegemos a paz como o grande antídoto, não nos limitando à sua
-definição, ao seu conceito ou em somente a citá-la em frases de efeito.
+We are the ones who elect peace as the great antidote, not limiting ourselves to their
+concept, to its concept or in only to quote it in catchphrases of effect.
 
-Somos os que nos tornamos pacificadores, pois que passamos a vivenciar,
-cultivar e multiplicar a paz.
+We are the ones who become peacemakers, because we begin to experience,
+cultivate and multiply peace.
 
-Nossas ações deixam de ser reativas e passam a ser proativas.
+Our actions are no longer reactive and become proactive.
 
-Não nos permitimos ser alvos fáceis da violência alheia, mas também não lhe
-fazemos coro, nem nos deixamos contaminar por ela.
+We are not allowed to be easy targets of other people's violence, but also not
+we choir, we don't even let ourselves be contaminated by it.
 
-Somos homens e mulheres que decidimos que nosso falar e nosso agir devem ser de
-paz e para a paz.
+We are men and women who have decided that our talk and our action must be of
+peace and peace.
 
-Somos as pessoas que, maltratadas no trânsito pela grosseria alheia, agimos com
-gentileza.
+We are the people who, mistreated in traffic by the rudeness of others, we act with
+Kindness.
 
-Quando atingidas pela falta de urbanidade de alguns, no trato cotidiano,
-optamos por oferecer atitudes de cidadania e respeito.
+When affected by the lack of urbanity of some, in the daily treatment,
+we chose to offer attitudes of citizenship and respect.
 
-E quando enfrentamos achaques, mau humor e grosseria de um familiar ou de um
-colega de trabalho, guardamo-nos no silêncio da paz que cultivamos, aguardando
-momento oportuno para retomar o diálogo.
+And when we face achaques, bad mood and rudeness of a family member or a
+co-worker, we keep ourselves in the silence of the peace we cultivate, waiting for
+time to resume dialogue.
 
-Somos os pacificadores do mundo. Somos os que estamos transformando a Terra em
-um mundo de paz.
+We are the peacemakers of the world. We are the ones who are turning the Earth into
+a world of peace.
 
-Somos os que conseguimos entender a proposta franciscana e a ela aderimos: Onde
-houver violência, que eu leve a paz.
+We are the ones who have been able to understand the Franciscan proposal and adhere to it: Where
+there is violence, that I take peace.
 
-Unamo-nos nessa proposta.
+We unite in this proposal.
 
-Façamos de nossas ações, atitudes, diálogos, um hino à paz.
+Let us make our actions, attitudes, dialogues, a hymn to peace.
 
-Se nos deparamos com a violência no mundo, que possamos oferecer atitudes de
-paz.
+If we are faced with violence in the world, that we can offer attitudes of
+Peace.
 
-Será apenas dessa forma, com uma invasão de pacificadores que a violência será
-banida, não encontrando mais lugar na sociedade.
+It will be only in this way, with an invasion of peacemakers that violence will be
+banned, finding no more place in society.
 
-Que essa mudança parta de nós, que sejamos dos primeiros a aderir à
-pacificação, tornando-nos seus artífices mais dedicados e valiosos.
+May this change come from us, that we are the first to join the
+peace, making us their most dedicated and valuable craftsmen.
 
-Ante o vozerio dos agressivos, sejamos a voz da serenidade.
+Before the voice of the aggressive, let us be the voice of serenity.
 
-No tumulto, nos asserenemos e convoquemos os demais à pacificação, cujos
-efeitos mais imediatos são a tranquilidade, a harmonia, em fomento da paz.
+In turmoil, we bow and summon others to pacification, whose
+immediate effects are tranquility, harmony, in fostering peace.
 
 ## Source
 Redação do Momento Espírita.

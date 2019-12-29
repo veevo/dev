@@ -18,91 +18,91 @@ topics:
 - mother
 ---
 
-Ele possuía muitas riquezas. Tinha as arcas abarrotadas de ouro e gemas
-preciosas.
+He possessed many riches. He had the chests crammed with gold and gems
+Beautiful.
 
-A juventude lhe sorria e os amigos sempre se faziam presentes nos banquetes.
+The youth smiled at him and his friends always made presents at the banquets.
 
-Habituara-se a dormir em seu leito de ébano e marfim. Dormir e sonhar.
+He'd get used to sleeping on his ebony bed and ivory. Sleep and dream.
 
-Em seus sonhos, misturava-se a realidade das tantas vitórias que lhe
-enriqueciam os dias. E um desejo de paz que ainda não fruía.
+In his dreams, the reality of so many victories that he was
+enriched the days. And a desire for peace that still did not fruition.
 
-Ele amava as corridas de bigas e quadrigas. Recentemente comprara cavalos
-árabes, fogosos. E escravos o haviam adestrado durante dias.
+He loved the chariot and hip squeew slaps. Recently bought horses
+Arabs, fires. And slaves had attacked him for days.
 
-Tudo apontava para a vitória nas próximas corridas no porto de Cesareia.
+Everything pointed to victory in the next races in the port of Cesareia.
 
-Mas os momentos de tristeza se faziam constantes.
+But the moments of sadness were constant.
 
-A felicidade não era total. Faltava algo. Ao mesmo tempo, ele temia perder a
-felicidade que desfrutava.
+Happiness wasn't total. Something was missing. At the same time, he feared losing the
+happiness he enjoyed.
 
-Por isso, ouvindo falar daquele homem singular que andava pelas estradas da
-Galileia, O procurou.
+So listening to talk about that singular man who walked the roads of the
+Galilee, you've been looking for him.
 
-Bom Mestre, que bem devo praticar para alcançar a vida eterna?
+Good Master, what good should I practice to achieve eternal life?
 
-Desejava saber. Como desejava. A resposta veio sonora e clara:
+I wish I knew. As I wished. The answer came sound and clear:
 
-Por que me chamas bom? Bom somente o Pai o é. À tua pergunta, respondo: “Cumpre
-os mandamentos, isto é, não adulterarás, não matarás, não furtarás, não dirás
-falso testemunho, honrarás teu pai e tua mãe.”
+Why do you call me good? Good only the Father is.
+the commandments, that is, you will not adulterate, not kill, you will not steal, you will not say
+false testimony, you will honor your father and mother."
 
-Tudo isso tenho observado em minha mocidade. No entanto, sinto que não me
-basta. Surdas inquietações me atormentam. Labaredas de ansiedade me consomem.
-Falta-me algo!
+All this I've been watching in my youth. However, I feel that I do not
+Just. Deaf concerns torment me. Flames of anxiety consume me.
+I miss something!
 
-Então – propõe-lhe a Luz – vende tudo quanto tens, reparte-o entre os pobres.
-Vem, e segue-me!
+So - proposes to him the Light - sells everything you have, it breaks it down among the poor.
+Come on, and follow me!
 
-A ordem, a meiguice daquele homem ecoava em seu Espírito. Ele era uma águia que
-desejava alcançar as alturas. E o Rabi lhe dizia como utilizar as asas para
-voar mais alto.
+The order, the myson of that man echoed in his Spirit. He was an eagle who
+desired to reach the heights. And Rabbi would tell you how to use the wings to
+fly higher.
 
-Pela mente em turbilhão do jovem, passam as cenas das glórias que conquistaria.
-Os amigos confiavam nele.
+Through the young man's whirlwind mind, the scenes of the glories he would conquer pass.
+His friends trusted him.
 
-Tantos esperavam a sua vitória. Israel seria honrada com seu triunfo.
+So many expected his victory. Israel would be honored with his triumph.
 
-Sim, ele podia renunciar aos bens de família, mas ao tesouro da juventude, às
-riquezas da vaidade atendida, os caprichos sustentados...?
+Yes, he could renounce family assets, but to the treasure of youth, to the
+riches of the vanity served, the whims sustained...?
 
-Seria necessário renunciar a tudo?
+Would it be necessary to give up everything?
 
-A águia desejava voar mas as asas estavam partidas...
+The eagle wanted to fly but the wings were broken...
 
-Recorda-se o jovem que os amigos o esperam na cidade para um banquete
-previamente agendado. Num estremecimento, se ergue:
+It is remembered the young man who friends wait for him in the city for a banquet
+previously scheduled. In a shudder, it rises:
 
-Não posso! – Murmura. Não posso agora. Perdoa-me.
+I can't! " Murmur. I can't right now. Forgive me.
 
-E afastou-se a passos largos. Subindo a encosta, na curva do caminho, ele se
-deteve. Olhou para trás. Vacilou ainda uma vez.
+And he walked away in strides. Climbing the slope, at the curve of the path, he
+Stopped. He looked back. He faltered once.
 
-A figura do Mestre se desenha na paisagem, aos raios do luar. A luz parece
-chamá-lo uma vez mais.
+The figure of the Master draws in the landscape, to the rays of the moonlight. The light looks like
+call it one more time.
 
-Indecisa, a alma do moço parece um pêndulo oscilante. A águia ainda tenta alçar
-o voo. O peso do mundo a retém no solo.
+Undecided, the young man's soul looks like an oscillating pendulum. The eagle still tries to lift
+the flight. The weight of the world retains it on the ground.
 
-Ele se decide. Com passos rápidos, quase a correr, desaparece na noite.
+He decides. With quick steps, almost running, disappears at night.
 
-Os Evangelistas Mateus, Marcos e Lucas narram o episódio e dizem de como o
-jovem se retirou triste e pesaroso.
+The Evangelists Matthew, Mark and Luke narrate the episode and say how the
+young man retired sad and sorry.
 
-Nem poderia ser diferente: fora-lhe dada a oportunidade de se precipitar no
-oceano do amor e ele preferira as areias vãs do mundo.
+Nor could it be different: he had been given the opportunity to rush into the
+ocean of love and he preferred the vain sands of the world.
 
                                    *   *   *
 
-O Divino Amigo nos chama, diariamente, para a conquista do reino de paz.
+Divine Friend calls us daily for the conquest of the kingdom of peace.
 
-Alguns ainda somos como o moço rico. Deixamos para mais tarde, presos que ainda
-estamos a muitas questões e vaidades pessoais.
+Some are still like the rich boy. We leave for later, prisoners who still
+we are to many questions and personal vanitys.
 
-É bom analisar o que vale mais: a alegria efêmera do mundo ou a felicidade
-perene que tanto anelamos. Depois, é só optar.
+It is good to analyze what is worth the most: the ephemeral joy of the world or happiness
+perennial that we have so much anoint. Then just choose.
 
 ## Source
 Redação do Momento Espírita com base no cap. O mancebo rico, do livro

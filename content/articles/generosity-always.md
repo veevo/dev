@@ -9,76 +9,76 @@ topics:
 - mother
 ---
 
-Somos generosos perante a vida?
+Are we generous in the face of life?
 
-Talvez essa pergunta nos tome de surpresa. Talvez nunca tenhamos pensado nisso.
-Ou ainda, quem sabe, seja algo que acreditamos não ser preciso nos preocupar.
+Maybe that question will take us by surprise. Maybe we never thought of that.
+Or, who knows, is something we believe you don't have to worry about.
 
-Porém, com certeza, em algum momento, fomos presenteados com a generosidade de
-alguém que cruzou nosso caminho.
+But surely at some point, we were presented with the generosity of
+someone who crossed our path.
 
-A generosidade é esse sentimento de desprendimento de si mesmo.
+Generosity is this sense of detachment from oneself.
 
-É quando esquecemos das nossas necessidades, dos nossos problemas e ocupações
-para nos ocuparmos com o próximo.
+That's when we forget our needs, our problems and occupations
+to deal with others.
 
-A generosidade é moeda tão cara, tesouro tão precioso, que somente consegue ser
-paga de igual forma.
+Generosity is such expensive currency, treasure so precious, that it can only be
+pays equally.
 
-Assim, generosidade não se retribui com o reconhecimento de um muito obrigado.
-Tampouco consegue ser paga com presentes ou valores monetários.
+Thus, generosity do not reciprocate with the recognition of a thank you very much.
+Nor can it be paid with gifts or monetary values.
 
-Menos ainda conseguimos retribuir a generosidade que nos é ofertada com um
-simples favor ou alguma gentileza.
+Even less we can repay the generosity offered to us with a
+simple favor or some kindness.
 
-Apenas com generosidade se paga a generosidade que recebemos.
+Only with generosity is paid for the generosity we receive.
 
-Por nascer em corações nobres, fruto e filha da abnegação, é moeda de alto
-quilate.
+By being born in noble hearts, fruit and daughter of selflessness, it is a high currency
+Carat.
 
-Por isso, é normal que aqueles menos nobres, que ainda não disponham de alguma
-generosidade no coração, desconfiem de atitudes generosas.
+Therefore, it is normal that those less noble, who do not yet have any
+generosity in the heart, be wary of generous attitudes.
 
-Julgam a atitude altruísta do outro como permeada de segundas intenções, como
-quem deseja algo além da própria ação.
+They judge the selfless attitude of the other as permeated by ulterior motives, as
+who wants something beyond the action itself.
 
-Chegam a se constranger quando são alvo da generosidade alheia, pois em sendo
-brindados por esse presente, sentem-se afetados no orgulho, na presunção e na
-vaidade.
+They come to be embarrassed when they are the target of the generosity of others, for in being
+for this gift, they feel affected by pride, presumption and
+Vanity.
 
-Quase sempre, esquecemos que também é generosidade quando somos capazes de
-reconhecer na ação do outro a sua gentileza, a sua atitude nobre.
+Almost always, we forget that it is also generosity when we are able to
+recognize in the action of the other his kindness, his noble attitude.
 
-É quando conseguimos perceber esse movimento invisível, discreto, da
-generosidade alheia para conosco, que nos tornamos agradecidos, reconhecidos a
-quem dessa maneira nos brinda.
+That's when we can perceive this invisible, discreet, movement of the
+generosity unrelated to us, who we have become grateful, recognized to
+who in this way toasts us.
 
-Dessa forma, é generoso o escritor, que alcançando um grande prêmio, lembra-se
-de reportá-lo à professora que o alfabetizou, à mãe que o conduziu, ao pai que
-lhe formou o caráter.
+In this way, the writer, who achieving a grand prize, remembers
+to report it to the teacher who alfabetized him, to the mother who led him, to the father who
+formed his character.
 
-É generoso o chefe, o líder empresarial que, frente a uma grande conquista
-profissional, é capaz de dividi-la com funcionários e colaboradores,
-compartilhando louros, sabendo-se apenas representante de uma grande equipe,
-reconhecendo que sozinho não alcançaria tal patamar.
+The boss, the business leader who, in the face of a great achievement, is generous
+professional, is able to divide it with employees and employees,
+sharing laurels, knowing only representative of a large team,
+recognizing that alone would not reach such a level.
 
-Generosos somos quando compartilhamos felicidade com quem se encontre
-atravessando agruras, alimento com quem padece fome, nosso tempo com o
-solitário, nosso sorriso com quem esteja mergulhado em tristeza profunda.
+Generous we are when we share happiness with those who meet
+crossing hardships, food with whom it suffers hunger, our time with the
+solitary, our smile with those who are plunged into deep sorrow.
 
-Antítese do egoísmo, a generosidade é flor de raro perfume que, ao ser
-distribuída, mantém sempre perfumadas as mãos daquele que a oferta.
+Antithesis of selfishness, generosity is a flower of rare perfume that, when being
+distributed, always keeps the hands of the one who offers it.
 
-Generoso foi o samaritano da parábola cristã, ao esquecer dos seus
-compromissos, ofertando o seu tempo, seus cuidados e seus recursos amoedados
-para atender o ferido deitado à beira do caminho.
+Generous was the Samaritan of the Christian parable, as he forgotten his
+commitments, offering your time, your care and your currency resources
+to meet the wounded lying on the side of the way.
 
-E, ainda, preocupando-se com os dias futuros, comprometendo-se à continuidade
-do auxílio.
+And yet, worrying about the future days, committing to continuity
+aid.
 
-Generosos foram Madre Teresa de Calcutá, Francisco Cândido Xavier, Gandhi,
-Albert Schweitzer e tantos outros que esqueceram de si, a fim de perfumar a
-vida daqueles que estavam ao seu redor.
+Generous were Mother Teresa of Calcutta, Francisco Cândido Xavier, Gandhi,
+Albert Schweitzer and so many others who have forgotten about you in order to perfume the
+lives of those around him.
 
 ## Source
 Redação do Momento Espírita.  

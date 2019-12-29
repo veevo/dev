@@ -18,92 +18,92 @@ topics:
 ---
 
 
-Frequentemente o dever entra em conflito com o interesse pessoal.
+Often duty conflicts with personal interest.
 
-A criatura deseja ardentemente fazer algo, mas sente que não deve.
+The creature ardently wishes to do something, but feels it should not.
 
-Ou quer fugir de uma situação, abster-se de determinada conduta, quando a
-consciência indica não ser essa a melhor solução.
+Or want to escape a situation, refrain from certain conduct, when the
+awareness indicates that this is not the best solution.
 
-Surge a dúvida: por que não é possível a satisfação do desejo?
+There is a question: why is it not possible to satisfy desire?
 
-Qual a razão para o senso do dever contrariar os sonhos e as fantasias? Há
-alguma lógica nisso?
+What is the reason for the sense of duty to contradict dreams and fantasies? There are
+any logic in that?
 
-Há uma lógica, que decorre de uma compreensão mais ampla da vida.
+There is a logic, which stems from a broader understanding of life.
 
-Os Espíritos reencarnam infinitas vezes.
+Spirits reincarnate endless times.
 
-A evolução é uma conquista individual, por meio da qual se transita da
-ignorância para a sabedoria.
+Evolution is an individual achievement, through which it moves from the
+ignorance for wisdom.
 
-Em suas primeiras experiências terrenas, os Espíritos são grandemente guiados
-pelos instintos.
+In their first thermal experiences, spirits are greatly guided
+by instincts.
 
-De modo gradual, desenvolvem a vontade e conquistam a liberdade de optar.
+Gradually, they develop the will and gain the freedom to choose.
 
-Em decorrência de sua ignorância, as opções que fazem nem sempre são felizes.
+As a result of your ignorance, the options they make are not always happy.
 
-Todos trazem as leis divinas gravadas na consciência.
+Everyone brings the divine laws engraved on consciousness.
 
-Com o tempo, inteiram-se do teor dessas leis.
+Over time, you learn about the content of these laws.
 
-Equívocos, maldades, leviandades, tudo é registrado na consciência.
+Misconceptions, evils, levity, everything is recorded in consciousness.
 
-Somente goza de perfeita harmonia quem aprendeu a respeitar e valorizar a vida.
+It only enjoys perfect harmony who has learned to respect and value life.
 
-A paz interior é conquista daquele que se acertou com os estatutos divinos.
+Inner peace is the conquest of the one who was struck with divine statutes.
 
-Isso apenas é possível mediante a recomposição dos tesouros dilapidados ao
-longo do tempo.
+This is only possible by recomposing the dilapidated treasures to the
+over time.
 
-Onde se construiu a guerra, impõe-se o trabalho pela paz.
+Where war was built, work is imposed for peace.
 
-Quem induziu os outros ao abismo dos vícios, deve auxiliá-los na recuperação.
+Those who have induced others into the abyss of vices should assist them in recovery.
 
-Se ontem as bênçãos do trabalho foram desconsideradas, o tempo perdido deve ser
-recuperado.
+If yesterday the blessings of work were disregarded, lost time must be
+Recovered.
 
-Por outro lado, alguns hábitos da época da ignorância se cristalizam no ser,
-dificultando a evolução.
+On the other hand, some habits of the time of ignorance crystallize in being,
+hindering evolution.
 
-Embora o processo de evoluir seja vagaroso, é necessário fazer esforços para
-transformar os hábitos viciosos e conquistar virtudes.
+Although the process of evolving is slow, efforts are needed to
+transform vicious habits and conquer virtues.
 
-Também se impõe o amadurecimento do senso moral.
+The maturing of moral sense is also imposed.
 
-A lucidez espiritual se traduz por uma conduta baseada no trabalho, no estudo,
-na lealdade e na compaixão.
+Spiritual lucidity translates into work-based conduct, study,
+loyalty and compassion.
 
-Essa transição da infância para a maturidade espiritual não se faz sem esforço.
+This transition from childhood to spiritual maturity is not done effortlessly.
 
-É preciso romper com o homem velho e seus hábitos infelizes.
+You have to break up with the old man and his unhappy habits.
 
-Esse é o propósito da existência terrena.
+That's the purpose of earthly existence.
 
-Antes de renascer, o Espírito faz um balanço de suas vivências. Identifica os
-vícios que necessita vencer, os erros que precisa reparar, e projeta sua nova
-vida.
+Before rebirth, the Spirit takes stock of his experiences. Identifies the
+vices you need to overcome, the mistakes you need to repair, and projects your new
+Life.
 
-Todo homem traz em seu íntimo o resultado das experiências vividas.
+Every man brings in his heart the result of the experiences lived.
 
-Falta a lembrança do que ocorreu, mas há intuições e tendências.
+It lacks the memory of what happened, but there are intuitions and trends.
 
-Esse o motivo da contradição entre o dever e as fantasias, pois a consciência
-cobra o dever.
+This is the reason for the contradiction between duty and fantasies, for consciousness
+charges duty.
 
-De um lado há o passado: paixões, interesse, egoísmo, preguiça e vaidade.
+On the one hand there is the past: passions, interest, selfishness, laziness and vanity.
 
-De outro, os projetos para o futuro, na forma de disciplina, renúncia,
-devotamento ao próximo ou a uma causa.
+On the other hand, projects for the future, in the form of discipline, renunciation,
+devotee to others or a cause.
 
-Cada qual é livre para escolher seu caminho, mas o trabalho não feito hoje
-ressurgirá mais tarde, provavelmente acrescido de novos encargos.
+Each one is free to choose his path, but the work not done today
+will rise later, probably plus new charges.
 
-A paz e a plenitude pressupõem o dever cumprido, a tarefa feita, a lição
-aprendida.
+Peace and fullness presuppose the duty fulfilled, the task done, the lesson
+Learned.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita.

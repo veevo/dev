@@ -8,111 +8,111 @@ topics:
 - kindness
 ---
 
-O perdão é uma necessidade na vida de qualquer pessoa.
+Forgiveness is a necessity in anyone's life.
 
-Trata-se de um recurso que auxilia a seguir em paz a caminhada.
+It is a resource that helps to follow in peace the walk.
 
-A existência humana é cheia de percalços e decepções.
+Human existence is full of mishaps and disappointments.
 
-A disparidade das personalidades causa pequenos e grandes atritos.
+The disparity of personalities causes small and great friction.
 
-Mesmo criaturas boas e honradas, às vezes, magoam os semelhantes.
+Even good and honorable creatures sometimes hurt the like ones.
 
-A própria dinâmica do mundo moderno dificulta que se dê a atenção devida às
-expectativas e aos sentimentos dos outros.
+The very dynamics of the modern world make it difficult to give due attention to
+expectations and feelings of others.
 
-Quem se permite acumular mágoas torna-se infeliz.
+Those who allow themselves to accumulate sorrows becomes unhappy.
 
-Sempre há algo de ruim a ser recordado.
+There's always something bad to remember.
 
-Pode ser uma indelicadeza, uma falta de atenção ou uma palavra mal colocada.
+It can be an indelicacy, a lack of attention or a misplaced word.
 
-O homem que se dedica a procurar defeitos e ofensas certamente as encontra.
+The man who is dedicated to seeking defects and offenses certainly finds them.
 
-Entretanto, a mesma pessoa que ofendeu, talvez sem querer, também auxiliou
-inúmeras vezes.
+However, the same person who offended, perhaps unintentionally, also assisted
+countless times.
 
-É uma questão de escolher o que se deseja valorizar.
+It's a matter of choosing what you want to value.
 
-O que é mais importante?
+What's more important?
 
-Inúmeras gentilezas ou uma expressão grosseira?
+Countless kindnesses or a gross expression?
 
-A discrição de uma vida inteira ou uma palavra indiscreta, lançada por
-descuido?
+The discretion of a lifetime or an indiscreet word, launched by
+Neglect?
 
-A atitude generosa habitual ou um ato egoísta?
+The usual generous attitude or a selfish act?
 
-Muitas amizades são perdidas porque alguém se afirma traído.
+Many friendships are lost because someone claims to be betrayed.
 
-Frequentemente essa traição nem é de grande monta.
+Often this betrayal is not even very high.
 
-Trata-se antes de um momento infeliz, do que de algo premeditado.
+It's before an unfortunate moment, than something premeditated.
 
-A respeito, vale lembrar a passagem evangélica em que Jesus é instado a
-manifestar-se sobre a mulher adúltera.
+In this regard, it is worth remembering the Gospel passage in which Jesus is urged to
+manifest herself about the adulterous woman.
 
-Contrariando a expectativa geral, o Mestre afirmou:
+Contrary to the general expectation, the Master said:
 
-Aquele que estiver sem pecado atire a primeira pedra.
+He who is without sin throws the first stone.
 
-A lição é que não pode julgar aquele cuja consciência não seja pura.
+The lesson is that you can't judge the one whose conscience isn't pure.
 
-Entretanto, as pessoas puras não se animam a julgar ninguém.
+However, pure people are not encouraged to judge anyone.
 
-No episódio bíblico, Jesus limitou-se a recomendar que a pobre mulher não mais
+In the biblical episode, Jesus merely recommended that the poor woman no longer
 pecasse.
 
-É importante ter em mente essa salutar lição.
+It's important to keep in mind that wholesome lesson.
 
-Quem na Terra possui a consciência totalmente ilibada?
+Who on Earth has a totally unblemished conscience?
 
-Para condenar um ato egoísta no próximo, é necessário ter sido sempre generoso.
+To condemn a selfish act in the next, it is necessary to have always been generous.
 
-Entretanto, a própria reprovação de um pequeno deslize já indica falta de
-generosidade.
+However, the very disapproval of a small slip already indicates a lack of
+Generosity.
 
-Para se melindrar longamente com um comentário maldoso, impõe-se nunca ter
-falado mal de ninguém.
+To touch yourself at length with a mean comment, it is never necessary to have
+spoken ill of anyone.
 
-Quem remói a indiscrição de que foi alvo sinaliza ter sido sempre estritamente
-discreto.
+Who grinds the indiscretion that was targeted signals that it has always been strictly
+Discreet.
 
-Caso contrário, trata-se de um hipócrita, que faz o que reprova nos outros.
+Otherwise, it is a hypocrite, who does what he disapproves of others.
 
-Na convivência social e familiar, é preciso lembrar que os seres humanos são
-imperfeitos.
+In social and family coexistence, it is necessary to remember that human beings are
+Imperfect.
 
-Melhoram-se gradualmente com o passar do tempo e as experiências.
+They gradually improve over time and experiences.
 
-Para não se converter em uma criatura rancorosa e infeliz, o perdão é uma
-necessidade.
+In order not to become a spiteful and unhappy creature, forgiveness is a
+Need.
 
-Mesmo quando somos alvo de alguma atitude realmente baixa ou cruel, persiste a
-necessidade de perdoar.
+Even when we are the target of some really low or cruel attitude, the
+need to forgive.
 
-Somos todos Espíritos muito antigos, com inúmeras reencarnações.
+We are all very ancient spirits, with countless reincarnations.
 
-Nesse gigantesco caminhar, nem sempre fomos felizes em nossos atos.
+In this gigantic walk, we were not always happy in our deeds.
 
-Muitas vezes erramos, mas aprendemos com a experiência e seguimos em frente.
+We often make mistakes, but we learn from experience and move on.
 
-Consequentemente, não nos permitimos mais certas baixezas, que nos chocam.
+Consequently, we do not allow ourselves to be more certain rascalities, which shock us.
 
-Contudo, em nosso passado, algumas situações clamam por corrigenda.
+However, in our past, some situations call for correctness.
 
-Se alguma grande dor nos atinge, não nos revoltemos contra quem é apenas o seu
-agente.
+If any great pain strikes us, we do not revolt against who is only your
+Agent.
 
-A causa reside em nossa consciência em desarmonia com as Leis Divinas, em nossa
-necessidade de experienciar certas decepções.
+The cause lies in our consciousness in disharmony with the Divine Laws, in our
+need to experience certain disappointments.
 
-Perante situações inelutáveis e chocantes, não revidemos.
+In the face of inelutable and shocking situations, we do not veto.
 
-A capacidade de perdoar propicia libertação do passado e candidata a
-experiências mais felizes.
+The ability to forgive provides the liberation of the past and candidate for
+happier experiences.
 
-Em face dos equívocos alheios, é preciso perdoar, silenciar e esperar o tempo.
+In the face of other people's misconceptions, one must forgive, silence and wait for time.
 
 ## Source
 Redação do Momento Espírita.

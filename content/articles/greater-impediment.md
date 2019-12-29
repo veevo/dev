@@ -14,91 +14,91 @@ topics:
 - faithlicidade
 ---
 
-Diz antiga narrativa, que um sacerdote sábio, desejando ensinar o caminho do
-céu aos crentes que confiavam nele, rogou a Jesus lhe fosse revelado qual o
-maior impedimento contra a iluminação espiritual.
+It says ancient narrative, that a wise priest, desiring to teach the way of
+heaven to believers who trusted him, pleaded with Jesus to be revealed to him what the
+greater impediment against spiritual enlightenment.
 
-De mente limpa, dormiu e sonhou que era conduzido à porta celestial.
+With a clean mind, he slept and dreamed that he was led to the heavenly door.
 
-Envolvido em esplendor, um anjo o recebeu, bondoso.
+Wrapped in splendor, an angel welcomed him, kind.
 
-“Mensageiro de Deus!” - disse o sacerdote – “Venho rogar a verdade para as
-ovelhas humanas que me seguem.”
+"Messenger of Allah!" - said the priest - "I come to gnaw the truth to the
+human sheep that follow me."
 
-“Que pretendes saber?” - Perguntou a entidade angélica.
+"What do you want to know?" - asked the angelic entity.
 
-“Peço esclarecimento sobre o maior obstáculo para a alma, na marcha para Deus.
+"I ask for clarification on the greatest obstacle to the soul, in the march to God.
 
-Sei que cometemos faltas graves, que aniquilam em nós a graça divina, na
-ascensão para a luz. Entretanto, desejaria explicações mais claras, quanto ao
-problema do mal, porque nossas faltas variam ao infinito.”
+I know that we have committed serious faults, which annihilate in us divine grace, in the
+ascension to light. However, I would like clearer explanations as to the
+evil problem, because our faults vary to infinity."
 
-O Espírito elevado sorriu e considerou: “A solução é simples. Quais são as
-falhas a que te referes?”
+The high Spirit smiled and considered, "The solution is simple. What are the
+failures you refer to?"
 
-O ministro da fé movimentou os dedos e respondeu:
+The minister of faith moved his fingers and replied:
 
-“Orgulho, avareza, ira, gula, inveja e preguiça. Deles nascem as demais
-imperfeições.”
+"Pride, avarice, anger, gluttony, envy and laziness. From them are born the others
+imperfections."
 
-O mensageiro respondeu:
+The messenger replied:
 
-“No fundo, podemos reduzir todas as faltas a um único problema porque todas as
-imperfeições procedem de uma fonte única.”
+"In essence, we can reduce all the faults to a single problem because all
+imperfections come from a single source."
 
-O sacerdote, curioso, suplicou:
+The priest, curious, pleaded:
 
-“Anjo amigo, esclareça meu entendimento!”
+"Angel friend, clarify my understanding!"
 
-O emissário da esfera superior, sem qualquer pretensão de superioridade, 
-explicou:
+The emissary of the upper sphere, without any pretense of superiority, 
+Explained:
 
-“Se o orgulhoso trabalhasse para o bem de todos, não encontraria ensejo de
-cultivar o orgulho e a vaidade que o levam a acreditar ser o ponto central do
-universo.
+"If the proud worked for everyone's good, he would not find a
+cultivate the pride and vanity that lead you to believe to be the central point of the
+Universe.
 
-Se o avarento conhecesse a vantagem do suor, na felicidade dos semelhantes, não
-se entregaria ao prazer da posse que o obriga a acumular dinheiro inutilmente.
+If the miser knew the advantage of sweat, in the happiness of the like, do not
+would indulge in the pleasure of possession that forces him to accumulate money uselessly.
 
-Se o homem inclinado à tentação dos prazeres fáceis aprendesse a utilizar as
-próprias forças em favor da elevação coletiva, não teria ocasião para
-prender-se às paixões aniquiladoras que o arrastam ao crime.
+If man inclined to the temptation of easy pleasures he learns to use the
+forces in favor of collective elevation, would have no opportunity to
+attach yourself to the annihilating passions that drag you into crime.
 
-Se as pessoas irritadiças estivessem dispostas a servir de acordo com os
-desígnios divinos, não envenenariam a própria saúde com remorsos e angústias
-injustificáveis.
+If angry people were willing to serve according to the
+divine designs, would not poison their own health with remorse and anguish
+Unjustifiable.
 
-Se o guloso vivesse atento à tarefa construtiva que lhe cabe no mundo, não se
-escravizaria aos apetites que lhe arruínam o corpo e a alma.
+If the gluttonous lived attentive to the constructive task that belongs to him in the world, he would not
+enslaved to the appetites that ruin his body and soul.
 
-E se o invejoso utilizasse a existência, no trabalho digno, não gastaria tempo
-acompanhando maliciosamente as iniciativas do próximo, complicando o próprio
-destino...
+And if the envious used existence, in decent work, I would not spend time
+maliciously following the initiatives of the next, complicating the very
+Destination...
 
-Como vê, a maior das imperfeições, a causa primordial de todos os males, é a
-preguiça.
+As you can see, the greatest imperfection, the primary cause of all evils, is the
+Laziness.
 
-Dá trabalho edificante às tuas ovelhas e convence-te de que, na posse do
-serviço, não se afastarão do caminho justo.”
+It gives uplifting work to your sheep and convinces you that, in possession of the
+service, will not move away from the righteous path."
 
-O sacerdote não teve mais o que perguntar.
+The priest had nothing more to ask.
 
-Despertou, instruído, e, do dia seguinte em diante, o povo reparou que ele
-modificara o tom das suas pregações.
+Awakened, instructed, and, from the next day onwards, the people noticed that he
+changed the tone of their preaching.
 
                                    *   *   *
 
-O problema que se destaca na atualidade é o da preguiça.
+The problem that stands out today is that of laziness.
 
-Empreguismo, facilidade, repouso, amolentamento moral, prazer são condimentos
-que temperam a preguiça a funcionar qual ferrugem destruidora nas engrenagens
-do Espírito, corroendo o homem.
+Entrepreneurship, ease, rest, moral amolent, pleasure are condiments
+that season the sloth running which rust destructive in the gears
+of the Spirit, eroding man.
 
-O cristão decidido, a exemplo do seu Mestre, é atuante, adversário natural e
-espontâneo desse corrosivo odiento, no entanto, muito requerido e bem aceito.
+The determined Christian, like his Master, is active, a natural adversary and
+spontaneous of this corrosive odiento, however, much required and well accepted.
 
-Quando sentirmos, sem motivos reais, moleza e necessidade de repouso demorado,
-despertemos e produzamos.
+When we feel, without real reasons, softness and need for time-consuming rest,
+let's wake up and produce.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 36, do livro

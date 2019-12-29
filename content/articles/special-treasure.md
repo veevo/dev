@@ -14,105 +14,105 @@ topics:
 - wisdom
 ---
 
-Na Epístola aos Efésios, capítulo 5, versículos 14 a 17, Paulo de Tarso
-conclamava os homens no seguinte sentido:
+In the Epistle to the Ephesians, chapter 5, verses 14 to 17, Paul of Tarsus
+cried out men in the following sense:
 
-“Desperta, ó tu que dormes, levanta-te dentre os mortos e Cristo te iluminará.
+"Awaken, O you who sleep, rise up from the dead and Christ will enlighten you.
 
-Andai prudentemente, não como néscios e, sim, como sábios, remindo o tempo,
-porque os dias são maus.
+Walk prudently, not as necscios, and, yes, as wise, I remind time,
+because the days are bad.
 
-Não vos torneis insensatos, mas procurai compreender qual é a vontade do
-Senhor.”
+Do not become foolish, but try to understand what the will of the
+Sir."
 
-Paulo indicava o ideal cristão como sendo a sublime meta a ser alcançada pelo
-homem.
+Paul indicated the Christian ideal as the sublime goal to be achieved by the
+Man.
 
-Ao dizer que “os dias são maus”, reportava-se aos problemas, às dificuldades
-cotidianas que, ontem como hoje, marcam nossas existências.
+Saying that "days are bad", it was reported to problems, to difficulties
+that, yesterday as today, mark our existences.
 
-Diversas são as dores que afligem nossos dias.
+There are several pains that afflict our day.
 
-Provas e expiações são características constantes do mundo em que vivemos.
+Trials and atonements are constant characteristics of the world in which we live.
 
-Por isso, devemos conduzir nossos passos com cautela, não como tolos que não
-sabem o que fazem.
+Therefore, we must conduct our steps with caution, not as fools who do not
+they know what they're doing.
 
-Devemos cultivar a reflexão, resgatando o tempo perdido nas veredas dos erros.
+We must cultivate reflection, rescuing lost time in the truths of errors.
 
-O tempo é um tesouro de valor inestimável concedido a todos, por Deus, de forma
-indistinta.
+Time is a treasure of invaluable value granted to all, by God, in a way that
+Indistinct.
 
-Os minutos, os dias, os séculos têm a mesma duração para todos os seres.
+The minutes, the days, the centuries have the same duration for all beings.
 
-Mas como utilizamos esse tempo?
+But how do we use that time?
 
-Afinal, o modo como nos valemos dele é que faz a diferença, o resultado.
+After all, the way we use it is that it makes a difference, the result.
 
-Usamos nosso tempo ou apenas o desperdiçamos?
+Do we use our time or just waste it?
 
-“Matamos” o tempo, valemo-nos de meros “passatempos”, ou o investimos como uma
-moeda valiosa capaz de nos trazer grandes lucros?
+"We kill" time, we use mere "hobbies", or invest it as a
+valuable currency capable of bringing us big profits?
 
-Onde estivermos, poderemos adquirir valiosos patrimônios de experiência e de
-conhecimento, de virtude e de sabedoria.
+Wherever we are, we can acquire valuable assets of experience and
+knowledge, virtue and wisdom.
 
-Para tanto, não podemos permitir que os minutos se escoem improdutivamente.
+To do so, we cannot allow minutes to drain unproductively.
 
-Muitas pessoas passam a vida como se estivessem mergulhados em um sonambulismo,
-embalados no sonho da ilusão.
+Many people spend their lives as if they were immersed in a sleepwalking,
+packed in the dream of illusion.
 
-Deixam que séculos decorram, semeando apenas inconseqüências e vícios,
-comprometendo o futuro com a colheita inevitável de sofrimentos.
+They let centuries take place, sowing only inconsequences and vices,
+compromising the future with the inevitable harvest of suffering.
 
-É imperioso, portanto, que aproveitemos as horas.
+It's imperative, therefore, that we enjoy the time.
 
-Podemos começar tentando corrigir nossas próprias imperfeições.
+We can start by trying to correct our own imperfections.
 
-Os vícios, por exemplo, não representam apenas perda, mas também
-comprometimento futuro do tempo.
+Addictions, for example, represent not only loss, but also
+future commitment of time.
 
-Quantos minutos perde o fumante, por ano, no ritual das baforadas de nicotina?
+How many minutes does the smoker lose a year in the nicotine puffing ritual?
 
-Quantas horas precisa trabalhar para alimentar seu vício?
+How many hours do you need to work to fuel your addiction?
 
-Quantos dias abreviará de sua existência em virtude das moléstias que decorrem
-do uso do cigarro?
+How many days will shorten its existence due to the diseases that take place
+cigarette use?
 
-Quantos anos sofrerá, mesmo depois da própria morte, para reequilibrar o
-próprio Espírito?
+How many years will you suffer, even after death itself, to rebalance the
+Spirit itself?
 
-E o maledicente?
+What about the malleous?
 
-Quantos minutos perde diariamente divagando sobre o comportamento alheio?
+How many minutes do you lose daily rambling about other people's behavior?
 
-E quantas existências gastará depois, às voltas com males que sedimentará em si
-mesmo?
+And how many stocks will you spend later, around with evils that will settle in you
+Same?
 
-Tantas são as opções para quem pretende aperfeiçoar o próprio espírito!
+So many options for those who want to perfect their own spirit!
 
-Tantas são as oportunidades diárias que surgem para quem tem olhos de ver e
-ouvidos de ouvir!
+So many daily opportunities arise for those who have eyes to see and
+ears to hear!
 
-Disciplinar palavras e emoções.
+Discipline words and emotions.
 
-Ensaiar atitudes de humildade.
+Rehearse attitudes of humility.
 
-Treinar a paciência.
+Train patience.
 
-Ampliar seus conhecimentos.
+Expand your knowledge.
 
-Conter a língua ferina.
+Contain the ferina tongue.
 
-Eis aí algumas sugestões iniciais para quem se disponha a aplicar valiosamente
-seu tempo em seu real benefício.
+Here are some initial suggestions for those willing to apply valuablely
+your time at your real benefit.
 
-Afinal, Deus nos oferece a bênção do tempo para as experiências humanas, mas,
-cedo ou tarde, deveremos prestar contas à Divindade, da forma como utilizamos
-esse precioso presente.
+After all, God offers us the blessing of time for human experiences, but,
+sooner or later, we should account to divinity, the way we use
+this precious gift.
 
-Pensemos nisso, desde agora.
- 
+Let's think about it from now on.
+
 ## Source
 Texto da Equipe de Redação do Momento Espírita, com base no cap. O grande
 tesouro, do livro Uma razão para viver, de Richard Simonetti, ed. São João.

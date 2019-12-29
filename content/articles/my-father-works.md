@@ -12,88 +12,88 @@ topics:
 ---
  
 
-Meu Pai trabalha incessantemente. E Eu também trabalho.
+My father works incessantly. And I work too.
 
-Esta frase de Jesus foi pronunciada há mais de dois milênios e resume a
-essência da nossa vida na Terra.
+This phrase of Jesus was pronounced more than two millennia ago and sums up the
+essence of our life on Earth.
 
-Mas, você deve estar se perguntando: A nossa vida na Terra se resume ao
-trabalho?
+But, you may be wondering: Our life on Earth boils down to the
+Work?
 
-Sim, mas não a esse trabalho que escraviza a criatura, que divide a família e
-consome a saúde.
+Yes, but not to this work that enslaves the creature, which divides the family and
+consumes health.
 
-Falamos do trabalho que é esforço em direção ao progresso.  O trabalho material
-sustenta o corpo, mas não se resume a isso.
+We talk about the work that is an effort towards progress.  Material work
+sustains the body, but it is not limited to it.
 
-Toda ação é trabalho. Pode-se trabalhar no bem, pode-se trabalhar para Deus.
-Trabalha-se por amor.
+Every action is work. You can work well, you can work for God.
+You work for love.
 
-Portanto, o trabalho é uma forma de manifestar o amor a Deus e ao próximo. Como
-fazer isso?
+Therefore, work is a way of manifesting love for God and others. As
+do that?
 
-A resposta é devoção. Quem verdadeiramente ama a Deus, utiliza corretamente seu
-tempo de vida na Terra para trabalhar, como forma de retribuição a todas as
-dádivas que recebe do Criador.
+The answer is devotion. Who truly loves God, correctly uses his
+life on Earth to work as a form of retribution to all
+gifts he receives from the Creator.
 
-Há quem confunda o trabalho físico com o trabalho oferecido a Deus.
+Some confuse physical work with the work offered to God.
 
-Alguns imaginam que ofertar seu trabalho à Divindade significa sair pelo Mundo
-convertendo as criaturas a uma determinada religião. Não é disso que estamos
-falando.
+Some imagine that offering their work to divinity means going out the world
+converting creatures to a particular religion. That's not what we're in.
+Talking about.
 
-Trabalhar para Deus é tornar-se exemplo vivo de ética, bondade, alegria. É pelo
-exemplo que prestamos os melhores serviços ao Criador.
+Working for God is to become a living example of ethics, kindness, joy. It is by
+example that we provide the best services to the Creator.
 
-De que nos serve falar constantemente de Deus, se nossos atos desmentem nossas
-palavras?
+What it is worth constantly speaking of God, if our actions belie our
+Words?
 
-O coração precisa estar cheio de compaixão, caridade, tolerância e alegria para
-demonstrar o valor de nossa crença, a extensão de nossa fé.
+The heart needs to be full of compassion, charity, tolerance and joy for
+demonstrate the value of our belief, the extent of our faith.
 
-Outra forma de trabalhar para Deus é dar um sentido Divino a todos os nossos
-atos, palavras e pensamentos.
+Another way to work for God is to give a Divine meaning to all our
+acts, words and thoughts.
 
-É enfrentar as provações com calma e certos de que há, nas situações difíceis,
-um grande aprendizado para nós.
+It is to face the trials calmly and certain that there is, in difficult situations,
+a great learning for us.
 
-Os homens devotos são serenos não porque receberam dos céus uma calma
-milagrosa. Eles são serenos porque recebem todos os episódios da existência
-como uma dádiva que vai enriquecer a sua existência.
+Devout men are serene not because they have received from heaven a calm
+Miraculous. They are serene because they receive all episodes of existence
+as a gift that will enrich its existence.
 
-Esses aprenderam a confiar tanto em Deus, que nada os confunde, irrita ou
-aborrece. Veem Deus em todas as coisas.
+They have learned to trust God so much that nothing confuses them, angers or
+Bothers. They see God in all things.
 
-Mesmo diante da perversidade e do ódio, compreendem que aquelas são somente
-manifestações de ignorância. Sabem que Deus também perdoa e dá repetidas
-chances a Seus filhos.
+Even in the face of perversity and hatred, they understand that those are only
+manifestations of ignorance. They know that God also forgives and gives repeated
+chances to His children.
 
-Por isso, as situações negativas não abalam o homem que tem a verdadeira fé.
+Therefore, negative situations do not shake the man who has true faith.
 
-Esta atitude é uma forma superior de trabalho. Uma forma refinada, plena,
-elevada.
+This attitude is a superior form of work. A refined, full,
+High.
 
-Formas de trabalho Divino surgem todos os dias em nossa vida. Manifestam-se sob
-a forma de uma família sofrida, complicada, exigente, ingrata. Nesse caso,
-nosso trabalho é servir mais, educar, perdoar, compreender, auxiliar.
+Forms of Divine work arise every day in our lives. They manifest themselves under
+the form of a family suffered, complicated, demanding, ungrateful. In this case,
+our job is to serve more, educate, forgive, understand, assist.
 
-Há tanto sofrimento no Mundo: doentes a cuidar, crianças a tratar, idosos para
-conversar, presidiários sem esperança. O campo de trabalho é vasto.
-Aproveite-o.
+There is so much suffering in the world: patients caring, children to treat, elderly to
+talk, hopeless inmates. The field of work is vast.
+Enjoy it.
 
-Busque fazer de sua vida um foco de ação no bem, de alegria de servir.
+Seek to make your life a focus of action in good, of joy to serve.
 
-Não espere recompensas, nem reconhecimento. Faça as boas ações simplesmente
-como gestos de reverência ao Pai Celestial. E, assim, você estará mais próximo
-dEle.
+Don't expect rewards, no recognition. Do the good deeds simply
+as gestures of reverence for Heavenly Father. And so you'll be closer
+Him.
 
-Acredite: não há alegria mais perene ou felicidade mais completa do que
-sentir-se próximo de Deus.
+Believe me, there is no more perennial joy or happiness more complete than
+feel close to God.
 
-Amá-Lo simplesmente, sentir-Lhe a presença benéfica, a afeição incomparável.
+Love Him simply, feel him the beneficial presence, unparalleled affection.
 
-Este é o objetivo final da nossa existência: ver a Deus, estar com Ele,
-cumprindo-Lhe as Leis perfeitas. Isto é amor.
+This is the ultimate goal of our existence: to see God, to be with Him,
+fulfilling the perfect Laws to him. This is love.
 
 ## Source
 Redação do Momento Espírita.  

@@ -10,97 +10,97 @@ topics:
 - love
 ---
 
-Uma das graves problemáticas da humanidade é a utilização de drogas.
+One of humanity's serious problems is the use of drugs.
 
-Das drogas pesadas, como heroína, cocaína às drogas socialmente aceitas, como
-álcool e fumo. Não menos danosas.
+From heavy drugs such as heroin, cocaine to socially accepted drugs, such as
+alcohol and smoke. No less harmful.
 
-Drogas que geram dependência e um sem número de outras dificuldades ao corpo e
-ao espírito.
+Drugs that generate dependence and one without number of other difficulties in the body and
+to the spirit.
 
-A questão toma conta dos lares e é possível que muitos de nós não utilizemos
-nenhuma das enumeradas.
+The issue takes care of homes and it is possible that many of us do not use
+none of the listed ones.
 
-Mas, é muito certo que alguns usemos antidepressivos, soníferos e estimulantes
-para estarmos bem humorados. Drogas para emagrecer, para estimular a libido,
-para dar euforia.
+But, it is very certain that some use antidepressants, sleepaids and stimulants
+to be humorous. Drugs to lose weight, to stimulate libido,
+to give euphoria.
 
-Se desejamos erradicar o problema do mundo, devemos iniciar por nós. Como?
-Começando.
+If we want to eradicate the problem of the world, we must start for us. As?
+Starting.
 
-Para isso, alguns itens nos podem servir de ferramentas.
+To do this, some items can serve as tools.
 
-Primeiro: façamos uma lista dos nossos vícios e a coloquemos no espelho, para
-diariamente olhar e ler.
+First, let's make a list of our vices and put it in the mirror, so that
+daily look and read.
 
-Por exemplo: eu gosto de tomar substância alcoólica. Ou: gosto de fumar. Esta
-semana vou trabalhar pela minha saúde.
+For example, I like to take alcohol substance. Or: I like to smoke. This
+week I'm going to work for my health.
 
-Aí, iniciemos o trabalho terapêutico. Raciocinemos:
+Then let's start the therapeutic work. We reason:
 
-Sou uma pessoa de consciência. Não vou gastar para me matar de maneira
-dolorosa.
+I'm a person of conscience. I'm not going to spend it to kill myself.
+Painful.
 
-O cigarro causa cânceres na boca, no aparelho respiratório e no aparelho
-digestivo.
+Cigarettes cause cancers in the mouth, respiratory tract and
+Digestive.
 
-O álcool produz degenerescência do aparelho digestivo, do pâncreas, dos
-pulmões, do fígado. Alucina. Eu sou inteligente. Não vou usar.
+Alcohol produces degeneration of the digestive tract, pancreas,
+lungs, liver. Hallucinating. I'm smart. I'm not going to use it.
 
-Cada semana trabalhamos um vício. Um de cada vez.
+Every week we work an addiction. One at a time.
 
-Segundo: afirmemos – eu me amo.
+Second, let's say - I love myself.
 
-Se eu me amo, zelo por mim. Por isso, devo me melhorar a cada dia.
+If I love myself, I look after myself. So I must get better every day.
 
-Preocupemo-nos em ser melhores. Em vez de perseguir o sucesso do mundo,
-invistamos no êxito sobre as nossas paixões.
+Let's worry about being better. Instead of pursuing the success of the world,
+we invest in success on our passions.
 
-Terceiro: evitemos dizer: nunca mais. Nunca mais eu fumarei. Nunca mais tomarei
-álcool.
+Third, let's avoid saying, never again. I'm never going to smoke again. I'll never take it again
+Alcohol.
 
-Façamos como recomenda o código dos alcoólicos anônimos: hoje eu não tomarei
-álcool. Só hoje.
+Let's do as recommended by the code of anonymous alcoholics: today I will not take
+Alcohol. Just today.
 
-Quando vier amanhã, repetirei: só hoje. E assim a cada dia, dia por dia.
+When I come tomorrow, I'll repeat it: just today. And so every day, day by day.
 
-Passo a passo, conquista a conquista.
+Step by step, conquer the conquest.
 
-Quarto: digamos: eu mereço ser feliz.
+Fourth: let's say, I deserve to be happy.
 
-Necessitamos melhorar a nossa auto-estima. Deixar de se considerar a última das
-criaturas, aquela para a qual tudo acontece de ruim.
+We need to improve our self-esteem. Stop considering the last of the
+creatures, the one for which everything happens bad.
 
-Problemas todos os têm. Somente os alienados não se dão conta de que os têm.
+Problems all have them. Only the alienated don't realize they have them.
 
-Com auto-estima, nos acreditamos merecedores de felicidades. Têm-se desafios a
-vencer, porque estamos vivos.
+With self-esteem, we believe we deserve happiness. Challenges are being
+win, because we're alive.
 
-E, finalmente, quinto item: eu nasci para amar.
+And finally, fifth item: I was born to love.
 
-Fui criado por amor, sou sustentado pelo amor de Deus e fui talhado para o
-amor.
+I was created for love, I am sustained by God's sake and was carved for the
+Love.
 
-Para amar, eu necessito viver sem conflitos, sem marcas, livre de quaisquer
-dependência.
+To love, I need to live without conflict, without marks, free of any
+Dependency.
 
-Acreditemos: podemos mudar o mundo, acabar com as drogas, começando por nós.
+Believe me, we can change the world, end the drugs, starting with us.
 
-Para mudarmos o mundo é necessário que mudemos a nós mesmos.
+To change the world we need to change ourselves.
 
                                       ***
 
-Diante do arquipélago celular que constitui o corpo, a verdadeira felicidade é,
-de início, se encontrar vivo.
+In the face of the cellular archipelago that constitutes the body, true happiness is,
+at first, if you find yourself alive.
 
-Logo depois, é a inefável alegria de ter consciência da própria fragilidade.
+Soon after, it is the ineffable joy of being aware of one's own fragility.
 
-Também das infinitas possibilidades de realização moral, que decorre da coragem
-para conseguir a auto-iluminação.
+Also from the infinite possibilities of moral fulfillment, which stems from the courage
+to achieve self-illumination.
 
-Por tudo isso, não deixemos para amanhã a nossa tomada de decisão.
+For all this, let's not leave our decision-making for tomorrow.
 
-Comecemos hoje a construção do dia melhor do amanhã.
+Let's start building the best day today today.
 
 ## Source
 Texto da Redação do Momento Espírita, a partir do cap. 9 do livro eu me amo. Eu

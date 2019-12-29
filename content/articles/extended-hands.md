@@ -6,82 +6,82 @@ topics:
 - modesty
 ---
 
-        Quando caminhamos pelas estreitas passarelas da vida, observamos, com
-pesar, milhares de mãos estendidas em nossa direção.
+        As we walk along the narrow walkways of life, we observe, with
+weigh, thousands of hands extended towards us.
 
-        São mãos que rogam pão para alimentar o corpo faminto...
+        They're hands that beg bread to feed the hungry body...
 
-        Mãos que pedem carinho...
+        Hands that ask for affection...
 
-        Mãos distendidas em busca de luz espiritual, capaz de espancar as
-trevas da consciência culpada...
+        Hands distended in search of spiritual light, able to beat the
+darkness of guilty consciousness...
 
-        Mãos que rogam o amparo de outras mãos, que lhes sequem as lágrimas
-amargas vertidas pela dor da separação das mãos queridas que a morte
-arrebatou...
+        Hands that beg the support of other hands, which dry their tears
+bittershed by the pain of separation from the dear hands that death
+Snatched...
 
-        São tantas mãos distendidas pelas vielas da vida, que nos fazem sentir
-impotentes, incapazes de nos candidatarmos ao serviço do bem, diante de tanta
-necessidade...
+        There are so many hands distended by the alleys of life, which make us feel
+powerless, unable to apply for the service of good, before so much
+Need...
 
-        Todavia, vale a pena buscarmos, na natureza, fatos que nos renovem o
-ânimo e mudem nossa maneira de pensar.
+        However, it is worth seeking, in nature, facts that renew the
+and change our way of thinking.
 
-        O fio de cobre, por exemplo, quando largado na via pública, não passa
-de objeto insignificante. Mas, ligado ao poder da usina, é transmissor de luz e
-força.
+        Copper wire, for example, when dumped on the public road, does not pass
+of insignificant object. But, connected to the power of the plant, it is a transmitter of light and
+Force.
 
-        O pequeno cano, abandonado à poeira, é tropeço na estrada. Contudo, se
-ajustado ao reservatório, é condutor de água pura.
+        The small pipe, abandoned to dust, is stumbling on the road. However, if
+adjusted to the reservoir, is a pure water conductor.
 
-        A argila, dormindo no charco, é simples porção de lama. Todavia,
-entregue aos cuidados do oleiro, converte-se em vaso nobre.
+        Clay, sleeping in the pond, is simple portion of mud. However
+delivered to the care of the potter, becomes a noble vessel.
 
-        A pedra, solta no campo, é calhau pobre e esquecido. Mas, se unida à
-construção, é alicerce do lar.
+        The stone, loose in the field, is poor and forgotten pebble. But if united with the
+construction, is the foundation of the home.
 
-        A lagarta, na amoreira, é triste animal de aspecto repelente. No
-entanto, levada à indústria do fio, produz a seda brilhante.
+        The caterpillar, on mulberry, is sad animal of repellent aspect. In
+however, taken to the wire industry, produces bright silk.
 
-        A tripa de carneiro, estendida ao sol, é realmente algo desprezível.
-Quando transformada na corda do violino, é meio eficaz para que a música possa
-surgir.
+        The sheep's gut, extended to the sun, is really something despicable.
+When transformed into the violin string, it is kind of effective for music to be able to
+Arise.
 
-        Entretanto, para servir é preciso esforço e disciplina.
+        However, to serve it takes effort and discipline.
 
-        O fio de cobre, para iluminar, padece a tensão da energia elétrica.
+        Copper wire, to illuminate, suffers the voltage of electric energy.
 
-        O cano necessita ajustar-se para ser útil. A argila experimenta a alta
-temperatura do fogo. A pedra aceita o anonimato para se tornar sustentáculo.
+        The pipe needs to adjust to be useful. Clay experiences high
+fire temperature. The stone accepts anonymity to become supportive.
 
-        A lagarta deve morrer para auxiliar, e a tripa de carneiro passa por
-longo processo renovador a fim de responder, com segurança, aos sonhos do
-musicista.
+        The caterpillar must die to aid, and the mutton gut passes through
+long renewing process in order to respond safely to the dreams of the
+Musician.
 
                                      * * *
 
-        Em verdade, ainda somos corações frágeis, almas culpadas, e Espíritos
-endividados, diante das Leis Divinas.
+        In fact, we are still fragile hearts, guilty souls, and Spirits
+indebted in the face of divine laws.
 
-        Mas, ligados ao Espírito de nosso Divino Mestre Jesus, podemos ser
-instrumentos do eterno bem.
+        But, linked to the Spirit of our Divine Master Jesus, we can be
+instruments of eternal good.
 
-        Não basta, porém, salientar as nossas fraquezas, a nossa falta de
-capacidade, a preguiça ou a falsa modéstia para estender socorro eficiente na
-direção das mãos estendidas em nossa direção.
+        It is not enough, however, to highlight our weaknesses, our lack of
+capacity, laziness or false modesty to extend efficient relief in the
+direction of the hands extended towards us.
 
-        É preciso abraçar a verdadeira humildade, com obediência e disciplina,
-ante os desígnios do Senhor, porque, aprendendo e servindo; amando e ajudando;
-lutando e sofrendo em Sua causa sublime, será possível modificar a triste
-realidade do nosso planeta.
+        It is necessary to embrace true humility, with obedience and discipline,
+before the Lord's designs, for, by learning and serving; loving and helping;
+fighting and suffering in His sublime cause, it will be possible to modify the sad
+reality of our planet.
 
                                    *   *   *
 
-        É sempre fácil servir perante o céu azul e ensinar nos dias dourados,
-cheios de tranqüilidade e de sol.
+        It is always easy to serve before the blue sky and teach on golden days,
+full of tranquility and sun.
 
-        Cabe-nos aprender a servir sob a noite tormentosa, e ao longo das
-sendas repletas de dores e dificuldades de toda sorte.
+        It is up to us to learn to serve under the stormy night, and throughout the
+paths full of pain and difficulties of all sorts.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 42, do livro  Vozes do grande

@@ -14,91 +14,91 @@ topics:
 - prayer
 ---
 
-Em famosa passagem do Evangelho, Jesus fez um convite muito especial.
+In a famous passage of the Gospel, Jesus made a very special invitation.
 
-Afirmou que quem desejasse ir após Ele deveria renunciar a si mesmo, tomar sua
-cruz e segui-lO.
+He stated that whoever wished to go after He should renounce himself, take his
+cross and followed him.
 
-Esta afirmação é extraordinariamente rica, como ocorre em tudo o que procede do
-Cristo.
+This statement is extraordinarily rich, as is the case in everything that proceeds from the
+Christ.
 
-Nela, o aspecto da renúncia pessoal não é o menos interessante.
+In it, the aspect of personal renunciation is not the least interesting.
 
-O serviço da própria sublimação não costuma ser compatível com a satisfação de
-todos os caprichos do coração.
+The sublimation service itself is not usually compatible with the satisfaction of
+all the whims of the heart.
 
-Quem deseja viver o bem, necessariamente precisa se afastar um pouco do bulício
-mundano.
+Those who wish to live good necessarily need to move away a little from the hustle and bustle
+Mundane.
 
-Não se trata de afastamento físico.
+It's not about physical clearance.
 
-Afinal, a virtude não pode ser uma flor de estufa, que não resiste à prova da
-realidade da vida.
+After all, virtue cannot be a greenhouse flower, which does not resist the proof of
+reality of life.
 
-Esse afastamento é, num sentido muito específico, de não se deixar contaminar
-pelas loucuras e paixões correntes.
+Such removal is, in a very specific sense, not to allow itself to be contaminated
+by the current follies and passions.
 
-A responsabilidade é muito variável entre as criaturas.
+The responsibility is very variable among creatures.
 
-Quem há pouco saiu da infância espiritual possui menores recursos de
-sublimação.
+Those who just left spiritual childhood have less resources of
+Sublimation.
 
-É, até certo ponto, compreensível que se empolgue com o discurso mundano.
+It is, to some extent, understandable that you are perched by the worldly discourse.
 
-Falta-lhe discernimento para compreender o que de fato lhe convém.
+He lacks discernment to understand what really suits him.
 
-Contudo, a situação é bem diferente em relação às almas já tocadas pela
-mensagem cristã.
+However, the situation is quite different from souls already touched by the
+Christian message.
 
-Para essas, grave é a responsabilidade.
+For these, serious is responsibility.
 
-Caso optem por viver a ardência dos sentidos, em detrimento dos valores
-eternos, complicam-se de modo muito importante.
+If they choose to live the burning of the senses, to the detriment of the values
+become very important.
 
-Não se trata de um Deus punitivo a lhes cobrar contas.
+This is not a punitive God to charge them bills.
 
-O problema reside na consciência desperta e lúcida.
+The problem lies in the awakened and lucid consciousness.
 
-Por saber o que era possível fazer, a própria criatura se afunda no
-arrependimento.
+Knowing what it was possible to do, the creature itself sinks into the
+Regret.
 
-Se pôs a perder santas oportunidades, é com dificuldade que se justifica
-perante si mesma.
+He has lost holy opportunities, it is with difficulty that is justified
+before herself.
 
-Por isso, o caminho da redenção pressupõe renúncia.
+Therefore, the path of redemption presupposes renunciation.
 
-Renúncia às banalidades que tomam tempo.
+Renunciation of the banalities that take time.
 
-Renúncia às baixezas tão em voga.
+Renunciation of the rascalities so in vogue.
 
-Renúncia à maledicência, à pornografia, às vantagens indevidas, à preguiça e ao
-ócio.
+Renunciation of malevolence, pornography, undue advantages, laziness and
+Leisure.
 
-A alma enamorada do ideal cristão tem em si uma urgência do bem.
+The soul and girlfriend of the Christian ideal has in itself an urgency of good.
 
-Tal não significa que viva enlouquecida no afã de muito fazer.
+That doesn't mean i live mad in the eagerness to do a lot.
 
-Ela goza de uma paz especial, feita de serviço e de retidão.
+She enjoys a special peace, made of service and righteousness.
 
-Trabalha porque sabe o valor do tempo.
+He works because he knows the value of time.
 
-Mas entende que o resultado sempre pertence ao Senhor da vida.
+But you understand that the result always belongs to the Lord of life.
 
-Seu foco reside em ser digna, útil e bondosa.
+His focus lies on being worthy, useful and kind.
 
-Para atingir esse estado, dispõe-se a vários sacrifícios.
+To achieve this state, there are several sacrifices.
 
-Abdica de ter razão para viabilizar a paz.
+You give up having reason to make peace viable.
 
-Abre mão de seu conforto para confortar o próximo.
+Give up your comfort to comfort others.
 
-Tudo porque seu coração foi tocado pelo convite do Senhor.
+All because your heart was touched by the Lord's invitation.
 
-Ela realmente deseja segui-lO.
+She really wishes to follow him.
 
-Por isso, encontra forças para fazer as renúncias necessárias.
+Therefore, it finds the strength to make the necessary resignations.
 
-Pense a respeito.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

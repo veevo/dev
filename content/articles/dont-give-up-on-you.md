@@ -11,80 +11,80 @@ topics:
 - child
 ---
 
-Por vezes você não entende como as pessoas ainda conseguem sorrir num mundo
-como esse.
+Sometimes you don't understand how people can still smile in a world
+like that.
 
-Anda pelas ruas e não vê graça no movimento de ir e vir das pessoas, não
-encontra a alegria na vivacidade das crianças e não percebe essas supostas
-coisas boas que a vida tem.
+Walks the streets and sees no grace in the movement to come and go from people, no
+finds joy in the vivacity of children and does not realize these supposed
+good things life has.
 
-As notícias falam de conspirações, de golpes, de chacinas. Pioram índices disso
-ou daquilo. E você tem certeza de que não vale a pena investir nenhum esforço
-nessa existência.
+The news speaks of conspiracies, coups, slaughter. They worsen indexes of this
+or that. And you're sure it's not worth investing any effort
+in this existence.
 
-Há também uma espécie de vazio aí dentro. Uma dor na boca do estômago ou nos
-pulmões, uma dificuldade de respirar às vezes. Você não sabe o que é. Será que
-todo mundo tem isso?
+There's also some kind of emptiness in there. A pain in the mouth of the stomach or in the
+lungs, a difficulty breathing sometimes. You don't know what it is.
+does everyone have that?
 
-Você estuda por obrigação ou trabalha apenas pelo resultado financeiro. Ora,
-você precisa comer, precisa de um lugar para morar, comprar algumas coisas...
-Mas, por vezes fica pensando se vale a pena lutar por isso.
+You study by obligation or work only for the financial result. Now
+you need to eat, you need a place to live, buy some things...
+But sometimes you wonder if it's worth fighting for it.
 
-Tem vezes que come mais do que necessita, outras que fica muitas horas sem se
-alimentar e percebe que isso não faz muita falta. Até poderia viver sem...
+You have times that you eat more than you need, others that you stay many hours without
+and realizes that this is not much lacking. I could even live without...
 
-Percebe que as pessoas estão se isolando. Cada um no seu canto. Por isso não
-fala muito de você. Aliás, pode passar horas e horas sem proferir uma única
-palavra.
+You realize people are isolating themselves. Everyone in your corner. So don't
+He talks about you a lot. In fact, you can spend hours and hours without uttering a single
+Word.
 
-Estamos nos escondendo atrás das telas! – Ouviu um especialista dizer. E nas
-suas horas livres permanece ali, naquele mundo que parece não ter fim, mas que
-às vezes também tem cara de imenso vazio.
+We're hiding behind the screens! " You heard a specialist say. And in the
+his free hours remain there, in that world that seems to have no end, but that
+sometimes it also looks like a lot of emptiness.
 
-A internet parece cheia de gente mas, ao mesmo tempo, vazia. Entro e saio desse
-suposto mundo digital do mesmo jeito – são pensamentos que lhe acodem.
+The internet seems full of people but at the same time empty. I go in and out of this
+supposed digital world in the same way – these are thoughts that acode it.
 
-Você anda cansado de tudo, de todos. As pessoas não são interessantes. Não tem
-paciência para quase ninguém.
+You've been tired of everything, everyone. People aren't interesting. There's no
+patience for almost no one.
 
-De vez em quando bate uma tristeza profunda, como se abrisse um abismo no
-peito. Você tem vontade de chorar, mas não consegue. Não entende o que é isso.
-Você se sente sozinho.
+From time to time a deep sadness strikes, as if opening an abyss in the
+Chest. You want to cry, but you can't. You don't understand what that is.
+You feel lonely.
 
                                    *   *   *
 
-Eis algumas palavras especiais para você.
+Here are some special words for you.
 
-Primeiro: não se permita a solidão prolongada. Conte com alguém para conversar,
-para se abrir. Alguém em quem confie, alguém para quem possa descrever essas
-coisas estranhas que pensa, que sente ou que vê ao seu redor.
+First, prolonged loneliness is not allowed. Count on someone to talk to,
+to open up. Someone you trust, someone you can describe these
+strange things you think, that you feel or see around you.
 
-Não perca a referência do amor, dos que lhe querem bem. Todos temos esses à
-nossa volta. Todos temos os que estão dispostos a nos estender a mão, ou apenas
-ouvir.
+Don't miss the reference of love, those who want you well. We all have these
+our back. We all have those who are willing to reach out to us, or just
+Hear.
 
-Você não está só.
+You're not alone.
 
-Não fomos simplesmente abandonados num mundo que vai de mal a pior. Essa é
-outra visão distorcida. É uma visão terrorista que muitos se acostumaram a
-passar ou a aceitar. Não julgue o mundo apenas ouvindo um dos lados.
+We haven't just been abandoned in a world that goes from bad to worse. This is
+another distorted view. It is a terrorist vision that many have become accustomed to
+pass or accept. Don't judge the world just listening to one side.
 
-Há muito amor nas pessoas. O Universo é coordenado por amor, embora ainda
-tenhamos dificuldade em entender certos mecanismos de suas leis.
+There's a lot of love in people. The Universe is coordinated out of love, although it is still
+we have difficulty understanding certain mechanisms of their laws.
 
-Veja como esta mensagem está chegando até você. Não existe coincidência, não
-existe acaso. Tudo está em seu devido lugar e a ajuda chega a quem precisa e na
-hora certa.
+See how this message is coming to you. There is no coincidence, no
+there is chance. Everything is in its proper place and help reaches those who need it and in the
+the right time.
 
-Não desista de você. Não desista de seus ideais, sonhos, objetivos. Se for
-necessário, remonte-se, reconstrua-se, peça ajuda de alguém especializado e
-refaça seus passos.
+Don't give up on you. Don't give up on your ideals, dreams, goals. If it is
+necessary, rebuild, rebuild, ask for help from someone specialized and
+remake your steps.
 
-Perceba se sintomas que apresenta não estão ligados a algum tipo de transtorno
-emocional. Todos estamos sujeitos a essas dificuldades.
+Notice if symptoms you have are not linked to some type of disorder
+Emotional. We're all subject to these difficulties.
 
-Finalmente, lembre que a oportunidade da encarnação é o maior tesouro que
-podemos ter recebido. Aproveite cada instante.
+Finally, remember that the opportunity of the incarnation is the greatest treasure that
+we may have received it. Enjoy every moment.
 
 ## Source
 Redação do Momento Espírita.

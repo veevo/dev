@@ -8,105 +8,105 @@ topics:
 - child
 ---
 
-Antes de renascer na carne, cada Espírito elabora uma programação a cumprir.
+Before rebirth in the flesh, each Spirit elaborates a schedule to fulfill.
 
-Orientado por amorosos e sábios guias, ele se decide por determinadas
-vivências.
+Guided by loving and wise guides, he decides by certain
+Experiences.
 
-Esse plano é habitualmente precedido de uma incursão pela memória do candidato
-à reencarnação.
+This plan is usually preceded by an incursion into the applicant's memory
+reincarnation.
 
-Salvo o caso de almas muito valorosas, a recordação é algo restrita, a fim de
-não desequilibrar o Espírito.
+Except for the case of very valiated souls, remembrance is somewhat restricted in order to
+not unbalance the Spirit.
 
-É que uma parte muito considerável dos Espíritos cometeu incontáveis equívocos
-antes de optar pelo bem.
+It is that a very considerable part of the Spirits has made countless misconceptions
+before opting for good.
 
-A Misericórdia Divina costuma lançar um véu sobre o passado, para permitir o
-soerguimento do ser.
+Divine Mercy usually casts a veil upon the past, to allow the
+soerguimento of being.
 
-Mas chega uma hora em que ele já entesourou bastante compreensão da vida e se
-habituou a perdoar.
+But there comes a time when he has already treasured a lot of understanding of life and
+accustomed to forgive.
 
-Quando a alma se ocupa de amar e esquece de condenar é que pode recordar mais
-amplamente o que viveu.
+When the soul is concerned with loving and forgets to condemn it is that it can remember more
+widely what he lived.
 
-A compaixão que aplica naturalmente ao semelhante a credencia a conhecer seu
-histórico e a perdoar-se também.
+The compassion that naturally applies to the similar credentials to know its
+history and to forgive himself as well.
 
-Enquanto o amor não domina o ser, este segue tateando em sua evolução.
+While love does not dominate being, it continues to grope in its evolution.
 
-Mas sempre conta com o apoio de amigos mais evoluídos, que o auxiliam a
-planejar as futuras vivências.
+But it always has the support of more evolved friends, who help him
+plan future experiences.
 
-O livre-arbítrio é costumeiramente respeitado e ninguém se obriga a viver o que
-não deseja.
+Free will is usually respected and no one is obliged to live what
+you don't want to.
 
-O Espírito, por sua conta e risco, pode protelar por um tempo o próprio
-reajustamento com as leis cósmicas.
+The Spirit, at his own risk, can delay for a time the very
+readjustment with cosmic laws.
 
-Entretanto, não há paz e bem-estar sem consciência tranquila.
+However, there is no peace and well-being without a clear conscience.
 
-Mais cedo ou mais tarde, ele resolve se dignificar perante os próprios olhos.
+Sooner or later, he decides to dignify himself before his own eyes.
 
-O espetáculo da felicidade dos bons Espíritos é um estímulo tentador para quem
-segue na retaguarda.
+The spectacle of happiness of good spirits is a tempting stimulus for those who
+follows in the rear.
 
-Entre permanecer desequilibrado e trabalhar pela própria felicidade, o trabalho
-parece altamente desejável.
+Between remaining unbalanced and working for one's own happiness, work
+seems highly desirable.
 
-Certa exceção quanto à liberdade na escolha das provas e expiações ocorre no
-caso de Espíritos muito endurecidos.
+A certain exception as to freedom in the choice of tests and atonements occurs in the
+case of spirits very hardened.
 
-Se a liberdade integra a Lei Divina, o mesmo ocorre com o progresso.
+If freedom integrates the Divine Law, so does progress.
 
-Todos os Espíritos devem evoluir para Deus.
+All Spirits must evolve to God.
 
-Quando conscientes, participam ativamente das decisões sobre o que precisam
-viver.
+When aware, they actively participate in decisions about what they need to
+Live.
 
-É até comum que peçam provas demasiado rudes, no afã de progredir rapidamente.
+It is even common for them to ask for too rude evidence, in the eagerness to progress quickly.
 
-Então, os amigos espirituais buscam convencê-los a serem mais modestos em sua
-pretensão.
+So spiritual friends seek to convince them to be more modest in their
+Claim.
 
-É melhor avançar mais lentamente do que falir em um projeto grandioso.
+It is better to move forward more slowly than to go bankrupt in a grand project.
 
-Contudo, quando o Espírito é renitente no mal ou um contumaz preguiçoso, pode
-ser conduzido a uma existência que não deseja.
+However, when the Spirit is renitent in evil or a lazy bruise, it can
+led to an existence you do not want.
 
-Seres que enlouqueceram em vivências cruéis ou que perderam o discernimento em
-rebeldias contra as Leis Divinas são momentaneamente tutelados em seu
+Beings who have gone mad in cruel experiences or who have lost their discernment in
+rebellions against divine laws are momentarily protected in their
 refazimento.
 
-O ser é tão mais livre quanto mais consciente de seus deveres.
+Being is as freer as more aware of your duties.
 
-Não ocorreria a nenhum pai deixar a criança decidir se vai ou não para a
-escola.
+It would not occur to any parent to let the child decide whether or not to go to the
+School.
 
-Como nenhum pai sensato obrigaria o filho a cursar uma faculdade que detesta.
+Like no sensible father would force his son to attend a college that hates it.
 
-Em tudo, deve vigorar equilíbrio e respeito a quem tem maturidade para
-autodeterminar-se.
+In everything, balance and respect must be in place for those who have maturity to
+Self-determination.
 
-Assim, com base em liberdade, responsabilidade e conhecimento do passado, são
-programadas as existências terrenas.
+Thus, based on freedom, responsibility and knowledge of the past, they are
+earthly stocks have been programmed.
 
-Não se trata de um roteiro minucioso ou de um destino inexorável.
+This is not a thorough roadmap or an inexorable destination.
 
-Alguns eventos marcantes são programados, mas a conduta a ser adotada é de
-inteira responsabilidade do reencarnante.
+Some remarkable events are scheduled, but the conduct to be adopted is
+responsibility of the reincarnation.
 
-Este é livre para comportar-se dignamente ou para rebelar-se e fugir ao dever
-que se apresenta em sua vida.
+This is free to behave worthily or to rebel and escape duty
+that presents itself in your life.
 
-O relevante é que ninguém é vítima indefesa de forças caprichosas ou
-arbitrárias.
+The relevant thing is that no one is a helpless victim of capricious forces or
+Arbitrary.
 
-Em tudo se tem a justiça cósmica, que aproveita erros e acertos humanos para
-conduzir os Espíritos à felicidade.
+In everything we have cosmic justice, which takes advantage of human mistakes and successes to
+lead the Spirits to happiness.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.  

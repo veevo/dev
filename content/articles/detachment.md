@@ -13,99 +13,99 @@ topics:
 - faithlicidade
 ---
 
-Vivemos uma época de celebridades, apelos fáceis à riqueza, ao consumismo, às
-paixões avassaladoras. Transitamos aturdidos por um mundo em que o destaque vai
-para aquele que mais tem.
+We live in a time of celebrities, easy appeals to wealth, consumerism,
+overwhelming passions. We move around a world where the highlight will
+for the one who has the most.
 
-E a todo instante os comerciais de televisão, os anúncios nas revistas e
-jornais, os outdoors clamam: Compre mais. Ostente mais. Tenha mais e melhores
-coisas.
+And at all times television commercials, ads in magazines and
+newspapers, billboards cry out: Buy more. Watch more. Have more and better
+Things.
 
-É um mundo em que luxo, beleza física, ostentação e vaidade ganharam tal espaço
-que dominam os julgamentos.
+It is a world in which luxury, physical beauty, ostentation and vanity have gained such space
+that dominate the judgments.
 
-Mede-se a importância das pessoas pela qualidade de seus sapatos, roupas e
-bolsas.
+It measures the importance of people by the quality of their shoes, clothes and
+Bags.
 
-Dá-se mais atenção ao que possui a casa mais requintada ou situada nos bairros
-mais famosos e ricos.
+More attention is paid to what has the most refined house or situated in the neighborhoods
+most famous and rich.
 
-Carros bons somente os que têm mais acessórios e impressionam por serem belos,
-caros e novos. Sempre muito novos.
+Good cars only those with the most accessories and impress because they are beautiful,
+expensive and new. Always very young.
 
-Adolescentes não desejam repetir roupas e desprezam produtos que não sejam de
-grife. Mulheres compram todas as novidades em cosméticos. Homens se regozijam
-com os ternos caríssimos das vitrines.
+Teenagers do not wish to repeat clothes and despise products other than
+Designer. Women buy all the novelties in cosmetics. Men rejoice
+with the expensive suits of the showcases.
 
-Tornamo-nos, enfim, escravos dos objetos. Objetos de desejo que dominam nosso
-imaginário, que impregnam nossa vida, que consomem nossos recursos monetários.
+We finally become slaves to objects. Objects of desire that dominate our
+that permeate our lives, which consume our monetary resources.
 
-E como reagimos? Será que estamos fazendo algo – na prática –  para combater
-esse estado de coisas?
+And how do we react? Are we doing something – in practice – to fight
+this state of affairs?
 
-No entanto, está nos desejos a grande fonte de nossa tragédia humana. Se
-superarmos a vontade de ter coisas, já caminhamos muitos passos na estrada do
-progresso moral.
+However, the great source of our human tragedy is in desires. If
+overcome the desire to have things, we have walked many steps on the road of the
+moral progress.
 
-Experimente olhar as vitrines de um shopping. Olhe bem para os sapatos, roupas,
-joias, chocolates, bolsas, enfeites, perfumes.
+Try looking at the windows of a mall. Take a good look at the shoes, clothes,
+jewelry, chocolates, handbags, ornaments, perfumes.
 
-Por um momento apenas, não se deixe seduzir. Tente ver tudo isso apenas como
-são: objetos.
+For a moment only, don't be seduced. Try to see all this just like
+are: objects.
 
-E diga para si mesmo: Não tenho isso, mas ainda assim eu sou feliz. Não dependo
-de nada disso para estar contente.
+And say to yourself, I don't have it, but I'm still happy. I don't depend on
+of none of this to be happy.
 
-Lembre-se: é por desejar tais coisas, sem poder tê-las, que muitos optam pelo
-crime. Apossam-se de coisas que não são suas, seduzidos pelo brilho passageiro
-das coisas materiais.
+Remember: it is by wishing such things, without being able to have them, that many choose the
+Crime. Take over things that are not yours, seduced by the passenger glow
+of material things.
 
-Deixam para trás gente sofrendo, pessoas que trabalharam arduamente para
-economizar...
+Leave behind people suffering, people who worked hard to
+Save...
 
-Deixam atrás de si frustração, infelicidade, revolta.
+They leave behind you frustration, unhappiness, revolt.
 
-Mas, há também os que se fixam em pessoas. Veem os outros como algo a ser
-possuído, guardado, trancado, não compartilhado.
+But there are also those who fixate on people. They see others as something to be
+possessed, guarded, locked, unshared.
 
-Esses se escravizam aos parceiros, filhos, amigos e parentes. Exigem
-exclusividade, geram crises e conflitos.
+These enslave themselves to partners, children, friends and relatives. Require
+exclusivity, generate crises and conflicts.
 
-Manifestam, a toda hora, possessividade e insegurança. Extravasam egoísmo e não
-permitem ao outro se expressar ou ser amado por outras pessoas.
+They manifest, at all times, possessivity and insecurity. They extract selfishness and not
+allow the other to express themselves or be loved by others.
 
-É, mais uma vez, o desejo norteando a vida, reduzindo as pessoas a tiranos,
-enfeiando as almas.
+It is, once again, desire guiding life, reducing people to tyrants,
+entangled souls.
 
-Há, por fim, os que se deixam apegar doentiamente às situações.
+Finally, there are those who let themselves be sickly clinging to situations.
 
-Um cargo, um status, uma profissão, um relacionamento, um talento que traz
-destaque. É o suficiente para se deixarem arrastar pelo transitório.
+A position, a status, a profession, a relationship, a talent that brings
+Highlighted. It's enough to let themselves be dragged by the transient.
 
-Esses amam o brilho, o aplauso ou o que consideram fama, poder, glória.
+These love the brilliance, applause or what they consider fame, power, glory.
 
-Para eles, é difícil despedir-se desse momento em que deixam de ser pessoas
-comuns e passam a ser notados, comentados, invejados.
+For them, it's hard to say goodbye to that moment when they cease to be people
+and are now noticed, commented, envied.
 
-Qual o segredo para libertar-se de tudo isso? A palavra é desapego. Mas... Como
-alcançá-lo neste mundo?
+What's the secret to freeing yourself from all this? The word is detachment. But... As
+reach you in this world?
 
-Pela lembrança constante de que todas as coisas são passageiras nesta vida. Ou
-seja: para evitar o sofrimento, a receita é a superação dos desejos.
+For the constant reminder that all things are fleeting in this life. Or
+be: to avoid suffering, the recipe is the overcoming of desires.
 
-Na prática, funciona assim: pense que as situações passam, os objetos quebram,
-as roupas e sapatos se gastam.
+In practice, it works like this: think that situations pass, objects break,
+clothes and shoes are worn out.
 
-Até mesmo as pessoas passam, pois elas viajam, se separam de nós, morrem...
+Even people pass, because they travel, separate from us, die...
 
-E devemos estar preparados para essas eventualidades. É a dinâmica da vida.
+And we must be prepared for these eventualities. It's the dynamics of life.
 
-Pensando dessa forma, aos poucos, a criatura promove uma autoeducação que a
-ensina a buscar sempre o melhor, mas sem gerar qualquer apego egoísta.
+Thinking in this way, gradually, the creature promotes a self-education that
+teaches you to always seek the best, but without generating any selfish attachment.
 
-Ou seja, amar sem exigir nada em troca.
+That is, love without demanding anything in return.
 
- 
+
 
 ## Source
  Redação do Momento Espírita.

@@ -10,82 +10,82 @@ topics:
 - mother
 ---
 
-Ele estabeleceu as mais belas lições desde o berço. Jamais alguém foi Mestre
-tão completo e excepcional.
+He has established the most beautiful lessons since the cradle. No one has ever been Master
+so complete and exceptional.
 
-O Rei Solar e Governador planetário tinha sempre algo a ensinar.
+The Solar King and Planetary Governor always had something to teach.
 
-Ao nascer, escolheu a intimidade de um estábulo, desprovido de conforto e de
+At birth, he chose the intimacy of a stable, devoid of comfort and
 atavios.
 
-Lição de que a verdadeira realeza é do Espírito.
+Lesson that true royalty is of the Spirit.
 
-Como testemunhas do primeiro instante, Seu pai, Sua mãe. Provavelmente, uma
-parteira que viera auxiliar a gestante na délivrance.
+As witnesses of the first moment, His father, His mother. Probably a
+midwife who had come to help the pregnant woman in délivrance.
 
-Lição de aconchego. O nascimento é um momento muito especial em que o ser deve
-ser acolhido com todo afeto e discrição.
+Coziness Lesson. Birth is a very special moment when being should
+welcome with all affection and discretion.
 
-Mas, não se esqueceu de compartilhar a alegria do Seu nascimento com os que lhe
-aguardavam a vinda. Os mais próximos.
+But he did not forget to share the joy of His birth with those who
+they were waiting for the coming. The closest ones.
 
-Por isso, um mensageiro celeste visitou os pastores no campo e lhes anunciou a
-notícia alvissareira, dizendo-lhes onde poderiam encontrar o menino e como
-identificá-lO.
+Therefore, a heavenly messenger visited the shepherds in the field and announced to them the
+alvissareira news, telling them where they could find the boy and how
+identify it.
 
-Também recordou dos que se encontravam distantes e por isso, uma estrela
-brilhou de forma diferente, anunciando que Ele chegara ao planeta azul.
+He also remembered those who were distant and therefore a star
+shone differently, announcing that He had reached the blue planet.
 
-Os magos, de várias partes do Oriente, que estudavam os astros e consultavam os
-céus, em busca de um sinal, a seguiram e O encontrando, O adoraram.
+The wizards, from various parts of the East, who studied the stars and consulted the
+in search of a sign, followed and found him, worshipped Him.
 
-E porque um nascimento merece ser comemorado, um coro celeste se fez ouvir na
-acústica das almas simples, aos ouvidos de quem tinha ouvidos de ouvir.
+And because a birth deserves to be celebrated, a heavenly choir was made heard in the
+acoustics of simple souls, to the ears of those who had ears to hear.
 
-Um coro que anunciava a grande dádiva com que o Pastor presenteava Seu rebanho:
-Glória a Deus nas alturas, paz na Terra, boa vontade para com os homens.
+A choir that proclaimed the great gift with which the Shepherd presented His flock:
+Glory to God in the heights, peace on earth, goodwill towards men.
 
-Uma especial comemoração. Lição da alegria de que se deve revestir toda nova
-vida que aporta ao planeta.
+A special celebration. Lesson of the joy that one should coat all new
+life that contributes to the planet.
 
-Mestre excelente, não prescindiu da família, lecionando continuamente da sua
-importância.
+Excellent master, did not dispense with the family, continually teaching of his
+Importance.
 
-Durante quase trinta anos, esteve no lar de Nazaré. E submeteu-se às tradições,
-exercendo a profissão de Seu pai terreno.
+For almost thirty years, he was in Nazareth's place. And he submitted himself to traditions,
+practicing his father's profession.
 
-As mãos celestes, que haviam modelado as formas planetárias, esmerando-se em
-detalhes, agora tomavam da madeira bruta para transformá-la igualmente em coxos
-para os animais, bancos, mesas.
+The heavenly hands, which had modeled planetary forms, squeezing into
+details, now took from the raw wood to turn it equally into lame
+for animals, benches, tables.
 
-Lição de humildade e de serviço.
+Lesson of humility and service.
 
-Quando deixou o lar paterno para dominar as estradas do mundo, elegeu o dos
-amigos como Seu próprio.
+When he left his father's home to take over the world's roads, he elected that of
+friends as His own.
 
-Em Cafarnaum, foi a casa do pescador Simão Pedro. Quando na Galileia, era o Seu
-local de aconchego, depois das lides do dia, exaustivas, junto ao povo.
+In Capernaum, it was the house of fisherman Simon Pedro. When in Galilee, it was His
+place of warmth, after the agenda, exhaustive, with the people.
 
-Lar. Refúgio. Oásis para recompor as energias. Local de descanso.
+Home. Refuge. Oasis to replenish energies. Resting place.
 
-Na Judeia, foi a chácara dos irmãos Marta, Maria e Lázaro.
+In Judea, it was the farm of brothers Marta, Maria and Lazarus.
 
-Lição das bênçãos familiares, da sua importância para o refazimento, a
-alimentação pelo combustível do amor.
+Lesson of family blessings, their importance for redoing,
+feeding by the fuel of love.
 
-O Pastor veio para o meio do Seu rebanho sem descuidar de nenhum detalhe.
+The Shepherd came into the middle of His flock without neglecting any detail.
 
-Amor não amado, demonstrou a preocupação com Sua mãe, ao deixá-la na Terra.
-Entre as agonias da crucificação, lembrou-se de entregá-la ao Apóstolo João.
+Unloved love has shown concern for His mother by leaving her on Earth.
+Among the agonies of crucifixion, he remembered to hand it over to the Apostle John.
 
-Nova lição. A de que a família se estende para além das fronteiras da
-consanguinidade. Família corporal. Família espiritual.
+New lesson. That the family extends beyond the borders of the
+Inbreeding. Body family. Spiritual family.
 
-Tudo, em todos os instantes de Sua vida terrena, foi plenificado de ensino. Nem
-poderia ser diferente com aquele que asseverou: Vós me chamais mestre e senhor.
-E dizeis bem, porque eu o sou.
+Everything, at all times in His inner life, was plenificated with teaching. Not
+could be different with the one who assailed: You call me master and lord.
+And you say it well, because I am.
 
-Jesus. Modelo e Guia. Mestre e Senhor.
+Jesus. Model and Guide. Master and Lord.
 
 ## Source
 Redação do Momento Espírita.

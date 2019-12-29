@@ -8,87 +8,87 @@ topics:
 - family
 ---
 
-É verdade que algumas vezes nos irritamos com aquele que vem nos bater à porta
-de casa, nas horas mais inconvenientes, a nos pedir coisas.
+It is true that sometimes we get angry with the one who comes knocking on our door
+at home, in the most inconvenient hours, asking us for things.
 
-Acontece de nos incomodarmos com alguém que nos aborda na rua, a pedir um
-trocado, algo para comer, umas moedas.
+We happen to bother with someone who approaches us on the street, asking for a
+exchanged, something to eat, some coins.
 
-Às vezes, somos intolerantes com aquele que insiste em solicitar algo no
-sinaleiro, na calçada, cruzando nosso caminho nos momentos de maior pressa.
+Sometimes we are intolerant of the one who insists on requesting something in the
+sign, on the sidewalk, crossing our way in times of greatest haste.
 
-É comum julgarmos aquele que pede, o que estende a mão aguardando moedas, o que
-faz da esmola a fonte de sobrevivência.
+It is common to judge the one who asks, which extends the hand waiting for coins, which
+makes alms the source of survival.
 
-Fazemos análises rápidas, usamos de conclusões que se tornam chavões, e
-rotulamos essas criaturas.
+We do quick analysis, use conclusions that become platitudes, and
+we label these creatures.
 
-Poucas vezes refletimos sobre o que teria levado essa ou aquela pessoa a essa
-situação de mendicância.
+Rarely have we reflected on what would have led that or that person to that
+begging situation.
 
-Não encontramos tempo para outras análises e possibilidades para avaliar melhor
-a situação.
+We can't find time for other analyses and possibilities to better evaluate
+the situation.
 
-Raramente nos colocamos em seu lugar, num exercício de empatia e compreensão.
+We rarely put ourselves in his place, in an exercise of empathy and understanding.
 
-Alguns ali estão porque se deixaram levar no roldão dos vícios, perdendo
-família, emprego, relações sociais.
+Some there are because they let themselves be carried away in the roll of vices, losing
+family, employment, social relations.
 
-Outros viram o desemprego desestruturar sua vida, jogando-os à margem da
-sociedade, sem recursos para manter-se e manter aos seus.
+Others saw unemployment disrupt their lives, throwing them on the fringes of the
+society, without resources to maintain and maintain its own.
 
-Outros trazem histórias de vida difíceis, de famílias complexas, sem terem tido
-acesso aos bancos escolares, impedindo que muitas oportunidades lhes surgissem
-no caminho.
+Others bring difficult life stories, from complex families, without having had
+access to school benches, preventing many opportunities from arising from them
+on the way.
 
-Enfim, eles estão ali, vivenciando suas dores.
+Anyway, they're there, experiencing their pains.
 
-De um modo geral, pensamos que aquele que quer, que tem força de vontade, que
-se esforça, consegue superar toda e qualquer adversidade.
+In general, we think that the one who wants, who has willpower, who
+strives, manages to overcome any and all adversity.
 
-Sim, pode ser verdade. Mas, nem sempre. É verdade para aqueles com resistência
-emocional, com estrutura intelectual, com um caráter mais forjado e sólido.
+Yes, it may be true. But not always. It's true for those with resistance
+with intellectual structure, with a more forged and solid character.
 
-Contudo, são muitos os frágeis, que sucumbem às próprias agruras, sem forças
-para se erguerem.
+However, there are many frail, who succumb to their own groups, without
+to rise.
 
-Já pensamos, em algum momento, se nós seríamos fortes, bravos, corajosos, se
-revezes semelhantes nos alcançassem?
+We have already thought, at some point, whether we would be strong, brave, courageous, if
+setbacks similar to reach us?
 
-Se tivéssemos nascido em um lar desestruturado, se tivéssemos nos deparado com
-a fome, a miséria, se não tivéssemos nenhuma referência positiva,
-conseguiríamos tudo superar?
+If we had been born in a unstructured home, if we had come across
+hunger, misery, if we had no positive reference,
+Would we get everything out?
 
-Talvez se, em nossas reflexões, andarmos por essa via, ela nos ajude a termos
-um pouco de empatia.
+Perhaps if, in our reflections, we walk this way, it will help us to have
+a little empathy.
 
-E, assim procedendo, colocando-nos no lugar desses que mendigam, possamos
-substituir, por um momento que seja, nosso julgamento apressado por um pouco de
-compaixão.
+And thus by proceeding, putting ourselves in the place of those who beg, we can
+replace, for a moment that is, our judgment hasty for a little
+Compassion.
 
-Seria tão salutar se pudéssemos oferecer, a esses que passam por tantas
-dificuldades, um olhar de compaixão.
+It would be so salutary if we could offer, to those who go through so many
+difficulties, a look of compassion.
 
-Com certeza lhes faria bem que os olhássemos no fundo dos olhos, como irmãos,
-que verdadeiramente são.
+I would certainly do them good that we looked them in the back of their eyes, like brothers,
+that truly they are.
 
-Um sorriso, um olhar de compreensão, um aceno ou um cumprimento, podem mudar o
-seu dia.
+A smile, a look of understanding, a nod or a greeting, can change the
+your day.
 
-Façamos esse exercício.
+Let's do this exercise.
 
-Esvaziemos um tanto nossos corações dos frios julgamentos que colecionamos,
-para nos propormos a uma outra análise.
+We emptied our hearts somewhat from the cold judgments we collect,
+to propose to another analysis.
 
-Poderemos fazer isso um dia, outro dia, ao menos para uma pessoa. Será o início
-de um bom exercício, que poderá se desenvolver, em nossa intimidade, na
-sequência das semanas.
+We can do this one day, some day, at least for one person. It will be the beginning of
+of a good exercise, which could develop, in our intimacy, in the
+sequence of weeks.
 
-E, com certeza, fará muito bem a quem perdeu sua autoestima, há muito tempo,
-ser olhado como um ser humano, alguém credor de um cumprimento, de um aceno, um
-sorriso.
+And it will certainly do very well to those who lost their self-esteem a long time ago
+be looked at as a human being, someone creditor of a greeting, of a nod, a
+Smile.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita  

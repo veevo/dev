@@ -6,84 +6,84 @@ topics:
 - generosity
 ---
 
-A Terra nos acolheu quando nascemos. O planeta que viu nascer nossos
-antepassados deverá ver também a chegada de nossos descendentes.
+The Earth took us in when we were born. The planet that saw our birth
+ancestors should also see the arrival of our descendants.
 
-Muito tempo depois que deixarmos o solo desta Terra, o sol vai aquecer os
-homens do futuro que viverão aqui. E que mundo teremos deixado para a geração
-do amanhã?
+Long after we leave the soil of this Earth, the sun will warm up the
+men of the future who will live here. And what world we will have left for generation
+tomorrow?
 
-Não costumamos pensar na generosidade da Terra que nos recebeu, ofertando
-frutos e flores, sombra e água.
+We don't usually think about the generosity of the earth that received us, offering
+fruits and flowers, shade and water.
 
-Ao contrário, ao longo dos séculos, encharcamos o solo com substâncias
-corrosivas, reviramos a terra em busca de riquezas, matamos árvores,
-contaminamos águas, desperdiçamos recursos, poluímos o ar.
+On the contrary, over the centuries, we soaked the soil with substances
+corrosive, we have reviewed the land in search of riches, we kill trees,
+we contaminate water, waste resources, pollute the air.
 
-Enfim, seguimos esquecidos que os recursos naturais precisam de renovação e
-cuidado. O descuido de milênios então, afinal, surgiu.
+Finally, we remain forgotten that natural resources need renovation and
+Care. The carelessness of millennia then, after all, arose.
 
-Hoje, os resultados estão bem à nossa frente: chuva ácida, rios que se tornaram
-quase sólidos, montanhas de lixo.
+Today, the results are right ahead of us: acid rain, rivers that have become
+almost solid, mountains of garbage.
 
-Animais e plantas que morrem, que se extinguem como se fossem bolhas que
-simplesmente estouram no ar.
+Animals and plants that die, which become extinct as if they were bubbles that
+simply burst into the air.
 
-Nosso planeta agoniza, sufocado pela nossa displicência.
+Our agonizing planet, stifled by our dissent.
 
-Podemos de fato fazer algo? Que atitude tomar?
+Can we really do something? What attitude to take?
 
-Acredite: todos nós podemos, sim, retribuir a generosidade desta Terra que
-nutre seus filhos.
+Believe me, we can all, yes, repay the generosity of this earth that
+nourishes their children.
 
-Hoje é dia de um novo começo, dia de amar mais a Terra, a natureza.
+Today is a day of a new beginning, day of loving earth more, nature.
 
-Olhe por alguns momentos para o céu claro. Pense no ar limpo que entra em seus
-pulmões. E em homenagem a tudo isso, deixe o carro em casa... por um dia que
-seja.
+Look for a few moments at the clear sky. Think of the clean air entering your
+Lungs. And in honor of all this, leave the car at home... for a day that
+Be.
 
-Por um instante apenas, lembre das flores que brotam em janelas e sacadas.
-Flores selvagens, urbanas, flores em rosa, vermelho, laranja, branco e amarelo.
+For a moment only, remember the flowers that sprout in windows and balconies.
+Wild, urban flowers, flowers in pink, red, orange, white and yellow.
 
-Recorde desse perfume e beleza. E retribua, evitando o desperdício que se torna
-a montanha de lixo que soterra as flores.
+Record of this perfume and beauty. And reciprocate, avoiding the waste that becomes
+the mountain of garbage that buries the flowers.
 
-Agora, tenha em mente os regatos claros, as correntes de água, os rios imensos,
-o oceano formidável.
+Now, keep in mind the light streams, the water currents, the immense rivers,
+the formidable ocean.
 
-Pense em cada copo de água fresca que sacia a sede e faça um gesto de gratidão:
-economize água sempre que puder.
+Think of every glass of fresh water that satiates thirst and make a gesture of gratitude:
+save water whenever you can.
 
-Nesses pequenos gestos do cotidiano é que conseguiremos reverter o quadro dos
-dias atuais. Aos poucos, seremos obrigados – pelo próprio instinto de
-sobrevivência – a cuidar mais do mundo em que vivemos.
+In these small gestures of everyday life, we will be able to reverse the picture of
+present days. Gradually, we will be obliged – by the very instinct of
+survival – to take more care of the world in which we live.
 
-E, se o homem firmar esse compromisso consigo mesmo, quem sabe um dia,
-novamente, haverá ar puro, céu azul, água limpa e um lugar adorável para se
-viver.
+And if man commits that commitment to himself, who knows one day,
+again, there will be clean air, blue sky, clean water and a lovely place to
+Live.
 
-Mas não se engane. Tudo isso depende – e muito – de você. Dos gestos de
-responsabilidade ambiental que você tomar, dos exemplos que der, da educação
-que oferecer aos seus filhos.
+But don't be fooled. It all depends - and a lot - on you. From the gestures of
+environmental responsibility you take, of the examples you give, of education
+that offer to their children.
 
-Esse é um tempo de escolhas, de decisões.
+This is a time of choices, decisions.
 
-Pense nisso. E, um dia, quando seus olhos físicos tiverem se fechado neste
-mundo – mesmo que os homens não mais se lembrem que você viveu aqui, sua
-memória estará viva na brisa que agita as folhas, nas correntes de água.
+Think about it. And one day, when your physical eyes have closed in this
+world –-even if men no longer remember that you lived here, your
+memory will be alive in the breeze that shakes the leaves, in the streams of water.
 
-Os perfumes e as cores da Terra lembrarão de você e de seus gestos de amor.
+The perfumes and colors of the Earth will remember you and your gestures of love.
 
                                    *   *   *
 
-Depende de cada um de nós a Terra do amanhã. Tanto moral quanto fisicamente.
+It's up to each of us to the Land of tomorrow. Both morally and physically.
 
-Nós partiremos, em alguns anos. Mas, haveremos de retornar a este mundo, outras
-vezes, em outras épocas, em novos corpos.
+We'll be leaving in a few years. But we will return to this world, others
+times, at other times, in new bodies.
 
-Que desejamos encontrar, em nosso retorno?
+What do we want to find on our return?
 
-Pensemos nisso, agora! 
+Let's think about it now! 
 
 ## Source
 Redação do Momento Espírita.

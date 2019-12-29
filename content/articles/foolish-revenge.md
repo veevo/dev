@@ -16,90 +16,90 @@ topics:
 - mother
 ---
 
-A pena de morte, a princípio, pode ter como finalidade punir juridicamente um
-delito e dissuadir novas transgressões à lei. Dizemos a princípio porque parece
-estar se instalando em alguns países onde existe, uma outra finalidade. A
-vingança.
+The death penalty may at first be intended to legally punish a
+offence and deter further transgressions to the law. We say at first why it seems
+be settling in some countries where there is, another purpose. The
+Revenge.
 
-É que em alguns Estados americanos está se permitindo aos parentes da vítima ou
-vítimas, assistir a execução do criminoso.
+It is that in some American states is allowing the victim's relatives or
+victims, watch the execution of the criminal.
 
-Nos comentários de alguns deles, sente-se o sabor da vingança: Foi suave
-demais.
+In the comments of some of them, you feel the taste of revenge: It was smooth
+Too.
 
-Não somos dos que apregoam que se deve ter para com os criminosos a mesma
-postura que se tem com homens de bem?
+We are not one of those who claim that one must have for criminals the same
+posture you have with good men?
 
-Naturalmente, eles necessitam de terem cerceada sua liberdade. De receber uma
-reeducação. De trabalharem para, de alguma forma, sanar os prejuízos causados
-pelos seus atos criminosos.
+Of course, they need to have curtailed their freedom. To receive a
+Reeducation. To work in some way to remedy the damage caused by
+for their criminal acts.
 
-Assim, por exemplo, seria muito justo que os que ceifassem a vida de um pai ou
-de uma mãe de família, trabalhassem para garantir aos filhos órfãos o
-necessário.
+So, for example, it would be very fair for those who would reap a parent's life or
+of a family mother, worked to ensure orphaned children the
+Necessary.
 
-Quem tirasse a vida de um filho, arrimo dos pais, que os sustentasse de então
-em diante.
+Whoever took the life of a child, i risk their parents, who would support them from then on.
+on.
 
-Quem destruísse o patrimônio público ou doméstico, que devolvesse, não
-importando o número de anos, em forma de indenização, o bem destruído.
+Whoever destroyed the public or domestic heritage, which returned, did not
+importing the number of years, in the form of compensation, the well destroyed.
 
-Isso seria muito justo.
+That would be very fair.
 
-Contudo, presenciar-se alguém morrer por injeção letal ou por qualquer outra
-forma, será válido?
+However, if someone dies by lethal injection or by any other
+form, will it be valid?
 
-Podemos avaliar o quanto de mágoa, dor, vai no coração daqueles que foram
-violentados portas adentro do lar e viram os seus afetos serem mortos, de forma
-cínica e fria.
+We can assess how much hurt, pain, goes into the hearts of those who have been
+raped doors inside the home and saw their affections killed, so
+cynical and cold.
 
-Contudo, de que valerá ver morrer os assassinos? Trará de volta os amores
-assassinados? Sanará a violência perpetrada? Conseguirá apagar o trauma do
-pavor de um sequestro? Com certeza, não.
+However, what will the killers be worth dying? It will bring back the loves
+Murdered? Will you remedy the violence perpetrated? You will be able to erase the trauma of the
+dread of a kidnapping? I'm sure you don't.
 
-Ainda uma vez, enquanto prosseguirmos a clamar por vingança, não se modificará
-o panorama do mundo. É preciso modificar-se pensamentos e ações.
+Once upon a time, as long as we continue to cry out for revenge, it will not change
+the panorama of the world. Thoughts and actions need to be modified.
 
-Rigor na justiça. Mas justiça. Justiça que traduza oportunidade de reeducação.
-De renovação. Ou seremos daqueles que creem que uma vez criminoso, sempre
-criminoso?
+Rigor in justice. But justice. Justice that translates opportunity for reeducation.
+Renewal. Or we will be one of those who believe that once a criminal, always
+Criminal?
 
-Se Deus assim pensasse a nosso respeito, não teríamos as oportunidades
-repetidas da reencarnação, desde que, retornando à carne, em novo corpo,
-repetem-se também as chances da criatura reincidir. Mas Deus sabe que a Lei é
-de progresso.
+If God thought about us like that, we wouldn't have the opportunities
+repeated reincarnation, provided that, returning to the flesh, in a new body,
+the creature's chances of recuring are also repeated. But God knows that the Law is
+progress.
 
-Isso sem se falar que a moral do Cristo prescreve o perdão. Quem mais do que
-Ele, o Divino Mestre, teria motivos para não perdoar? Abandonado pelos amigos,
-traído por um dos Seus, inocente das acusações, recebe a pena máxima.
+That's not to mention that Christ's morals prescribe forgiveness. Who more than
+Would he, the Divine Master, have reason not to forgive? Abandoned by friends,
+betrayed by one of His, not guilty of the charges, receives the maximum sentence.
 
-A mais humilhante delas: a crucificação, pena imposta aos rebeldes, aos
-criminosos considerados inimigos de Roma.
+The most humiliating of them: crucifixion, penalty imposed on the rebels,
+criminals considered enemies of Rome.
 
-Foi esbofeteado, cuspiram-lhe na face, manietaram-nO, despiram-nO e O
-flagelaram. Antes de morto. Humilhado.
+He was slapped, spat on his face, manipulated him, undressed and O
+Plagued. Before he was killed. Humiliated.
 
-E era inocente...
+And he was innocent...
 
-Contudo, nenhuma palavra de vingança. Deixa-se conduzir. Que fazer quando a
-loucura domina?
+However, no word of revenge. Let yourself be driven. What to do when the
+madness dominates?
 
-Mas, antes de entregar ao Pai o Espírito, roga: Pai, perdoa-lhes. Eles não
-sabem o que fazem.
+But before handing the Father the Spirit, pray: Father, forgive them. They don't
+they know what they're doing.
 
-É a exata medida do justo que sabe que somente a ignorância comandando os
-Espíritos gera a sanha violenta e assassina.
+It is the exact measure of the righteous who knows that only ignorance commanding the
+Spirits generates violent and murderous sanha.
 
-Você sabia?
+Did you know that?
 
-... que tratar das vítimas da violência está cada vez mais difícil? Segundo os
-médicos porque as armas são cada vez mais potentes e precisas.
+... what to deal with victims of violence is increasingly difficult? According to the
+doctors because guns are increasingly powerful and accurate.
 
-Não seria muito bom que todos fizéssemos um grande mutirão e, ao invés de
-aperfeiçoarmos armas para matar e mutilar, nos empenhássemos em arquitetar
-planos para debelar a fome, o analfabetismo e a miséria?
+It wouldn't be very good for us all to make a great task force and instead of
+we perfect weapons to kill and mutilate, we strive to architect
+plans to deflate hunger, illiteracy and misery?
 
- 
+
 ## Source
 Redação do Momento Espírita, com base no
 artigo De cara com o inimigo, da revista

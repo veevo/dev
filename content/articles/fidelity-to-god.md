@@ -17,97 +17,97 @@ topics:
 ---
 
 
-O vocábulo fidelidade possui inúmeros significados.
+The faithful word has numerous meanings.
 
-Segundo o dicionário, dentre outras acepções, pode significar lealdade,
-firmeza, exatidão e pontualidade.
+According to the dictionary, among other acepses, it can mean loyalty,
+firmness, accuracy and punctuality.
 
-No âmbito dos relacionamentos amorosos, a palavra fidelidade é frequentemente
-entendida como exclusividade.
+In the context of loving relationships, the word fidelity is often
+understood as exclusivity.
 
-Entende-se que amor fiel é o amor exclusivo.
+It is understood that faithful love is exclusive love.
 
-Entretanto, essa significação não é absoluta.
+However, this meaning is not absolute.
 
-Um fidelíssimo amor entre esposos não exclui o afeto dos filhos, em semelhante
-nível de importância.
+A very faithful love between spouses does not exclude the affection of children, in such a
+level of importance.
 
-Assim, fidelidade não implica sempre exclusividade, pois tudo depende do
-contexto.
+Thus, fidelity does not always imply exclusivity, because it all depends on the
+Context.
 
-Um homem pode ser fiel a suas ideias sem que deva ter  apenas uma linha de
-raciocínio em sua mente.
+A man can be faithful to his ideas without having only one line of
+reasoning in his mind.
 
-É possível ser fiel a um amigo, mas ainda assim possuir incontáveis outros
-amigos.
+It is possible to be faithful to a friend, but still possess countless others
+Friends.
 
-A fidelidade a um ideal não se expressa pela ausência de qualquer outro
-objetivo na vida.
+Fidelity to an ideal is not expressed by the absence of any other
+goal in life.
 
-A fidelidade se manifesta antes de mais nada pela constância.
+Fidelity manifests itself first and foremost by constancy.
 
-Ela implica perseverar na vivência de um ideal, na fruição de um amor, mesmo em
-tempos difíceis.
+It implies persevere in the experience of an ideal, in the enjoyment of a love, even in
+difficult times.
 
-A fidelidade é justamente a virtude que viabiliza a permanência e a fixação de
-todas as outras.
+Fidelity is precisely the virtue that enables the permanence and fixation of
+all the others.
 
-Sem fidelidade a propósitos anteriormente assumidos, eles se sucedem sem parar,
-ao sabor dos acontecimentos.
+Without fidelity to previously assumed purposes, they succeed without stopping,
+to the taste of events.
 
-O real desafio é perseverar na busca das metas eleitas,  ante os desafios do
-mundo.
+The real challenge is to persevere in the pursuit of the chosen goals, in the face of the challenges of the
+World.
 
-É fácil eleger o ideal da vida reta, quando tudo sorri.
+It's easy to elect the ideal of straight life when everything smiles.
 
-Difícil é persistir nele quando se é tentado, quando surgem injustiças e
-crueldades.
+It is difficult to persist in it when one is tempted, when injustices arise and
+Cruelties.
 
-Muitos cristãos reputam que o resultado de sua fé deve ser uma vida material
-tranquila.
+Many Christians repute that the result of their faith must be a material life
+Take it easy.
 
-Acreditam que a função de Deus é lhes assegurar conforto e facilidades, em
-recompensa de suas crenças.
+They believe that God's job is to assure them comfort and facilities, in
+reward of their beliefs.
 
-Entretanto, olvidam-se de que o Cristo recomendou a quem quisesse segui-lO que
-renunciasse a si mesmo e tomasse a própria cruz.
+However, they are looking that Christ recommended to anyone who wanted to follow him that
+resign himself and take his own cross.
 
-Tal não significa a apologia da miséria e do sofrimento.
+This does not mean the apology of misery and suffering.
 
-Mas apenas o reconhecimento de que, em um mundo ainda corrupto, a vivência das
-virtudes cristãs constitui tarefa difícil.
+But only the recognition that, in a world still corrupt, the experience of
+Christian virtues is a difficult task.
 
-É preciso viver honesta e puramente, mesmo que isso signifique abdicar de
-facilidades, companhias e gozos.
+It is necessary to live honestly and purely, even if it means giving up
+facilities, companies and enjoyments.
 
-Ainda por algum tempo, a opção da pureza e da compaixão será difícil e pouco
-compreendida.
+Still for some time, the option of purity and compassion will be difficult and little
+Understood.
 
-Entretanto, urge reconhecer que tudo na vida tem um custo.
+However, it is urgent to recognize that everything in life has a cost.
 
-O desfrutar de paixões consome dinheiro e saúde.
+Enjoying passions consumes money and health.
 
-A ganância e a avareza tiram a paz.
+Greed and avarice take away peace.
 
-Assim, não é de se estranhar que a fidelidade a um ideal de transcendência
-também exija algum sacrifício.
+So it is not surprising that fidelity to an ideal of transcendence
+also require some sacrifice.
 
-A diferença é que a vivência dos valores cristãos propicia uma paz inacessível
-a outras opções de vida.
+The difference is that the experience of Christian values provides an inaccessible peace
+other life options.
 
-Importa, pois, ser fiel a Deus.
+It is therefore important to be faithful to God.
 
-Essa fidelidade é expressa na forma de constância na vivência do ideal do belo
-e do bem.
+This fidelity is expressed in the form of constancy in the experience of the ideal of the beautiful
+and good.
 
-Não esperar facilidades e privilégios, mas persistir sempre, mesmo em face de
-quedas e tentações.
+Do not expect facilities and privileges, but always persist, even in the face of
+falls and temptations.
 
-Afinal, toda facilidade material de que se abdique está mesmo fadada a
-desaparecer no pó.
+After all, all the material facility that is given is really doomed to
+disappear into the dust.
 
-Mas a dignidade espiritual conquistada persistirá para sempre. 
- 
+But the spiritual dignity gained will persist forever. 
+
 
 ## Source
 Redação do Momento Espírita.

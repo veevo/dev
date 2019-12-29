@@ -17,75 +17,75 @@ topics:
 - child
 ---
 
-Toda gente fala da desgraça, toda gente já a sentiu e julga
-conhecer-lhe o caráter múltiplo.
+Everyone talks about the misfortune, everyone has felt it and judges
+know him the multiple character.
 
-No entanto, quase todos nos enganamos. A desgraça real não é,
-absolutamente, o que pensamos, isto é, o que os desgraçados o supõem.
+However, almost all of us are wrong. Real disgrace is not,
+absolutely, what we think, that is, what the wretched suppose so.
 
-Para nós a desgraça está na miséria, no fogão sem lume; no credor que
-ameaça, no berço do qual o anjo sorridente desapareceu; nas lágrimas, no
-féretro que se acompanha de cabeça descoberta e com o coração despedaçado; na
-angústia da traição, na desnudação do orgulho que desejara envolver-se em
-púrpura e mal oculta a sua nudez sob os andrajos da vaidade.
+For us misfortune is in misery, on the stove without fire; in the creditor who
+threat, in the cradle from which the smiling angel disappeared; in tears, in the
+starch that accompanies itself with a head discovered and with a broken heart; In
+anguish of betrayal, in the nakedness of the pride he wished to engage in
+purple and evil conceals his nudity under the andrajos of vanity.
 
-A tudo isso e a muitas coisas se dá o nome de desgraça, na linguagem
-humana.
+To all this and to many things is called doom, in language
+Human.
 
-Sim, é desgraça para os que só vêem o presente. A verdadeira desgraça,
-porém, está na conseqüência de um fato, mais do que no próprio fato.
+Yes, it's a disgrace to those who only see the present. The real disgrace,
+however, it is in the consequence of a fact, more than in the fact itself.
 
-Pensemos, se um acontecimento, considerado ditoso na ocasião, mas que
-acarreta conseqüências funestas, não é, realmente, mais desgraçado do que outro
-que, a princípio, causa viva contrariedade e acaba produzindo o bem.
+Let us think, if an event, considered said at the time, but that
+brings at the falladed consequences, is not really more disgraced than other
+which, at first, causes living setbacks and ends up producing good.
 
-Vejamos se a tempestade que arranca as árvores, mas que saneia o ar,
-dissipando os miasmas insalubres que causariam a morte, não é antes uma
-felicidade do que uma infelicidade.
+Let's see if the storm that rips down the trees, but that sanea the air,
+dispelting the unhealthy miasmas that would cause death, is not rather a
+happiness than an unhappiness.
 
-Para julgarmos de qualquer coisa, precisamos ver-lhe as conseqüências.
-Assim, para bem apreciarmos o que, em realidade, é ditoso ou inditoso para o
-homem, precisamos transportar-nos para além desta vida, porque é lá que as
-conseqüências se fazem sentir.
+To judge anything, we need to see the consequences.
+So, to well appreciate what, in reality, is said or untold to the
+man, we need to transport ourselves beyond this life, because that's where the
+consequences are felt.
 
-Ora, tudo o que se chama infelicidade, segundo as acanhadas vistas
-humanas, cessa com a vida corporal e encontra a sua compensação na vida futura.
+Now, everything called unhappiness, according to the shy views
+human rights, ceases with body life and finds its compensation in future life.
 
-Podemos pensar na infelicidade sob uma nova forma, sob a forma bela e
-florida que acolhemos e desejamos com as nossas almas iludidas.
+We can think of unhappiness in a new form, in the beautiful form and
+florida that we welcome and desire with our deluded souls.
 
-A infelicidade pode estar na alegria, no prazer, no tumulto, na vã
-agitação, na satisfação louca da vaidade, que fazem calar a consciência; que
-comprimem a ação do pensamento; que atordoam o homem com relação ao seu futuro.
+Unhappiness can be in joy, pleasure, in turmoil, in vain
+agitation, in the crazy satisfaction of vanity, which make the conscience silence; That
+compress the action of thought; that stun the man in relation to his future.
 
-A infelicidade é o ópio do esquecimento que ardentemente procuramos
-conseguir.
+Unhappiness is the opium of forgetfulness that we ardently seek
+Get.
 
-Para a criança, a infelicidade está em respeitar os limites e as
-disciplinas propostas pelos pais.
+For the child, unhappiness is in respecting the limits and
+subjects proposed by parents.
 
-Por sua vez os pais, que têm da vida uma visão mais abrangente, estão
-investindo numa felicidade futura para seus entes queridos, ensinando-os a
-viver com dignidade.
+In turn parents, who have a more comprehensive vision of their lives, are
+investing in future happiness for their loved ones, teaching them to
+living with dignity.
 
-Assim também acontece conosco em relação às disciplinas estabelecidas
-pelas leis maiores da vida. Onde só vemos a desgraça, está se processando a
-verdadeira felicidade.
+This also happens to us in relation to the established disciplines
+by the greatest laws of life. Where we only see the misfortune, is suing the
+true happiness.
 
                            *   *   *
 
-Superando com coragem os obstáculos do caminho, estaremos agindo como
-bravos soldados que, longe de fugirem ao perigo, preferem as lutas dos combates
-arriscados à paz que não lhes pode dar glória, nem promoção.
+Overcoming the obstacles of the way with courage, we will be acting as
+brave soldiers who, far from fleeing danger, prefer the struggles of fighting
+peace that cannot give them glory, nor promotion.
 
-Que importa ao soldado perder, na refrega, armas, bagagens e uniforme,
-desde que saia vencedor e com glória?
+What matters to the soldier losing, in the cool, weapons, luggage and uniform,
+since you get out of the winner and with glory?
 
-Que importa ao que tem fé no futuro deixar no campo de batalha da vida
-a riqueza e o manto de carne, contanto que sua alma entre vitoriosa no Reino
-Celeste?
+What matters to what has faith in the future leave on the battlefield of life
+wealth and the mantle of flesh, as long as his soul among victorious in the Kingdom
+Heavenly?
 
-Pensemos nisso!
+Let's think about it!
 
 
 ## Source

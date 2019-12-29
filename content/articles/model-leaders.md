@@ -6,89 +6,89 @@ topics:
 - perseverance
 ---
 
-Toda vez que modelos de líderes, de pessoas extraordinárias são apresentados, é
-comum se ouvir os comentários dos que acreditam que jamais poderão se igualar:
-Ah, mas ele era um santo. Ele era excepcional.
+Whenever models of leaders, of extraordinary people are presented, it is
+common if you hear the comments of those who believe that they can never match:
+Oh, but he was a saint. He was exceptional.
 
-Contudo, quando se pesquisa a biografia desses homens e mulheres que se
-destacaram na Humanidade, nos mais variados ramos, o que descobrimos é que não
-nasceram feitos, prontos.
+However, when researching the biography of these men and women who
+highlighted in humanity, in the most varied branches, what we discover is that we do not
+were born made, ready.
 
-Ao contrário, percorreram um longo caminho, no qual a persistência, a
-perseverança, o esforço pessoal foram companheiros constantes.
+On the contrary, they have come a long way, in which persistence,
+perseverance, personal effort was constant companions.
 
-Recordamos de Gandhi, que é reverenciado como exemplo de liderança da
-não-violência.
+We remember Gandhi, who is revered as an example of leadership of the
+non-violence.
 
-No começo de sua vida, não foi assim. Sua índole e temperamento eram
-diferentes. Quase o oposto do seu comportamento de Mahatma.
+At the beginning of his life, it wasn't like that. His nature and temperament were
+Different. Almost the opposite of his Mahatma behavior.
 
-Antes de ir para a África do Sul, era de natureza violenta, egoísta, ambicioso
-e cruel.
+Before going to South Africa, it was violent, selfish, ambitious
+and cruel.
 
-Como advogado, vaidoso e inseguro, usava terno europeu, camisa branca de
-colarinho engomado, gravata de seda, sapatos de alta qualidade, lustrosamente
-polidos.
+As a lawyer, vain and insecure, he wore a European suit, a white shirt of
+starched collar, silk tie, high quality shoes, glossyly
+Polished.
 
-Na África do Sul, morava em uma bela vila inglesa, em área aristocrática da
-praia.
+In South Africa, he lived in a beautiful English village, in an aristocratic area of the
+Beach.
 
-Amava o dinheiro. Era um autêntico indiano europeizado.
+I loved the money. He was an authentic Europeanized Indian.
 
-Depois da leitura de um livro de Ruskin, sua visão de mundo se transformou.
+After reading a book by Ruskin, his worldview became.
 
-Como ele mesmo afirmou: Aquele livro assinalou o ponto decisivo da minha vida.
+As he himself stated: That book marked the turning point of my life.
 
-Mas não foi com facilidade que adquiriu sua posterior calma e serenidade. Nem
-sem terrível autodisciplina.
+But it was not with ease that he acquired his subsequent calm and serenity. Not
+without terrible self-discipline.
 
-Ele realizou um esforço consciente para se modificar. Começou a realizar
-serviços assistenciais, varrer locais públicos, limpar latrinas.
+He made a conscious effort to change. It began to perform
+services, sweep public places, clean latrines.
 
-Transformou-se em um homem de natureza totalmente diversa. E então, nasceu o
-novo homem, o Mahatma Gandhi.
+He became a man of totally diverse nature. And then the
+new man, mahatma gandhi.
 
-Diferente não foi com Saulo de Tarso. Orgulhoso, preparava-se na escola de
-Gamaliel, em Jerusalém, para substituir o mestre.
+Different was not with Saul of Tarsus. Proud, he prepared himself in the school of
+Gamaliel in Jerusalem to replace the master.
 
-Conhecido pela sua oratória, estava habituado a receber o aplauso do mundo.
+Known for his oratory, he was used to receiving the applause of the world.
 
-Trajava a túnica do patriciado, utilizava um carro semelhante às bigas romanas,
-puxado por soberbos cavalos brancos.
+He betrayed the patrician's robe, used a car similar to Roman chariots,
+pulled by superb white horses.
 
-Dominava o idioma grego, além da língua hebraica.
+He dominated the Greek language, in addition to the Hebrew language.
 
-Algo semelhante a atualmente vestir-se com um autêntico Giorgio Armani, andar
-num BMW e expressar-se, com propriedade, no idioma inglês.
+Something similar to currently dressing up with an authentic Giorgio Armani, walking
+bmw and express yourself, with ownership, in the English language.
 
-Temperamento apaixonado e indomável, rico de agudeza e resolução, aspirava um
-futuro brilhante para si mesmo.
+Passionate and indomable temperament, rich in sharpness and resolution, aspired to a
+bright future for himself.
 
-Defensor ferrenho da lei mosaica, perseguiu os seguidores do Cristo,
-estabelecendo o terror.
+A staunch supporter of mosaic law, pursued the followers of Christ,
+establishing terror.
 
-Após o seu encontro com Jesus, às portas de Damasco, modificou-se.
+After his encounter with Jesus, at the gates of Damascus, he changed.
 
-O tribuno transformou-se em escravo do dever, em apóstolo do amor, em defensor
-da verdade.
+The tribune became a slave of duty, an apostle of love, into a defender
+of truth.
 
-Nada lhe foi fácil. Foram três anos no deserto de Dan, onde precisou exercitar
-o anonimato, a humildade, até se reconciliar com seus perseguidos.
+Nothing was easy for him. It was three years in dan's desert, where he had to exercise
+anonymity, humility, until he reconciled with his persecuted.
 
-Depois, foi o aprendizado em Antioquia, o serviço anônimo ao semelhante, o
-ouvir, estudar, refletir.
+Then it was the learning in Antioch, the service anonymous to the similar, the
+listen, study, reflect.
 
-O retorno à tribuna, agora sem pompa e sem orgulho, para a defesa da Boa Nova,
-teve que ser pacientemente aguardado.
+The return to the tribune, now without pomp and without pride, for the defense of the Good News,
+had to be patiently awaited.
 
-Só então surge o grande Paulo de Tarso que, de tal forma viveu os ensinos de
-Jesus que pôde afirmar: Já não sou eu quem vive, é o Cristo que vive em mim.
+Only then does the great Paul of Tarsus come, who in such a way lived the teachings of
+Jesus who could say: I am no longer the one who lives, it is the Christ who lives in me.
 
-Esforço, perseverança, vontade.
+Effort, perseverance, will.
 
-Aprendamos com essas criaturas. Elas conseguiram. Também nós conseguiremos.
+Let us learn from these creatures. They did it. We'll make it too.
 
- 
+
 ## Source
 Redação do Momento Espírita, com base na introdução do livro
 O pensamento vivo de Gandhi, coordenação editorial da editora

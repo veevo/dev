@@ -15,72 +15,72 @@ topics:
 O uso de drogas é um problema de grandes dimensões em todo o mundo. Atinge
 jovens e adultos, destruindo vidas e desestabilizando famílias e a sociedade.
 
-O termo droga é popularmente limitado às drogas ilícitas, mas não podemos
-esquecer de que o álcool e o cigarro, apesar de vendidos livremente, na maior
-parte dos países, causam vício de difícil reversão.
+The term drug is popularly limited to illicit drugs, but we cannot
+forget that alcohol and cigarettes, although sold freely, in the greatest
+countries cause hard-to-reverse addiction.
 
-O assunto hoje ganha visibilidade devido ao grande contingente de usuários e ao
-grave problema da violência que acompanha o comércio ilícito.
+The subject today gains visibility due to the large number of users and the
+serious problem of violence accompanying illicit trade.
 
-É muito comum o discurso de que o usuário de qualquer droga é uma vítima, cuja
-vontade foi totalmente destruída pela necessidade da substância química.
+It is very common to speak that the user of any drug is a victim, whose
+will was totally destroyed by the need for the chemical.
 
-Ora, esta afirmação compara o ser humano a um animal desprovido de raciocínio,
-de vontade e de autocontrole.
+This statement compares the human being to an animal devoid of reasoning,
+will and self-control.
 
-Não esqueçamos de que, antes de ser viciado, o indivíduo decidiu experimentar.
-Depois decidiu repetir a experiência por ter gostado das sensações, do prazer
-e, nesse momento, fez uma opção consciente.
+Let's not forget that before he was addicted, the individual decided to experiment.
+Then he decided to repeat the experience by liking the sensations, pleasure
+and at that moment he made a conscious option.
 
-Habitualmente o vício principia em idade jovem. Quase sempre, na qualidade de
-pais, costumamos negar a realidade, talvez por comodismo, talvez por medo das
-atitudes a tomar para coibir a continuidade do problema.
+Usually vice principle in young age. Almost always, as a
+parents, we usually deny reality, perhaps by comodism, perhaps out of fear of the
+attitudes to be taken to curb the continuity of the problem.
 
-Com o tempo, quando grandes somas de dinheiro são consumidas, ou quando ocorre
-violência doméstica, é comum venhamos a nos sentir vítimas.
+Over time, when large sums of money are consumed, or when it occurs
+domestic violence, it is common for us to feel victims.
 
-Muitos nos perguntamos a razão da queda de nossos filhos e não descobrimos a
-causa no seio familiar.
+Many wonder ed why our children fall and did not discover the
+cause in the family bos.
 
-No entanto, uma análise profunda do comportamento dos familiares pode revelar
-causas raramente admitidas.
+However, an in-depth analysis of family members' behavior may reveal
+rarely admitted causes.
 
-Como nos comportamos perante as leis? Será que respeitamos, sem exceções, as
-leis do nosso país ou será que desrespeitamos algumas delas com frequência,
-convivendo naturalmente com ilicitudes?
+How do we behave before the law? Do we respect, without exception, the
+laws of our country or do we often disrespect some of them,
+living naturally with illicitudes?
 
-Como nos comportamos perante a violência? Somos coniventes com pequenos atos de
-violência física ou verbal que ocorrem no ambiente familiar, ou de convívio
+How do we behave in the face of violence? We are conniving with small acts of
+physical or verbal violence that occur in the family environment, or of
 social?
 
-Como nos comportamos diante de vícios morais como a inveja, a ambição, a
-corrupção? Tentamos livrar-nos de tais hábitos ou entregamo-nos a eles sem
-lutar por melhora?
+How do we behave in the face of moral vices such as envy, ambition,
+Corruption? We try to get rid of such habits or give ourselves to them without
+fight for improvement?
 
-Como nos comportamos diante de vícios aceitáveis socialmente como o tabagismo e
-o uso de álcool?
+How do we behave in the face of socially acceptable vices such as smoking and
+alcohol use?
 
-Filhos que nos veem fazer uso de álcool ou de cigarro, com a maior
-naturalidade, não vislumbram problema algum em usá-los, mesmo antes da
-maioridade, encarando a dependência química como algo normal.
+Children who see us use alcohol or cigarettes, with the highest
+naturalness, do not envision any problem in using them, even before the
+of course, facing chemical dependence as something normal.
 
-Como nos comportamos perante o crescente movimento de legalização do uso de
-drogas? Concordamos, somos indiferentes ou engajamo-nos em movimentos pacíficos
-e organizados na direção contrária?
+How do we behave in the face of the growing movement of legalization of the use of
+Drugs? We agree, we are indifferent or engage in peaceful movements
+and organized in the opposite direction?
 
-Ter filhos é uma verdadeira missão. Poucos de nós, ao decidir abraçar a tarefa,
-deixamos de lado hábitos errados ou abandonamos o egoísmo de nossos prazeres.
+Having children is a real mission. Few of us, when deciding to embrace the task,
+we put aside wrong habits or abandon the selfishness of our pleasures.
 
-Qualquer atitude nossa é percebida pela criança desde os primeiros anos de
-vida, quando a personalidade do indivíduo se forma e quando as más tendências
-podem ser corrigidas. Os filhos tendem a agir como seus pais.
+Any attitude of ours is perceived by the child since the early years of
+life, when the personality of the individual forms and when bad trends
+can be corrected. Children tend to act like their parents.
 
-Se esperamos que nossos filhos sejam indivíduos corretos, dignos e
-respeitadores das leis, sem vícios morais ou físicos, devemos primar por ser
-exatamente assim.
+If we expect our children to be correct, worthy and
+respecting the laws, without moral or physical vices, we must excel in being
+just like that.
 
-Reflitamos, portanto: se abraçamos ou desejamos abraçar a tarefa de educar um
-filho, será que não há nada a mudar, para melhor, em nossas atitudes?
+Let us reflect, therefore: whether we embrace or wish to embrace the task of educating a
+son, is there nothing to change, for the better, in our attitudes?
 
 ## Source
 Redação do Momento Espírita.

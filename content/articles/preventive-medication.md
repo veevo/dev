@@ -18,69 +18,69 @@ topics:
 ---
 
 
-A moda, em matéria de saúde, é se falar em medicina preventiva. As pessoas
-programam seus check-ups anuais, se submetem a baterias de exames e buscam uma
-alimentação balanceada.
+Fashion, in the field of health, is to talk about preventive medicine. People
+schedule their annual check-ups, undergo test batteries and seek a
+balanced feed.
 
-Exercícios físicos, repouso, férias e lazer complementam o quadro.
+Physical exercises, rest, vacation and leisure complement the picture.
 
-Contudo, mesmo cuidando do corpo o homem prossegue doente. Isto porque está
-cuidando da roupagem, da casca, e tem se esquecido da parte que dá saúde e
-disposição ao corpo: a alma.
+However, even taking care of the body the man goes on sick. This is because it is
+taking care of the clothes, the bark, and has forgotten the part that gives health and
+disposition to the body: the soul.
 
-Por isso, vamos dividir com você algumas anotações que achamos muito
-interessantes. Elas dizem o seguinte:
+So let's share with you some notes that we find very
+Interesting. They say this:
 
-Sintomas: taquicardia, vertigens, insônia, tremores pelo corpo todo.
+Symptoms: tachycardia, vertigo, insomnia, tremors all over the body.
 
-Causas: rancor profundo, intolerância para com as atitudes alheias e
-dificuldade de relacionamento com as pessoas.
+Causes: deep grudge, intolerance towards other people's attitudes and
+difficulty in relationship with people.
 
-Conseqüências: grande desarranjo emocional, sistema nervoso abalado, rugas
-precoces. Se não medicado a tempo, pode levar o indivíduo à loucura. A pessoa
-se torna insuportável, juiz de todas as atitudes alheias e insaciável,
-provocando muito sofrimento aos que com ela convivem.
+Consequences: great emotional disarray, shaken nervous system, wrinkles
+Early. If not medicated in time, it can drive the individual crazy. The person
+becomes unbearable, judge of all other and insatiable attitudes,
+causing a lot of suffering to those who live with it.
 
-Medicamento indicado: perdão, que tem como composição química tolerância,
-compreensão, renúncia, paciência e sensibilidade.
+Medicine indicated: forgiveness, which has as chemical composition tolerance,
+understanding, renunciation, patience and sensitivity.
 
-Apresentação do medicamento: está em estado latente no íntimo de todo ser
-humano, e pode ser buscado através do raciocínio lógico de quem não gosta de
-sofrer.
+Presentation of the medicine: is in a latent state in the heart of all being
+human, and can be sought through the logical reasoning of those who do not like
+Suffer.
 
-O medicamento deve ser tomado de minuto a minuto. Logo provoca tranqüilidade
-física e mental, proporcionando um bem estar geral.
+The medicine should be taken from minute to minute. Soon causes tranquility
+physical and mental well-being, providing general well-being.
 
-Como todo medicamento tem contra indicações. No caso, não é indicado para
-pacientes que gostam de sofrer e sentem prazer em carregar um pesado fardo nas
-costas, chamado rancor.
+As every medicine has against indications. In this case, it is not indicated for
+patients who like to suffer and feel pleasure in carrying a heavy burden on the
+back, called grudge.
 
-Como terapia complementar se recomenda, nas crises agudas, respirar
-profundamente durante alguns minutos e procurar a natureza para meditação.
+As complementary therapy, it is recommended, in acute crises, breathing
+deeply for a few minutes and seek nature for meditation.
 
-Buscar, através da prece, a ajuda divina.
+Seek divine help through prayer.
 
-Importante usar o medicamento para si próprio. Se tentar curar somente as
-outras pessoas, o doente continuará doente.
+It is important to use the medicine for yourself. If you try to cure only the
+other people, the patient will remain ill.
 
-Precaução especial: o medicamento deve ser deixado ao alcance das crianças.
+Special precaution: the medicine should be left within the reach of children.
 
                                       ***
 
-A pedra bruta perdoa as mãos que a ferem, transformando-se em peça de arte
-valiosa.
+The raw stone forgives the hands that hurt it, turning into a piece of art
+Valuable.
 
-O grão de trigo esmagado perdoa o agricultor que o atira ao solo,
-multiplicando-se em muitos grãos que enriquecem a mesa.
+The crushed wheat grain forgives the farmer who throws him to the ground,
+multiplying in many grains that enrich the table.
 
-O ferro se deixa dobrar sob altas temperaturas e perdoa os que o modelam,
-construindo segurança e conforto.
+Iron is allowed to bend at high temperatures and forgives those who model it,
+building safety and comfort.
 
-Perdoar é impositivo para cada hora e todo instante.
+Forgiving is imposing for every hour and every moment.
 
-Para todos os que nos ferem e magoam, usemos o perdão como medicamento valioso,
-lembrando que o perdão é sempre mais útil a quem o concede.
- 
+For all who hurt and hurt us, let us use forgiveness as a valuable medicine,
+remembering that forgiveness is always more useful to those who grant it.
+
 
 
 ## Source

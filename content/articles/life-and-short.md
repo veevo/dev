@@ -10,74 +10,74 @@ topics:
 - family
 ---
 
-Um simples adesivo, fixado num vidro de carro, revela uma filosofia de vida
-muito perigosa.
+A simple sticker, fixed in a car glass, reveals a philosophy of life
+very dangerous.
 
-Diz assim: A vida é curta. Quebre algumas regras.
+It says like this: Life is short. Break some rules.
 
-Precisamos analisar essa cultura do Aproveite a vida, pois ela é curta, com
-bastante cuidado.
+We need to analyze this culture of Enjoy life, because it is short, with
+pretty careful.
 
-Percebemos que esse tipo de entendimento circula pelo mundo fazendo muitos
-adeptos que, por vezes, caem em armadilhas terríveis, sem perceber.
+We realize that this kind of understanding circulates around the world by doing many
+fans who sometimes fall into terrible traps without realizing it.
 
-Parece haver em muitas pessoas uma aversão a regras, a leis, mesmo quando essas
-servem apenas para regular a vida em sociedade. Por isso, tão necessárias.
+There seems to be in many people an aversion to rules, to laws, even when these
+serve only to regulate life in society. So much needed.
 
-É a repulsa à responsabilidade que ainda encontra forças em tantas mentes que
-teimam em não crescer.
+It is the revulsion to responsibility that still finds strength in so many minds that
+insist on not growing.
 
-Quebrar regras simplesmente por diversão ou por achar que a vida está muito
-certinha – como se fala – é atitude infantil, imatura e perigosa.
+Breaking rules simply for fun or thinking life is too much
+- as we speak – is childish, immature and dangerous attitude.
 
-Basta, por exemplo, uma única vez, extrapolar na velocidade na condução de um
-automóvel para se comprometer uma vida toda.
+All it takes is, for example, once, to extrapolate at speed when driving a
+to commit a lifetime.
 
-Uma brincadeira, um simples pega, pelas vias de uma cidade, para se colocar em
-risco um grande número de vidas, inclusive a própria.
+A joke, a simple catch, through the roads of a city, to put itself in
+a large number of lives, including their own.
 
-Assim, não é um tipo de regra que pode ser quebrada de quando em vez.
+So it's not a kind of rule that can be broken from time to time.
 
-Por que quebrar regras para se aproveitar a vida? Quem disse que para se curtir
-cada momento da existência com alegria, precisamos infringir leis?
+Why break rules to enjoy life? Who said to make out
+every moment of existence with joy, do we need to break laws?
 
-Aproveitar a vida não significa fazer o que se quer, quando e onde se queira.
-Esta é a visão materialista, pobre e imediatista do existir.
+Enjoying life doesn't mean doing what you want, when and wherever you want.
+This is the materialistic, poor and immediate view of existing.
 
-Aproveitar a vida consiste em fazer o que se deve fazer, determinado pela
-consciência do ser espiritual, que sabe que está no mundo por uma razão muito
-especial.
+Enjoying life is to do what should be done, determined by the
+consciousness of the spiritual being, who knows that he is in the world for a very reason
+Special.
 
-O ser maduro, consciente, encontra no caminho do bem, da família, do amor, sua
-curtição, sem precisar sair por aí quebrando regras e infringindo leis.
+The mature, conscious being finds in the way of good, family, love, his
+enjoy, without having to go around breaking rules and breaking laws.
 
                                    *   *   *
 
-A vida é curta ou longa. A escolha está em quem vive.
+Life is short or long. The choice is in the living.
 
-Ela é curta para os que desperdiçam tempo na ociosidade. Longa para os que se
-dedicam a uma causa nobre.
+She's short for those who waste time on idleness. Long for those who
+dedicate themselves to a noble cause.
 
-A vida é curta para os que acompanham os filhos crescerem de longe. Longa para
-os que aproveitam cada instante, cada beijo de bom dia, cada beijo de boa
-noite.
+Life is short for those who accompany their children to grow from afar. Long for
+those who enjoy every instant, every good morning kiss, every good kiss
+Night.
 
-A vida é curta para os que acham que os vícios não fazem mal. Longa para os que
-desenvolvem hábitos sadios para seus dias.
+Life is short for those who think addictions don't hurt. Long for those who
+develop healthy habits for their days.
 
-A vida é curta para os que acham que a vida é uma só. Longa para os que já
-descobriram que o Espírito é imortal, já existia antes desta vida e continuará
-existindo depois.
+Life is short for those who think life is one. Long for those who have already
+discovered that the Spirit is immortal, existed before this life and will continue to
+existing later.
 
-A vida é curta para quem não perdoa. A mágoa mata mais cedo. É longa para os
-que buscam a reconciliação, evitando a vingança destruidora.
+Life is short for those who don't forgive. The hurt kills earlier. It is long for
+who seek reconciliation, avoiding destructive revenge.
 
-A vida é curta para quem não sorri. A depressão mata mais cedo. É longa para
-quem cultiva o bom humor perante as situações difíceis da existência.
+Life is short for those who don't smile. Depression kills early. It's long for
+who cultivates good humor in the face of the difficult situations of existence.
 
-A vida é curta para os vilões. Longa para os heróis.
+Life is short for villains. Long for heroes.
 
-A vida pode ser curta ou longa. Cabe a você escolher.
+Life can be short or long. It's up to you to choose.
 
 ## Source
 Redação do Momento Espírita.

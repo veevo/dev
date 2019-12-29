@@ -13,80 +13,80 @@ topics:
 ---
  
 
-Você já ouviu falar em reforma íntima? Quase sempre, o termo desperta nas
-pessoas a ideia de que tudo em si está errado e necessita ser reformulado.
+Have you ever heard of intimate reform? Almost always, the term awakens in the
+people the idea that everything in itself is wrong and needs to be reworked.
 
-Ou, por outra forma, de que é portador somente de coisas negativas, ruins, que
-devem ser modificadas.
+Or, otherwise, that it carries only negative, bad things, that
+should be modified.
 
-O termo reforma quer dizer retificação, mudança. Mas, também, melhoria,
-aprimoramento, dar melhor forma a alguma coisa.
+The term reform means rectification, change. But also, improvement,
+improvement, give better shape to something.
 
-Vejamos, quando dizemos que vamos fazer uma reforma em nossa casa, isto não
-significa que ela está ruim. Pode simplesmente querer dizer que desejamos
-melhorá-la, ampliá-la, torná-la mais confortável.
+Let's see, when we say we're going to do a makeover in our house, not this
+means she's bad. You might simply want to say that we want
+improve it, enlarge it, make it more comfortable.
 
-Assim, a reforma pode compreender uma repintura externa, porque a atual está
-começando a descascar ou se encontra desbotada, pelo longo tempo de exposição
-às intempéries.
+Thus, the reform can understand an external repainting, because the current one is
+starting to peel or is faded, for the long exposure time
+to the weather.
 
-Durante uma inspeção para reforma, poderemos descobrir que precisamos
-substituir o assoalho de um cômodo, uma parede, um pedaço do teto.
+During a reform inspection, we can find that we need to
+replace the floor of a room, a wall, a piece of the ceiling.
 
-Quem sabe, substituir algumas telhas quebradas, calhas.
+Who knows, replace some broken tiles, gutters.
 
-Com certeza, haveremos de encontrar na casa que nos dispomos a reformar, um
-cômodo quase ideal, que, ao menos por ora, não demanda nenhum retoque.
+Of course, we will find in the house that we have to retire, a
+almost ideal room, which, at least for now, requires no retouching.
 
-É um lugar aconchegante, com boa iluminação, móveis bem dispostos, pintura
-excelente. Enfim, ali tudo está bem e não necessitará ser tocado, como
-dissemos, não agora.
+It is a cozy place, with good lighting, well-arranged furniture, painting
+Excellent. Anyway, everything's fine there and it won't need to be touched, as
+we said, not now.
 
-Pois assim também é quando se fala em reforma íntima. Analisando as nossas
-disposições individuais, a nossa forma de ser, de pensar e agir, vamos
-descobrir que temos defeitos, sim. Entretanto, também virtudes.
+Because that's also when you talk about intimate reform. Analyzing our
+individual provisions, our way of being, of thinking and acting, we will
+find out we have flaws, yes. However, also virtues.
 
-Os defeitos são aqueles que devemos nos esmerar para nos libertarmos.
-Naturalmente, a pouco e pouco.
+The defects are those we must strive to free ourselves.
+Naturally, little by little.
 
-Exatamente como a reforma de qualquer casa, quer seja por condições
-financeiras, quer seja por condições técnicas, não se faz de um dia para o
-outro.
+Just like the renovation of any house, whether by conditions
+financial conditions, whether by technical conditions, is not a day before the
+Other.
 
-Tempo, esforço, atenção é o que é exigido para irmos nos liberando de defeitos
-pequenos e grandes.
+Time, effort, attention is what is required to free ourselves from defects
+small and large.
 
-É o ciúme que teima em aparecer, a impaciência que nos faz explodir por quase
-nada, o egoísmo falando mais alto.
+It is jealousy that fears appearing, the impatience that makes us explode by almost
+nothing, the speaking selfishness louder.
 
-Como toda reforma tem a ver com uma certa desarrumação, sujeira de caliça,
-madeira e pó, quando iniciamos a reforma íntima, por vezes vamos nos sentir
-como se tudo estivesse muito mal.
+As every makeover has to do with a certain mess, bald dirt,
+wood and dust, when we start intimate reform, sometimes we will feel
+as if everything was very bad.
 
-Parecer-nos-á que só temos defeitos e não os iremos superar nunca.
+It will seem to us that we only have flaws and we will never overcome them.
 
-Paciência conosco! A natureza não dá saltos e vícios de muitos anos
-necessitarão de tempo para serem debelados.
+Patience with us! Nature does not give leaps and vices of many years
+will need time to be debrated.
 
-Um dia, com a reforma completada, tudo estará arrumado, bem disposto, no lugar
-correto.
+One day, with the reform completed, everything will be tidy, well disposed, in place
+Correct.
 
-E, é claro, nossa alma enfeitada com as flores viçosas, os vasos delicados das
-virtudes conquistadas.
+And, of course, our soul adorned with the lush flowers, the delicate vases of the
+virtues conquered.
 
                                    *   *   *
 
-Jesus, o Mestre, no intuito de incentivar as criaturas à própria melhoria
-lecionou que quem estivesse no telhado, não descesse para o interior da casa;
-que quem estivesse no campo, não retornasse para a cidade.
+Jesus the Master, in order to encourage creatures to their own improvement
+taught that whoever was on the roof did not descend into the interior of the house;
+that whoever was in the country did not return to the city.
 
-O convite é para que, vencidas as etapas, as pequenas deficiências, abolidos
-alguns erros, não nos permitamos cometê-los outra vez.
+The invitation is for, after the stages, the small shortcomings, abolished
+some mistakes, let us not be allowed to commit them again.
 
-Nunca nos permitamos o só hoje, pois assim a reforma íntima demorará muito,
-muito mais.
+Let us never allow ourselves to be alone today, because this will take long,
+much more.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, a partir de seminário a respeito de

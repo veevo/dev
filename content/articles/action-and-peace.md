@@ -18,85 +18,85 @@ topics:
 ---
 
 
-Ação de paz
+Peace action
 
-A paz é um dos tesouros mais desejados nos dias atuais. Muito se tem investido
-para se conseguir um pouco desse bem tão precioso.
+Peace is one of the most desired treasures today. Much has been invested
+to get some of that precious good.
 
-Mas, será que nós, individualmente, temos feito investimentos efetivos visando
-tal conquista?
+But, have we individually made effective investments to
+such an achievement?
 
-O que geralmente ocorre é que temos investido nossos esforços na direção
-contrária, e de maneira imprópria.
+What usually happens is that we have invested our efforts in the direction
+contrary, and improperly.
 
-É muito comum se desejar a paz e buscá-la por caminhos tortos, que acabam nos
-distanciando dela ainda mais.
+It is very common if you wish for peace and seek it for crooked paths, which end up in the
+distancing her further.
 
-O Espírito Emmanuel, através da mediunidade de Chico Xavier, escreveu, certa
-feita, uma mensagem que intitulou Ação de paz:
+The Emmanuel Spirit, through the mediumship of Chico Xavier, wrote, certain
+a message that entitled Peace Action:
 
-Aflição condensada é semelhante à bomba de estopim curto, pronta a explodir a
-qualquer contato esfogueante.
+Condensed distress is similar to short fuse bomb, ready to explode the
+any sbumling contact.
 
-Indispensável saber preservar a tranquilidade própria, de modo a sermos úteis
-na extinção dessa ou daquela dificuldade.
+Indispensable to know how to preserve its own tranquility, so that we are useful
+in the extinction of this or that difficulty.
 
-Decerto que, para cooperar no estabelecimento da paz, não nos seria lícito
-interpretar a calma por inércia.
+I am sure that in order to cooperate in the establishment of peace, we would not be lawful
+interpret calm by inertia.
 
-Paciência é a compreensão que age sem barulho, em apoio da segurança geral.
+Patience is understanding that acts without noise, in support of general security.
 
-Refletindo com acerto, recebe a hora de crise sem qualquer ideia de violência,
-porque a violência sempre induz ao estrangulamento da oportunidade de auxiliar.
+Reflecting with the right, it receives the time of crisis without any idea of violence,
+because violence always induces the strangulation of the opportunity to assist.
 
-Diante de qualquer informação desastrosa, busca revestir-te com a serenidade
-possível para que não te transformes num problema, pesando no problema que a
-vida te pede resolver.
+Faced with any disastrous information, seekto coat you with serenity
+possible so that you do not become a problem, weighing on the problem that the
+life asks you to solve.
 
-Não afogues o pensamento nas nuvens do pessimismo, mentalizando ocorrências
-infelizes que, provavelmente, jamais aparecerão.
+Do not drown thought in the clouds of pessimism, mentalizing occurrences
+unfortunate that they will probably never show up.
 
-Evita julgar pessoas e situações em sentido negativo para que o arrependimento
-não te corroa as forças do Espírito.
+Avoids judging people and situations in a negative sense so that repentance
+do not erode your spirit's forces.
 
-Se te encontras diante de um caso de agressão, não respondas com outra
-agressão, a fim de que a intemperança mental não te precipite na vala da
-delinquência.
+If you find yourself facing an assault case, don't answer with another
+aggression, so that mental intemperance does not precipitate you in the ditch of
+Delinquency.
 
-Pacifica a própria sensibilidade, para que a razão te oriente os impulsos.
+It pacifies one's own sensitivity, so that reason guides you to impulses.
 
-Se conservas o hábito de orar, recorre à prece nos instantes difíceis, mas se
-não possuis essa bênção, medita suficientemente antes de falar ou de agir.
+If you preserve the habit of praying, you use prayer in difficult moments, but if you
+you do not have this blessing, meditate sufficiently before speaking or acting.
 
-Os impactos emocionais, em qualquer parte, surgem na estrada de todos; guarda,
-por isso, a fé em Deus e em ti mesmo, de maneira a que não te afastes da paz
-interior, a fim de que nas horas sombrias da existência possa a tua paz
-converter-se em abençoada luz.
+The emotional impacts, anywhere, arise on everyone's road; Guard
+therefore faith in God and in yourself, so that you do not depart from peace
+interior, so that in the dark hours of existence may your peace
+become blessed light.
 
-As palavras lúcidas de Emmanuel nos sugerem profundas reflexões em torno da
-nossa ação diária.
+Emmanuel's lucid words suggest profound reflections around the
+our daily action.
 
-Importante que, na busca pela paz, não venhamos a ser causadores de desordem e
-violência.
+It is important that, in the search for peace, we will not be causeful disorder and
+Violence.
 
-Criando um ambiente de paz na própria intimidade, poderemos colaborar numa ação
-efetiva para que a paz reine em nosso lar, primeiramente, e, depois possa se
-estender mundo afora.
+By creating an environment of peace in one's own intimacy, we can collaborate in an action
+peace reigns in our home first, and then can be
+extend the world out.
 
-Se uma pessoa estiver permanentemente em ação de paz, o mundo à sua volta se
-beneficiará com essa atitude.
+If a person is permanently in peace, the world around him
+benefit from this attitude.
 
-E se a paz mundial ainda não é realidade em nosso planeta, façamos paz em nosso
-mundo íntimo. Essa atitude só depende de uma única decisão: a nossa.
+And if world peace is not yet a reality on our planet, let us make peace in our
+intimate world. This attitude depends only on a single decision: ours.
 
                                   *   *    *
 
-A nossa paz interior é capaz de neutralizar o ódio de muitas criaturas.
+Our inner peace is capable of neutralizing the hatred of many creatures.
 
-Se mantivermos acesa a chama da paz em nossa intimidade, então podemos
-acreditar que a paz mundial está bem próxima.
+If we keep the flame of peace in our intimacy on the lights, then we can
+believe that world peace is very close.
 
-Porque, na verdade, a paz do mundo começa no íntimo de cada um de nós.
+Because, in fact, the peace of the world begins in the depths of each of us.
 
 ## Source
 Redação do Momento Espírita, com base em

@@ -7,80 +7,80 @@ topics:
 - faithlicidade
 ---
 
-Alguns de nós cremos em Deus, por simples atavismo religioso. Assim nos
-ensinaram nossos pais. Deus existe e tudo criou.
+Some of us believe in God, by simple religious atavism. So in the
+taught our parents. God exists and everything created.
 
-Outros cremos porque a razão nos diz que não pode haver tanta harmonia, beleza
-e sincronia em todo o universo, sem algo ou alguém que a tudo presida.
+Others believe because reason tells us that there can be not so much harmony, beauty
+and syncs throughout the universe, without something or someone who presides over it all.
 
-O professor Cressie Morrisson afirma que ele crê em Deus por vários motivos. Um
-deles é o equilíbrio que existe no ecossistema.
+Professor Cressie Morrisson states that he believes in God for various reasons. A
+balance in the ecosystem.
 
-Diz ele: Sabemos que os insetos respiram através de tubos. Na medida em que os
-insetos crescem, os tubos não crescem, o que faz com que eles morram, por falta
-de ar.
+He says: We know that insects breathe through tubes. To the extent that
+insects grow, the tubes do not grow, which causes them to die, for lack
+air.
 
-Assim acontece com a cigarra. Ela não morre de cantar, mesmo porque o barulho
-que identificamos como seu canto, se trata do ruído que ela produz atritando as
-patas. Quando ela cresce, os tubos não lhe dão o ar necessário e ela morre.
+So it happens with the cicada. She doesn't die of singing, even because the noise
+that we identify as her singing, it is about the noise it produces attire the
+Paws. When she grows up, the tubes don't give her the necessary air and she dies.
 
-Se os insetos crescessem e, com eles, crescessem os tubos, poderíamos ter
-formigas do tamanho de elefantes e pulgas com corpos de rinocerontes, tornando
-impossível a vida, na face da Terra.
+If the insects grew and, with them, the tubes grew, we could have
+elephant-sized ants and fleas with bodies of rhinos, making
+impossible life, on the face of the earth.
 
-E, continua o professor, alguém pensou em elaborada lei para manter o
-equilíbrio na natureza. Uma lei que funcionou bem na Austrália, há alguns anos.
+And, continues the teacher, someone thought of elaborate law to keep the
+balance in nature. A law that worked well in Australia a few years ago.
 
-Naquele país, os ventos impediam a agricultura e teve-se a ideia de criar
-sebes, para proteger a semeadura nascente. Assim, passaram a cultivar uma
-espécie de cacto.
+In that country, the winds prevented agriculture and the idea of creating
+hedges, to protect the nascent sowing. Thus, they began to cultivate a
+kind of cactus.
 
-Logo, por não terem inimigo natural, eles ocupavam uma área maior do que o
-território do império britânico.
+Therefore, because they had no natural enemy, they occupied an area larger than the
+territory of the British Empire.
 
-Usaram todos os métodos possíveis e nada acabava com os cactos, que continuavam
-a proliferar, sem medida. Os ventos carregavam o pólen.
+They used all possible methods and nothing ended with the cacti, which continued
+proliferating, without measure. The winds carried pollen.
 
-Reuniram-se os entomologistas na capital australiana e chegaram à conclusão de
-que deveriam procurar um inseto que se alimentasse de cactos e que fosse
-excelente reprodutor.
+The entomologists gathered in the Australian capital and came to the conclusion of
+who should look for an insect that fed on cacti and that was
+excellent player.
 
-O pequeno animal foi descoberto no Nordeste brasileiro e exportado, em
-quantidade, para a Austrália.
+The small animal was discovered in northeastern Brazil and exported, in
+quantity, for Australia.
 
-Pouco depois, os entomologistas novamente se preocuparam. Os cactos estavam
-desaparecendo. Mas, e os besouros? Não se tornariam uma praga no país?
+Shortly thereafter, entomologists again worried. The cacti were
+Disappearing. But what about the beetles? Wouldn't they become a plague in the country?
 
-Foi aí que a sábia lei do equilíbrio entrou em ação, estabelecendo cactos para
-besouros e besouros para cactos.
+That's when the wise law of balance came into action, establishing cacti to
+beetles and beetles for cacti.
 
-Por isso, diz Cressie Morrisson, eu creio em Deus.
+So says Cressie Morrisson, I believe in God.
 
-David, no capítulo XVIII dos Salmos canta: Os céus proclamam a glória de Deus e
-o universo fala da obra das Suas mãos.
+David, in chapter XVIII of the Psalms sings: Heaven proclaim the glory of God and
+the universe speaks of the work of His hands.
 
-E o telescópio Hubble nos permite ver até um bilhão de estrelas, apenas na
-nossa galáxia. Cada qual com seu brilho especial.
+And the Hubble telescope allows us to see up to a billion stars, only in the
+our galaxy. Each with its special brightness.
 
-Nosso sol, uma estrela de quinta grandeza, avança pelo infinito, com seus
-planetas, em uma jornada interminável, pelo universo.
+Our sun, a star of fifth greatness, advances through infinity, with its
+planets, on an endless journey, through the universe.
 
-Ante tanta grandeza, não se pode senão crer nesse Deus, sábio, inteligência
-suprema, que tudo criou, estabelecendo leis perfeitas, que zelam pela harmonia
-e beleza de todo o universo.
+Before so much greatness, one can only believe in this God, wise, intelligence
+supreme, which created everything, establishing perfect laws, which ensure the harmony
+and beauty of the entire universe.
 
                                    *   *   *
 
-Um pai humano, mesmo que destituído de sentimentos superiores, providencia o
-pão, o agasalho, o medicamento, o socorro para o filho, planejando-lhe a
-felicidade.
+A human father, even if devoid of superior feelings, provides the
+bread, sweater, medicine, help for the son, planning to
+Happiness.
 
-O Pai Celestial, muito mais sábio e generoso, brinda todos os tesouros
-imagináveis aos Seus filhos.
+Heavenly Father, much wiser and generous, toasts all the treasures
+imaginable to His children.
 
-Na Sua magnanimidade, enche de luzes o espaço infinito e, com a mesma grandeza,
-veste a singela flor do campo das cores mais suaves aos tons mais vibrantes.
- 
+In His magnanimity, the infinite space fills with lights and, with the same greatness,
+wear the simple flower from the field from the softest colors to the most vibrant tones.
+
 
 ## Source
 Redação do Momento Espírita, com base em palestra de

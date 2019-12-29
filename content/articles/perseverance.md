@@ -8,74 +8,74 @@ topics:
 - child
 ---
 
-Quem quer que tenha parado para observar uma criança tentando descobrir como
-funciona alguma coisa, ou na tentativa de execução de algo que queira, já deve
-saber o que é perseverança.
+Whoever stopped to observe a child trying to figure out how
+something works, or in trying to run something you want, you should already
+know what perseverance is.
 
-Perseverança é essa virtude que leva à perfeição. Uma virtude que parece inata
-nos bebês e nos primeiros anos, desaparecendo depois, quando os homens começam
-a crescer e passam a acreditar que o mais importante, no mundo, é fazer muitas
-coisas, não importa de que forma.
+Perseverance is this virtue that leads to perfection. A virtue that seems innate
+babies and in the early years, disappearing afterwards, when men begin
+to grow and come to believe that the most important thing in the world is to make many
+things, no matter what way.
 
-Alguns pais incutem essa forma de pensar nos seus pequenos, quando os colocam
-em múltiplas atividades e eles precisam correr de uma aula para outra, e fazer
-tudo às pressas, para darem conta do recado.
+Some parents instill this way of thinking about their little ones, when they put them
+in multiple activities and they need to run from one class to another, and do
+all in a hurry, to realize the message.
 
-Possivelmente, seja este um dos motivos pelo qual muitos desistem, a meio
-caminho, quando desejam fazer alguma coisa. É comum ouvir-se as pessoas falarem
-de seus projetos abandonados porque dificuldades apareceram.
+Possibly, this is one of the reasons many give up, in the midst of
+way, when they wish to do something. It's common to hear people talk
+abandoned projects because difficulties appeared.
 
-Abandona-se aquele e se opta por algo mais fácil, menos trabalhoso e cujo
-resultado seja quase imediato.
+Let go of that and opt for something easier, less laborious and whose
+result is almost immediate.
 
-Isso nos recorda de uma experiência comovente de um artista japonês. Ele se
-chamava Hokusai e suas pinturas eram muito cobiçadas pela realeza.
+This reminds us of a moving experience of a Japanese artist. He
+called Hokusai and his paintings were highly coveted by royalty.
 
-Um dia, um nobre o visitou e encomendou uma pintura de seu precioso pássaro.
-Ele deixou o pássaro com Hokusai, e o artista disse ao nobre para que
-retornasse uma semana depois.
+One day, a nobleman visited him and commissioned a painting of his precious bird.
+He left the bird with Hokusai, and the artist told the nobleman that
+return a week later.
 
-Porque gostasse muito do pássaro, o nobre ficou ansioso e, ao final de semana,
-retornou ao estúdio do artista. Contudo, o quadro não fora feito.
+Because he liked the bird very much, the nobleman was anxious and, over the weekend,
+returned to the artist's studio. However, the picture had not been made.
 
-O artista pediu humildemente que ele retornasse depois de duas semanas. As duas
-semanas se transformaram em dois meses, em seis meses.
+The artist humbly asked him to return after two weeks. The two
+weeks turned into two months in six months.
 
-Um ano mais tarde, o nobre chegou no estúdio de Hokusai, exigindo a pintura de
-imediato e o seu pássaro de volta. Conforme o costume japonês, Hokusai se
-curvou ante o nobre e retornou à sua mesa de trabalho. Pegou um pincel, uma
-grande folha de papel de palha de arroz e, em poucos instantes, desenhou o
-pássaro, sem nenhum esforço, exatamente como ele era.
+A year later, the nobleman arrived at Hokusai's studio, demanding the painting of
+immediate and his bird back. According to Japanese custom, Hokusai
+bowed before the nobleman and returned to his work desk. Took a brush, a
+large sheet of rice straw paper and, in a few moments, drew the
+bird, without any effort, exactly as it was.
 
-O proprietário da ave ficou maravilhado diante da pintura para, logo em
-seguida, descarregar sua raiva:
+The bird owner marveled at the painting for, soon in
+then unload your anger:
 
-Por que você me fez esperar um ano se podia ter aprontado a pintura em tão
-pouco tempo?
+Why did you make me wait a year if you could have arranged the painting in such a
+little time?
 
-O senhor não entendeu, disse com voz macia o artista.
+You don't understand, the artist said softly.
 
-E convidou o nobre a entrar em um cômodo, onde as paredes estavam cobertas de
-pinturas do mesmo pássaro. Nenhuma delas, no entanto, expressava a graça e a
-beleza do último trabalho.
+And he invited the nobleman to enter a room, where the walls were covered with
+paintings of the same bird. None of them, however, expressed grace and
+beauty of the last job.
 
-Ele treinara durante um ano e o seu esforço estava recompensado: ele criara uma
-obra de arte.
+He had trained for a year and his effort was rewarded: he had created a
+artwork.
 
                                    *   *   *
 
-Quando você estiver a ponto de desistir de um sonho, de um plano, de uma
-atividade, lembre do artista japonês e de sua perseverança até atingir a
-perfeição.
+When you are about to give up a dream, a plan, a
+activity, remember the Japanese artist and his perseverance until he reaches the
+Perfection.
 
-Recorde da criança que tenta girar uma chave na fechadura do armário pela
-primeira vez e, sentada no chão, ou de joelhos, tenta, tenta e tenta. E, se
-hoje não consegue, ele vai embora, para retornar depois e tentar outra vez, e
-outra mais.
+Child record trying to turn a key in closet lock by
+first time and, sitting on the floor, or on his knees, tries, tries and tries. And if
+today fails, he goes away, to return afterwards and try again, and
+another one more.
 
-Recorde, finalmente, que você está no mundo para realizar uma obra de arte: a
-sua vida. E não meça esforços, nem se importe com as repetições. São os
-rascunhos que conferem perfeição à obra final.
+Finally, remember that you are in the world to perform a work of art: the
+your life. And don't measure your efforts, you don't care about the repetitions. It is the
+drafts that give perfection to the final work.
 
 ## Source
 Redação do Momento Espírita, com base no cap.

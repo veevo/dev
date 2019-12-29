@@ -11,98 +11,98 @@ topics:
 - effort
 ---
 
-        O trabalho é uma lei para todas as humanidades planetárias.
+        Work is a law for all planetary humanities.
 
-        Desde o ser mais rudimentar até os Espíritos angélicos que velam pelos
-destinos dos mundos, cada um executa sua obra, sua parte, no grande concerto
+        From the most rudimentary being to the angelic Spirits who flee by the
+destinies of the worlds, each performs his work, his part, in the great concert
 universal.
 
-        Penoso e grosseiro para os seres inferiores, o trabalho suaviza à
-medida que o Espírito se purifica.
+        Painful and coarse for inferior beings, work softens to the
+as the Spirit purifies itself.
 
-        Torna-se uma fonte de gozos para o Espírito adiantado, insensível às
-atrações materiais, exclusivamente ocupado com estudos elevados.
+        It becomes a source of enjoyment for the early Spirit, insensitive to the
+material attractions, exclusively occupied with high studies.
 
-        É pelo trabalho que o homem doma as forças cegas da natureza e se
-preserva da miséria.
+        It is by the work that man dominates the blind forces of nature and
+preserves from misery.
 
-        É pelo trabalho que as civilizações se formam, que o bem-estar e a
-ciência se difundem.
+        It is because of the work that civilizations form, that well-being and
+science spread.
 
-        O trabalho é a honra, é a dignidade do ser humano. O ocioso que se
-aproveita do trabalho dos outros, sem nada produzir, não passa de um parasita.
+        Work is honor, it is the dignity of the human being. The idle ness that
+takes advantage of the work of others, without anything producing, is nothing but a parasite.
 
-        Quando o homem está ocupado com sua tarefa, as paixões se aquietam.
+        When the man is busy with his task, passions are quiet.
 
-        A ociosidade, pelo contrário, as instiga, abrindo um vasto campo de
-ação para que se manifestem.
+        Idleness, on the contrary, instigates them, opening a vast field of
+action to manifest themselves.
 
-        O trabalho é também um grande consolador, é um preservativo salutar
-contra as nossas aflições, contras as nossas tristezas.
+        The job is also a great comforter, it is a healthy condom
+against our afflictions, cons of our sorrows.
 
-        Acalma as angústias do nosso Espírito e fecunda a nossa inteligência.
+        It soothes the anguish of our Spirit and fertilizes our intelligence.
 
-        Não há dor moral, decepções ou reveses que não encontrem nele um
-alívio.
+        There is no moral pain, disappointments or setbacks that do not find in it a
+Relief.
 
-        Não há vicissitudes que resistam à sua ação prolongada.
+        There are no vicissitudes that resist their prolonged action.
 
-        O trabalho é sempre um refúgio seguro na provação, um verdadeiro amigo
-na tribulação.
+        Work is always a safe haven in the ordeal, a true friend
+in the tribulation.
 
-        Pelo trabalho os homens se aproximam uns dos outros, aprendem a se
-auxiliar, a se unir. Daí à fraternidade só há um passo.
+        From work men approach each other, they learn to
+auxiliary, to unite. Hence the fraternity there is only one step.
 
-        Quando a Antigüidade romana desonrou o trabalho, fazendo dele uma
-condição de escravatura, resultou em sua esterilidade moral e corrupção.
+        When Roman Antiquity dishonored the work, making it a
+slavery, resulted in its moral sterility and corruption.
 
-        O trabalho é Lei Divina, vinculado à Lei de progresso. Através dele, se
-faz o aperfeiçoamento dos seres.
+        Work is Divine Law, bound by the Law of Progress. Through it, if
+makes the improvement of beings.
 
-        Frente às necessidades que o homem percebe, no mundo em que está
-vivendo, coloca em ação a sua inteligência e engendra ações, melhorando a sua e
-a condição de muitos.
+        Faced with the needs that man perceives, in the world in which he is
+living, puts into action his intelligence and engenders actions, improving his and
+the condition of many.
 
-        É assim que a Tecnologia avançou e continua avançando, a Medicina traz,
-a cada dia, novas e importantes descobertas para diminuir muitas dores e curar
-enfermidades.
+        This is how Technology has advanced and continues to advance, medicine brings,
+every day, new and important discoveries to lessen many pains and heal
+Diseases.
 
-        É assim que se aprimoram técnicas cirúrgicas, que se inventam
-artefatos, tudo objetivando o bem-estar do ser, na Terra em que se encontra.
+        This is how surgical techniques are improved, which invent
+artifacts, all aiming at the well-being of being, on the Earth on which it is.
 
-        Surge um problema. O homem pensa e cria algo. Alguma coisa, senão para
-resolvê-lo, ao menos para o amenizar.
+        There's a problem. The man thinks and creates something. Something, if not for
+solve it, at least to soften it.
 
-        Pensando em seu conforto e no desejo do belo, todo dia o homem cria
-novas e arrojadas formas arquitetônicas, embelezando a paisagem urbana.
+        Thinking of his comfort and the desire of the beautiful, every day man creates
+bold new architectural forms, embellishing the urban landscape.
 
-        Máquinas são colocadas à disposição para o amanho da terra, o plantio,
-a colheita com o mínimo de desperdício.
+        Machines are made available for the dawn of the earth, planting,
+harvest with minimal waste.
 
-        Tudo isso é trabalho. Trabalho de quem sua a camisa, no esforço físico.
+        All this is work. Work of those who sweat the shirt, in physical exertion.
 
-        Também o daqueles que elaboram leis, no intuito de preservar a vida, o
-planeta, de ofertar melhores condições à Humanidade.
+        Also those who draft laws, in order to preserve life, the
+planet, to offer better conditions to humanity.
 
-        Trabalha, portanto, quem utiliza a força, tanto quanto aquele que
-aciona a sua inteligência.
+        Therefore, it works those who use force as much as the one who
+triggers your intelligence.
 
-        Unindo-se, uns e outros, alcança-se o progresso mais rapidamente.
+        Uniting, one and the other, progress is achieved faster.
 
-        E tudo, graças à bendita Lei do trabalho. Que seria de nossos dias, sem
-a bênção do trabalho?
+        And everything, thanks to the blessed Labor Law. What would be of our day, without
+the blessing of work?
 
                                      * * *
 
-        O trabalho é vida, é a glória, é a paz da Humanidade.
+        Work is life, it's glory, it's the peace of humanity.
 
-        Esmeremo-nos, pois, em sondar os grandes problemas, em estudar a
-natureza e propagar a ciência, espalhando por toda parte tudo o que consola,
-anima e fortifica.
+        We therefore strive to probe the great problems, in studying the
+nature and propagate science, spreading everywhere all that comforts,
+soul and fortify.
 
-        Que de uma extremidade a outra do Mundo, unidos na obra gigantesca,
-cada um de nós se esforce a fim de contribuir para enriquecer o domínio
-material, intelectual e moral da Humanidade.
+        That from one end to the other of the world, united in the gigantic work,
+each of us strives to contribute to enriching the
+material, intellectual and morality of humanity.
 
 
 ## Source

@@ -16,73 +16,73 @@ topics:
 ---
  
 
-Você sabe qual é o pior sentimento do homem, aquele que é a raiz de todos os
-males que o infelicitam?
+You know what the worst feeling of man is, the one who is the root of all
+evils that congratulate you?
 
-Se você ainda não sabia, então preste atenção na resposta dada pelos Sábios
-Espíritos, a Allan Kardec: Temo-lo dito muitas vezes: o egoísmo. Daí deriva
-todo mal. Estudai todos os vícios e vereis que no fundo de todos há egoísmo.
+If you still didn't know, then pay attention to the response given by the Wise
+Spirits, to Allan Kardec: We have said it many times: selfishness. From there drift
+all evil. Study all the vices and you will see that deep down there is selfishness.
 
-Quem quiser, desde esta vida, ir aproximando-se da perfeição moral, deve
-expurgar o seu coração de todo sentimento de egoísmo, visto ser o egoísmo
-incompatível com a justiça, o amor e a caridade. Ele neutraliza todas as outras
-qualidades.
+Whoever wants, from this life, to go closer to moral perfection, must
+purge your heart of every sense of selfishness, since selfishness is
+incompatible with justice, love and charity. It neutralizes all other
+Qualities.
 
-Como dizem os Espíritos superiores, o egoísmo é incompatível com a justiça, o
-amor e a caridade. E isso se percebe, com clareza, nas mais variadas situações
-de um povo ou de uma nação.
+As the superior Spirits say, selfishness is incompatible with justice, the
+love and charity. And this is clearly perceived in the most varied situations
+of a people or a nation.
 
-Quando analisamos, com isenção de ânimo, as injustiças sociais vigentes em
-qualquer país do mundo, detectaremos homens, classes sociais, partidos
-políticos ou religiosos, defendendo seus interesses, em detrimento da justiça.
+When we analyze, with exemption from mind, the social injustices in force in
+any country in the world, we will detect men, social classes, parties
+defending their interests, to the detriment of justice.
 
-O egoísta pensa somente em si. Quer seus direitos respeitados, mas não cogita
-de respeitar os direitos alheios. Sua visão de justiça é unilateral.
+The selfish thinks only of you. You want your rights respected, but you don't think
+respect the rights of others. His view of justice is one-sided.
 
-É por essa razão que a Humanidade anda a braços com a violência, com a
-corrupção, com a supremacia dos interesses pessoais sobre o que é justo.
+It is for this reason that humanity is grappling with violence, with the
+corruption, with the supremacy of personal interests over what is fair.
 
-É por causa do egoísmo que eclodem as guerras, desde os pequenos conflitos
-familiares às guerras religiosas, até as grandes guerras de alcance mundial.
+It is because of selfishness that wars erupted, from the small conflicts
+religious wars, even the great wars of world reach.
 
-Mas, quando existe o sentimento de fraternidade, de solidariedade, de altruísmo
-nos corações dos homens, esses abrem mão dos interesses pessoais a favor da
-justiça e do bem-estar comum.
+But when there is a feeling of brotherhood, solidarity, altruism
+in the hearts of men, these give up personal interests in favour of
+justice and common well-being.
 
-Numa sociedade civilizada, todo cidadão tem direito ao necessário, que é o
-direito à alimentação, moradia, saúde e escola.
+In a civilized society, every citizen is entitled to what is necessary, which is the
+right to food, housing, health and school.
 
-A violência só se cala diante da justiça e do amor. Mas, de uma justiça que
-saia do papel e das palavras para se tornar realidade em todos os campos da
-sociedade.
+Violence only shuts down in the face of justice and love. But of a justice that
+come out of the paper and words to come true in all fields of the
+Society.
 
-Enquanto houver egoísmo, não haverá amor nem justiça.
+As long as there is selfishness, there will be no love or justice.
 
-Por tudo isso, é necessário erradicar essa ferida social chamada egoísmo, de
-uma vez por todas, para que possamos vislumbrar a possibilidade de uma
-sociedade em que a justiça e a fraternidade sejam uma realidade.
+For all this, it is necessary to eradicate this social wound called selfishness, of
+once and for all, so that we can glimpse the possibility of a
+society in which justice and fraternity are a reality.
 
-E esse câncer só será extirpado do coração do homem quando o bisturi da
-educação for manipulado com sabedoria.
+And this cancer will only be excised from man's heart when the scalpel of
+education is wisely manipulated.
 
-Quando o germe do amor for implantado no coração da criança, ele florescerá e
-dará frutos capazes de neutralizar o ódio e a injustiça.
+When the germ of love is implanted into the child's heart, he shall flourish and
+bear fruit capable of neutralizing hatred and injustice.
 
-E isso se dará pela educação. Uma educação baseada no exemplo e na máxima
-evangélica que estabelece  fazer ao outro o que gostaríamos que o outro nos
-fizesse.
+And that will be due to education. An education based on the example and maximum
+that establishes to do to the other what we would like the other in the
+Do.
 
 *   *   *
 
-À medida que os homens se instruem acerca das coisas espirituais, menos valor
-dão às coisas materiais.
+As men become true about spiritual things, less value
+give them material things.
 
-Depois, necessário é que se reformem as instituições humanas que excitam o
-egoísmo e o mantêm vivo. Isso depende da educação.
+Then, necessary is for the reform of human institutions that excite the
+selfishness and keep him alive. That depends on education.
 
-Não da educação que faz homens instruídos, mas daquela que forma homens de bem.
+Not education that makes educated men, but the way good men.
 
-Pense nisso!
+Think about it!
 
 ## Source
 Redação do Momento Espírita, com base nos itens 913 e 914 de O livro dos

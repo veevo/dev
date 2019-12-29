@@ -10,77 +10,77 @@ topics:
 - serenity
 ---
 
-Você já observou que um dos maiores inimigos do homem é a acomodação? Irmã da
-indiferença, aparentada com a preguiça, a acomodação é como uma doença que aos
-poucos paralisa as iniciativas humanas.
+Have you ever noticed that one of man's greatest enemies is accommodation? Sister of
+indifference, related to laziness, accommodation is like a disease that
+few paralyzes human initiatives.
 
-A acomodação vai contra o ritmo da vida. Sim, porque aqui na Terra tudo nos
-convida ao trabalho. A ação move a roda do progresso e é responsável pelos
-avanços humanos.
+The accommodation goes against the rhythm of life. Yes, because here on Earth everything in the
+invites to work. The action moves the wheel of progress and is responsible for the
+human advances.
 
-Sem trabalho, o homem se afasta de seu grupo social. Sem agir, ele se torna
-praticamente invisível aos outros. E assim foge ao contato que pode enriquecer
-sua experiência de vida.
+Without work, man walks away from his social group. Without acting, it becomes
+practically invisible to others. And so escape so contact that can enrich
+your life experience.
 
-Você já notou como há gente acomodada no Mundo? Pessoas que, à primeira
-dificuldade, simplesmente desistem. Outras há que sequer começam qualquer coisa
-que dê trabalho dobrado. São vítimas da preguiça.
+Have you noticed how there are people accommodated in the world? People who at first
+difficulty, they just give up. Others have to even start anything
+that gives folded work. They're victims of laziness.
 
-É óbvio que essa acomodação não se restringe apenas ao trabalho. Quem é
-acomodado, leva isso para todos os demais aspectos da vida.
+It is obvious that this accommodation is not restricted only to work. Who is it
+accommodated, takes this to all other aspects of life.
 
-Assim, o acomodado não busca se aperfeiçoar ou se aprimorar. Pior: geralmente,
-costuma reclamar que não é valorizado. Esquece que não é valorizado porque está
-parado no tempo.
+Thus, the accommodated does not seek to improve or improve. Worse: generally,
+often complain that it is not valued. Forget it's not valued because it's
+stopped in time.
 
-A atitude do acomodado é muito diferente da atitude de uma pessoa que enfrenta
-os acontecimentos da vida com serenidade. Vamos ver qual a diferença?
+The attitude of the accommodated is very different from the attitude of a person facing
+the events of life with serenity. Let's see what the difference?
 
-Sereno é aquele que, diante de uma situação adversa analisa todas as variáveis:
-verifica onde errou, como pode corrigir e pesa os prós e os contras.
+Serene is one that, in the face of an adverse situation analyzes all variables:
+checks where you've missed, how you can correct and weigh the pros and cons.
 
-Em geral, a pessoa realmente serena não se deixa perturbar pelas dificuldades,
-mas busca soluções.
+In general, the really serene person is not disturbed by the difficulties,
+but seeks solutions.
 
-O acomodado é bem diferente. Ele diz simplesmente: “Deus quis assim e eu não
-vou contra Ele”. E cruza os braços!
+The room is very different. He simply says, "God wanted it that way and I didn't
+I'm going against Him." And cross your arms!
 
-Ora, é indiscutível que tudo o que acontece é porque Deus permite. Também não
-se trata de ser contra a vontade divina. No entanto, as dificuldades chegam
-para que aprendamos a lidar com elas.
+Now, it is indisputable that everything that happens is because God allows. Nor do you
+it is about being against the divine will. However, difficulties reach
+so that we can learn how to deal with them.
 
-Ou seja: toda situação difícil traz uma lição. Mas esse aprendizado é longo e
-tem várias fases.
+That is, every difficult situation brings a lesson. But this learning is long and
+has several phases.
 
-Depois de observar quais lições aprendemos com determinados episódios, o passo
-seguinte é verificar se podemos minimizar os efeitos negativos.
+After observing what lessons we learned from certain episodes, the
+to check if we can minimize the negative effects.
 
-A diferença entre uma pessoa tranqüila e uma pessoa acomodada é que a segunda
-não aproveita a lição de forma completa.
+The difference between a quiet person and an accommodated person is that the second
+do not take advantage of the lesson in a complete way.
 
-Ela pára no meio do caminho. Quando algo aparentemente ruim acontece, chora, se
-lamenta e fica por isso mesmo.
+She stops in the middle of the road. When something seemingly bad happens, cries, if
+regrets and stays for it.
 
-Algumas vezes até permanece calma, mas não reflete, nem toma qualquer atitude
-para que no futuro não mais seja atingida por situações semelhantes.
+Sometimes it even remains calm, but does not reflect, nor does it take any attitude
+so that in the future it is no longer affected by similar situations.
 
-Em verdade, o acomodado tem preguiça de pensar no que fará daí por diante. Para
-ele é mais fácil varrer as dificuldades para debaixo do tapete do esquecimento.
+In fact, the accommodated is lazy to think about what he will do from there on. To
+it is easier to sweep the difficulties under the carpet of oblivion.
 
-E esse conformismo paralisa a criatura, faz com que ela se torne apática, sem
-iniciativa.
+And this conformism paralyzes the creature, makes it apathetic, without
+Initiative.
 
-Por isso, vale a pena observar os nossos atos perante a vida. Que estamos
-fazendo com as lições que Deus nos permite vivenciar?
+Therefore, it is worth observing our acts before life. That we are
+doing with the lessons that God allows us to experience?
 
-Será que estamos aproveitando para mudar hábitos negativos? Para modificar a
-maneira de ver as coisas?
+Are we taking the advantage to change negative habits? To modify the
+way to see things?
 
-Não esqueça de que cada momento vivido é um instante único em nossa trajetória.
-Cada lágrima ou sorriso carrega consigo um mundo de ricas experiências que
-devemos aproveitar.
+Don't forget that every moment lived is a unique moment in our trajectory.
+Every tear or smile carries with it a world of rich experiences that
+we must take advantage.
 
-Pense nisso!
+Think about it!
 
 
 ## Source

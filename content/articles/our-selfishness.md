@@ -16,103 +16,103 @@ topics:
 ---
  
 
-Diariamente, há inúmeras demonstrações de egoísmo partindo de nós ou à nossa
-volta.
+Daily, there are numerous demonstrations of selfishness from us or our
+Time.
 
-É o motorista que para o carro em fila dupla, só por um minutinho.
+It's the driver who stops the car in a double line, just for a minute.
 
-O torcedor que, para festejar a vitória do seu time esportivo, sai com seu
-carro buzinando pelas ruas, independente da hora e do local.
+The fan who, to celebrate the victory of his sports team, comes out with his
+car honking through the streets, regardless of time and place.
 
-É o religioso que, a pretexto de atender os seus fiéis, transmite seu ato
-litúrgico através de autofalantes.
+It is the religious who, on the pretext of serving his faithful, transmits his act
+liturgical through speakers.
 
-O passageiro que entra no transporte coletivo e corre para pegar o lugar vazio,
-sem olhar se tem algum idoso, alguma senhora grávida, ou uma mãe com criança,
-que precisaria trafegar melhor acomodado.
+The passenger who enters the public transport and runs to take the empty place,
+without looking at whether there are any elderly, any pregnant lady, or a mother with child,
+that would need to traffic better accommodated.
 
-São as comemorações com fogos de artifício, sem se cogitar de enfermos nos
-hospitais, crianças dormindo nas casas.
+It is the celebrations with fireworks, without considering sick in the
+hospitals, children sleeping in homes.
 
-É aquele que procura furar a fila, tentando um jeitinho, desconsiderando os que
-chegaram antes dele.
+It is the one who seeks to stick the line, trying a way, disregarding those who
+came before him.
 
-São os pais que se portam com intolerância e irritação, quando o filho
-pequenino não se porta adequadamente no restaurante, exigindo-lhe atenção e
-ocasionando demora à sua refeição.
+It is parents who behave with intolerance and irritation when the child
+little one does not behave properly in the restaurant, demanding attention and
+causing delay to your meal.
 
-Dificultar a circulação de veículos, por não dar a vez ao motorista que está
-saindo da garagem, de estacionamento ou tentando entrar numa via preferencial.
+Hinder the movement of vehicles by not giving the turn to the driver who is
+leaving the garage, parking or trying to enter a preferred route.
 
-Com o pretexto de estar com pressa, tratar os familiares com grosseria e
-estupidez.
+On the pretext of being in a hurry, treat family members rudely and
+Stupidity.
 
-Prender a porta do elevador enquanto conclui a conversa ou se despede
-demoradamente.
+Hold the elevator door while completing the conversation or bid
+lengthy.
 
-Estacionar o seu veículo, sem observar se está ocupando mais de uma vaga, ou se
-não vai trancar ou dificultar a movimentação dos demais veículos.
+Park your vehicle, without observing whether you are occupying more than one vacancy, or if
+will not lock or hinder the movement of other vehicles.
 
-Infelizmente, há muitos exemplos a serem dados de egoísmo explícito.
+Unfortunately, there are many examples to be explicit selfishness data.
 
-O egoísmo é um dos grandes males da Humanidade, também por ser fonte geratriz
-de orgulho, de prepotência, de ingratidão, de desordem, de rebeldia, de
-violência, de sovinice, de indiferença.
+Selfishness is one of humanity's great evils, also because it is a source of
+of pride, of arrogance, of ingratitude, disorder, rebellion, of
+violence, of sovinice, of indifference.
 
-A primeira providência para combater esse mal em nós é examinar-nos com atenção
-e intenção, identificando as atitudes egoístas de cada dia, desde as mais
-pequeninas até às mais relevantes.
+The first step in combating this evil in us is to examine us carefully
+and intent, identifying the selfish attitudes of each day, from the most
+to the most relevant ones.
 
-Depois, começar a dobrar essa personalidade equivocada, impondo-se medidas
-corretivas, intencionalmente corretivas.
+Then begin to bend this misguided personality by imposing measures
+corrective, intentionally corrective.
 
-Eis algumas dicas bem singelas:
+Here are some very simple tips:
 
-em casa, não se apressar ou atropelar tudo e todos, para ter tempo de assistir
-a telenovela ou ao telejornal;
+at home, do not rush or run over everything and all, to have time to watch
+telenovela or news;
 
-não deixar as crianças com fome, esperando que você termine de assistir a esse
-ou aquele programa na televisão, ou que você conclua a longa conversa ao
-telefone;
+don't leave the kids hungry, hoping you'll finish watching that
+or that program on television, or that you complete the long conversation to the
+telephone;
 
-se o seu filho lhe pedir para brincarem juntos, deixe a leitura do jornal ou da
-revista para depois, e vá diverti-lo, com toda a atenção e boa vontade;
+if your child asks you to play together, leave the newspaper or
+magazine for later, and go amuse it, with all the attention and goodwill;
 
-se estiver cuidando do seu filho, busque atividades que digam respeito à idade
-e à vontade dele, e não insistir para que ele faça o que você quer. Não fique
-ao lado dele, somente, enquanto ele brinca. Brinque com ele, role no chão, viva
-o mundo dele;
+if you are taking care of your child, seek activities concerning age
+and at his will, and not insist that he do what you want. Don't stay
+beside him only while he plays. Play with him, roll on the floor, live
+his world;
 
-sentado à mesa para a refeição, procure servir aos demais, em primeiro lugar,
-com paciência e zelo;
+sitting at the table for the meal, try to serve others, first,
+with patience and zeal;
 
-quando for tomar banho, faça-o adequadamente, mas com rapidez. Tem gente na
-fila;
+when you bathe, do it properly, but quickly. There are people in the
+row;
 
-ao terminar seu banho, deixe o banheiro em condições de uso para os outros,
-para que esses não tenham que fazer uma faxina antes de usar;
+when you finish your bath, leave the bathroom in use conditions for others,
+so that they do not have to clean up before use;
 
-ao invés de ficar pedindo pelas coisas em casa, antecipe-se e providencie o que
-você quer, por conta própria;
+rather than asking for things at home, anticipate yourself and provide what
+you want, on your own;
 
-ajude na arrumação da casa, cuidando para não bagunçá-la;
+help in the storage of the house, taking care not to mess it;
 
-ao se levantar pela manhã, faça-o sem pressa, arrume sua cama, ajude no
-atendimento dos menores, providencie o café da manhã, trate a todos com
-cortesia e simpatia;
+When getting up in the morning, do it without haste, fix your bed, help in the
+care of minors, provide breakfast, treat everyone with
+courtesy and sympathy;
 
-ao sair de casa, seja cortês no trânsito, no transporte coletivo, nas ruas, nos
-elevadores, para com os atendentes, para com os colegas de trabalho.
+when leaving home, be courteous in traffic, public transport, streets,
+elevators, stops with the attendants, to the co-workers.
 
-O egoísmo deve ser sobreposto pelo altruísmo. No egoísmo você é o único e o
-primeiro. No altruísmo, o próximo existe e merece toda a sua dedicação.
+Selfishness must be superimposed by altruism. In selfishness you are the only and the
+First. In altruism, the neighbor exists and deserves all his dedication.
 
-Amar ao próximo como a si mesmo, já ensinou Jesus há mais de dois mil anos.
+Loving others like yourself has taught Jesus for over two thousand years.
 
-Está mais do que na hora de modificar o egoísmo nosso de cada dia, para o
-altruísmo nosso de todos os dias.
+It is more than time to modify our selfishness of each day, for the
+our altruism of every day.
 
-Pense nisso!
+Think about it!
 
 ## Source
 Redação do Momento Espírita.

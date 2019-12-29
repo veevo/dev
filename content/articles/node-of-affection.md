@@ -13,93 +13,93 @@ topics:
 - mother
 ---
 
-Em uma reunião de pais, numa escola da periferia, a diretora incentivava o
-apoio que os pais devem dar aos filhos. Pedia-lhes, também, que se fizessem
-presentes o máximo de tempo possível.
+At a parent meeting in a suburban school, the principal encouraged the
+support that parents should give their children. I also asked them to make
+present as long as possible.
 
-Ela entendia que, embora a maioria dos pais e mães daquela comunidade
-trabalhassem fora, deveriam achar um tempinho para se dedicar e entender as
-crianças.
+She understood that although most of the fathers and mothers of that community
+worked outside, they should find a little time to devote themselves and understand the
+Children.
 
-Mas a diretora ficou muito surpresa quando um pai se levantou e explicou, com
-seu jeito humilde, que ele não tinha tempo de falar com o filho, nem de vê-lo,
-durante a semana.
+But the director was very surprised when a father stood up and explained, with
+his humble manner, that he had no time to talk to his son, nor to see him,
+for a week.
 
-Quando ele saía para trabalhar, era muito cedo e o filho ainda estava dormindo.
-Quando voltava do serviço era muito tarde e o garoto não estava mais acordado.
+When he went out to work, it was too early and his son was still asleep.
+When he was returning from work it was too late and the boy was no longer awake.
 
-Explicou, ainda, que tinha de trabalhar assim para prover o sustento da
-família.
+He also explained that he had to work like this to provide for the support of the
+Family.
 
-Mas ele contou, também, que isso o deixava angustiado por não ter tempo para o
-filho e que tentava se redimir indo beijá-lo todas as noites quando chegava em
-casa.
+But he also said that it made him distressed that he didn't have time for the
+son and who tried to redeem himself by going to kiss him every night when he arrived in
+Home.
 
-E, para que o filho soubesse da sua presença, ele dava um nó na ponta do lençol
-que o cobria.
+And for the son to know of his presence, he tied a knot at the tip of the sheet
+that covered him.
 
-Isso acontecia, religiosamente, todas as noites quando ia beijá-lo. Quando o
-filho acordava e via o nó, sabia, através dele, que o pai tinha estado ali e o
-havia beijado.
+This happened, religiously, every night when I was going to kiss him. When the
+son woke up and saw the knot, knew, through him, that the father had been there and the
+had kissed.
 
-O nó era o meio de comunicação entre eles.
+The knot was the means of communication between them.
 
-A diretora ficou emocionada com aquela história singela e emocionante.
+The director was thrilled with that simple and exciting story.
 
-E ficou surpresa quando constatou que o filho desse pai era um dos melhores
-alunos da escola.
-
-                                   *   *   *
-
-O fato nos faz refletir sobre as muitas maneiras de um pai ou uma mãe se fazer
-presente, de se comunicar com o filho. Aquele pai encontrou a sua, simples mas
-eficiente.
-
-E o mais importante é que o filho percebia, através do nó afetivo, o que o pai
-estava lhe dizendo.
-
-Por vezes nos importamos tanto com a forma de dizer as coisas e esquecemos do
-principal, que é a comunicação através do sentimento.
-
-Simples gestos como um beijo e um nó na ponta do lençol, valiam, para aquele
-filho, muito mais que presentes ou desculpas vazias.
-
-É válido que nos preocupemos com os nossos filhos, mas é importante que eles
-saibam, que eles sintam isso.
-
-Para que haja a comunicação é preciso que os filhos ouçam a linguagem do nosso
-coração, pois em matéria de afeto os sentimentos sempre falam mais alto do que
-as palavras.
-
-É por essa razão que um beijo, revestido do mais puro afeto, cura a dor de
-cabeça, o arranhão no joelho, o ciúme do bebê que roubou o colo, o medo do
-escuro.
-
-A criança pode não entender o significado de muitas palavras, mas sabe
-registrar um gesto de amor.
-
-Mesmo que esse gesto seja apenas um nó. Um nó cheio de afeto e carinho.
-
-E você? Já deu algum nó afetivo no lençol do seu filho hoje?
+And she was surprised when he found that this father's son was one of the best
+school students.
 
                                    *   *   *
 
-Se você é um desses pais ou dessas mães que realmente precisam se ausentar do
-lar para prover o sustento da família, lembre-se que você pode encontrar a sua
-própria maneira de garantir ao seu filho a sua presença.
+The fact makes us reflect on the many ways a parent is made
+present, to communicate with the child. That father found his, simple but
+Efficient.
 
-Você pode encontrar um jeito de dizer a ele o quanto ele é importante na sua
-vida e o quanto você o ama.
+And the most important thing is that the son perceived, through the affective knot, what the father
+I was telling you.
 
-Mas lembre-se da linguagem do coração. Dessa linguagem que pode ser sentida,
-apesar da distância física.
+Sometimes we care so much about how to say things and forget about the
+that is communication through feeling.
 
-E procure apertar os laços do afeto, pois estes são os verdadeiros elos que nos
-unem aos seres que amamos.
+Simple gestures like a kiss and a knot at the tip of the sheet, were worth, for that
+son, much more than empty gifts or excuses.
 
-Pense nisso, mas, pense agora!
+It is valid that we care about our children, but it is important that they
+know, let them feel it.
 
- 
+In order for communication, it is necessary that children hear the language of our
+heart, for in matters of affection feelings always speak louder than
+words.
+
+It is for this reason that a kiss, coated with the purest affection, cures the pain of
+head, scratch on the knee, jealousy of the baby who stole his lap, fear of the
+Dark.
+
+The child may not understand the meaning of many words, but knows
+register a gesture of love.
+
+Even if this gesture is just a node. A knot full of affection and affection.
+
+What about you? Have you ever given any affective knot so on your son's sheet today?
+
+                                   *   *   *
+
+If you are one of those fathers or those mothers who really need to get away from the
+home to provide for the family's livelihood, remember that you can find your
+own way of guaranteeing your child their presence.
+
+You can find a way to tell him how important he is in his
+life and how much you love him.
+
+But remember the language of the heart. Of this language that can be felt,
+despite the physical distance.
+
+And try to tighten the bonds of affection, for these are the true links that
+unite with the beings we love.
+
+Think about it, but think about it now!
+
+
 
 ## Source
 Redação do Momento Espírita com base em texto de autoria ignorada.

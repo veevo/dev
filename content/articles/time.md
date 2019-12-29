@@ -16,91 +16,91 @@ topics:
 - wisdom
 --- 
 
-Um autor desconhecido escreveu certa vez que a alegria, a tristeza, a vaidade,
-a sabedoria, o amor e outros sentimentos habitavam uma pequena ilha. Certo dia,
-foram avisados que essa ilha seria inundada.
+An unknown author once wrote that joy, sadness, vanity,
+wisdom, love, and other feelings inhabited a small island. One day,
+were warned that this island would be flooded.
 
-Preocupado, o amor cuidou para que todos os outros se salvassem, falando:
+Concerned, love took care that all others would be saved, saying:
 
-Fujam todos, a ilha vai ser inundada.
+Escape everyone, the island will be flooded.
 
-Todos se apressaram a pegar seu barquinho para se abrigar em um morro bem alto,
-no continente. Só o amor não teve pressa. Quando percebeu que ia se afogar,
-correu a pedir ajuda.
+Everyone rushed to pick up their little boat to take shelter on a very high hill,
+on the continent. Only love was in no hurry. When he realized he was going to drown,
+ran to ask for help.
 
-Para a riqueza apavorada, ele pediu: Riqueza, leve-me com você.
+For the terrified wealth, he asked: Wealth, take me with you.
 
-Ao que ela respondeu: Não posso, meu barco está cheio de ouro e prata e não tem
-lugar para você.
+To which she replied: I can't, my boat is full of gold and silver and has no
+place for you.
 
-Passou então a vaidade e ele disse: Dona Vaidade, leve-me com você...
+Then he passed the vanity and he said, Dona Vanity, take me with you...
 
-Sinto muito, mas você vai sujar meu barco.
+I'm sorry, but you're going to get my boat dirty.
 
-Em seguida, veio a tristeza e o amor suplicou: Senhora Tristeza, posso ir com
-você?
+Then came the sorrow and love begged: Lady Sorrow, I can go with
+You?
 
-Amor, estou tão triste que prefiro ir sozinha.
+Honey, I'm so sad, I'd rather go alone.
 
-Passou a alegria, mas se encontrava tão alegre que nem ouviu o amor chamar por
-ela.
+He passed the joy, but he was so cheerful that he didn't even hear love call for
+She.
 
-Então passou um barquinho, onde remava um senhor idoso, e ele disse:
+Then he passed a little boat, where he was sore an elderly gentleman, and he said:
 
-Sobe, amor, que eu te levo.
+Come up, baby, I'll take you.
 
-O amor ficou tão feliz, que até se esqueceu de perguntar o nome do velhinho.
+Love was so happy, he even forgot to ask the old man's name.
 
-Chegando ao morro alto, onde já estavam os outros sentimentos, ele perguntou à
-sabedoria:
+Arriving at the high hill, where were already the other feelings, he asked the
+Wisdom:
 
-Dona Sabedoria, quem era o senhor que me amparou?
+Ms. Wisdom, who was the gentleman who supported me?
 
-Ela respondeu: O tempo.
+She said, Time.
 
-O tempo? Mas por que ele me trouxe aqui?
+The weather? But why did he bring me here?
 
-Porque só o tempo é capaz de ajudar e entender um grande amor.
-
-*   *   *
-
-Dentre todos os dons que a Divindade concede ao homem, o tempo tem lugar
-especial. É ele que acalma as paixões indevidas, ensinando que tudo tem sua
-hora e local certos.
-
-É ele que cicatriza as feridas das profundas dores, colocando o algodão
-anestesiante nas chagas abertas.
-
-É o tempo que nos permite amadurecer, através do exercício sadio da reflexão,
-adquirindo ponderação e bom senso.
-
-É o tempo que desenha marcas nas faces, espalha neve nos cabelos, leciona calma
-e paciência, quando o passo já se faz mais lento.
-
-É o tempo que confirma as grandes verdades e destrói as falsidades, os valores
-ilusórios.
-
-O tempo é, enfim, um grande mestre, que ensina sem pressa, aguarda um tanto
-mais e espera que cada um a sua vez, se disponha a crescer, servir e ser feliz.
-
-E é o tempo, em verdade, que nos demonstra, no correr dos anos, que o
-verdadeiro amor supera a idade, a doença, a dificuldade, e permanece conosco
-para sempre.
+Because only time is able to help and understand a great love.
 
 *   *   *
 
-Neste mundo, tudo tem a sua hora. Cada coisa tem o seu tempo.
+Among all the gifts that divinity grants man, time takes place
+Special. It is he who calms undue passions, teaching that everything has its
+the right time and place.
 
-Há o tempo de nascer e o tempo de morrer. Tempo de plantar e de colher. Tempo
-de derrubar e de construir.
+It is he who heals the wounds from deep pain, putting cotton
+anesthesia in open wounds.
 
-Há o tempo de se tornar triste e de se alegrar. Tempo de chorar e de sorrir.
-Tempo de espalhar pedras e de juntá-las.
+It is the time that allows us to mature, through the sound exercise of reflection,
+acquiring weighting and common sense.
 
-Tempo de abraçar e de se afastar.
+It's the time you draw marks on your faces, spreads snow in your hair, teaches calm
+patience, when the step is already slower.
 
-Há tempo de calar e de falar. Há o tempo de guerra e o tempo de paz. Mas sempre
-é tempo de amar.
+It is the time that confirms the great truths and destroys falsehoods, values
+Illusory.
+
+Time is, at last, a great master, who teaches without haste, awaits somewhat
+more and expects each in turn to be willing to grow, serve and be happy.
+
+And it is time, in fact, that shows us, in the course of years, that the
+true love overcomes age, sickness, difficulty, and stays with us
+forever.
+
+*   *   *
+
+In this world, everything has its time. Every thing has its time.
+
+There's time to be born and the time to die. Time to plant and spoon. Time
+to overthrow and build.
+
+There's time to become sad and rejoice. Time to cry and smile.
+Time to spread stones and gather them.
+
+Time to hug and move away.
+
+There's time to shut up and talk. There's wartime and peacetime. But always
+it's time to love.
 
 ## Source
 Redação do Momento Espírita, com base no texto História de amor, de autoria

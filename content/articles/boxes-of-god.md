@@ -7,77 +7,77 @@ topics:
 - god
 ---
 
-Certa noite, um homem teve um sonho. Sonhou que tivera um encontro com Deus e,
-porque se apresentasse muito triste, Deus o presenteou com duas caixas.
+One night, a man had a dream. He dreamed that he had an encounter with God and,
+because if he presented himself very sad, God presented him with two boxes.
 
-Uma delas era de cor preta, envernizada e a outra de cor dourada, com um belo
-laço de fita.
+One of them was black, varnished and the other of golden color, with a beautiful
+ribbon loop.
 
-Coloque todas as suas tristezas na caixa preta, recomendou o bom Deus. E as
-suas alegrias, guarde na caixa dourada.
+Put all your sorrows in the black box, recommended the good God. And the
+your joys, keep in the golden box.
 
-O homem entendeu e, desde aquele dia, passou a proceder de acordo com a
-recomendação Divina.
+The man understood and, since that day, proceeded according to the
+Divine recommendation.
 
-Depois de algum tempo, ele se surpreendeu porque a caixa dourada ficava cada
-dia mais pesada e a preta continuava tão leve quanto na noite em que a ganhara
-de Deus.
+After some time, he was surprised that the golden box was every
+heavier day and the black was still as light as the night she had won it
+of God.
 
-Tomado de curiosidade, abriu a caixa preta. Queria descobrir porque estava tão
-leve, se quase todos os dias ele colocava ali ao menos uma pequena tristeza.
+Taken out of curiosity, opened the black box. I wanted to find out why I was so
+take, if almost every day he put there at least a little sadness.
 
-Foi então que ele viu. Na base da caixa, havia um buraco e por ele saíam todas
-as suas tristezas.
+That's when he saw it. At the base of the box, there was a hole and by it they all came out
+their sorrows.
 
-Pensou alto, falando com Deus:
+He thought loudly, talking to God:
 
-Por que, Pai, você me deu uma caixa com um buraco e uma caixa inteira, sem
-nenhum vazamento?
+Why, Dad, you gave me a box with a hole and an entire box, without
+no leaks?
 
-O bom Pai respondeu de pronto: Meu filho, a caixa dourada é para você contar
-suas bênçãos. Por isso é fechada. A caixa preta é para você deixar ir embora
-todas as suas tristezas.
-
-                                   *   *   *
-
-Diz o provérbio popular que tristezas não resgatam dívidas. É verdade. Mais do
-que isso, guardar tristezas é extremamente prejudicial à vida.
-
-A tristeza é má conselheira, porque empana a percepção mental de quem lhe sofre
-a presença e lhe perturba o discernimento.
-
-A presença da tristeza produz emoções de sofrimento, que devem ser vencidas a
-esforço de renovação, a fim de que não se transformem em amargura ou
-desinteresse pela existência física.
-
-No concerto harmonioso da Criação tudo convida à alegria. Flora e fauna são um
-poema de maravilhosa estrutura exaltando o Criador.
-
-Apesar da Terra ser um planeta de provas e expiações, é também uma escola de
-campos verdes de infinita beleza, de perfumes no ar e de cascatas que
-arrebentam cristais nas pedras.
-
-Nesse conjunto, só o homem é triste porque ele pensa e a insatisfação, o
-orgulho, o egoísmo, a rebeldia o tornam sombrio, solitário e amargo...
-
-Mas é o mesmo ato de pensar que ergue o homem ao esplendor dos céus e terra,
-águas e leveza do ar, para agradecer o presente da vida no corpo, que lhe
-proporciona a evolução.
+The good Father answered from ready: My son, the golden box is for you to tell
+blessings. That's why it's closed. The black box is for you to let go
+all his sorrows.
 
                                    *   *   *
 
-A tristeza, quando se instala, espalha destruição, não merecendo, portanto,
-aceitação em nossas vidas.
+Says the popular proverb that sorrows do not rescue debts. That's true. More than
+that this, keeping sorrows is extremely harmful to life.
 
-Coloquemo-la, então, sempre na caixa preta, sem fundo, para não guardá-la de um
-dia para o outro, nem da manhã para a tarde ou para a noite.
+Sadness is a bad counselor, because it empanates the mental perception of those who suffer from him
+presence and disturbs discernment.
 
-Depositemos, sim, todos os dias, na caixa dourada da nossa existência, as
-bênçãos com que Deus nos agracia, lembrando que somente o ato de estar vivo,
-isto é, reencarnado, deve constituir motivo de alegria, pelas excelentes
-ocasiões de que dispõe o Espírito para ser plenamente feliz.
+The presence of sadness produces emotions of suffering, which must be overcome to
+renewal effort, so that they do not become bitterness or
+disinterest in physical existence.
 
- 
+In the harmonious concert of Creation everything invites to joy. Flora and fauna are a
+poem of wonderful structure exalting the Creator.
+
+Although the Earth is a planet of evidence and atonement, it is also a school of
+green fields of infinite beauty, perfumes in the air and cascades that
+break crystals on the rocks.
+
+In this whole, only man is sad because he thinks and dissatisfaction, the
+pride, selfishness, rebellion make him dark, lonely and bitter...
+
+But it is the same act of thinking that lifts man to the splendor of heaven and earth,
+waters and lightness of the air, to thank the gift of life in the body, which
+provides evolution.
+
+                                   *   *   *
+
+Sadness, when it settles, spreads destruction, thus not deserving
+acceptance in our lives.
+
+Let's put it, then, always in the black box, bottomless, not to keep it from a
+day to the other, neither from morning to afternoon or evening.
+
+We place, yes, every day, in the golden box of our existence, the
+blessings with which God graces us, remembering that only the act of being alive,
+that is, reincarnated, it must be a cause for joy, for the excellent
+occasions of which the Spirit is available to be fully happy.
+
+
 ## Source
 Redação do Momento Espírita, com base em lenda de autoria
 ignorada e no cap. 4, do livro Perfis da vida, pelo Espírito Guaracy

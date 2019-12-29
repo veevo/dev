@@ -16,76 +16,76 @@ topics:
 ---
 
 
-Há algum tempo recebemos, com alegria, um pequeno folheto, produzido por uma
-empresa de material escolar, intitulado Como fazer acontecer.
+Some time ago we received, with joy, a small pamphlet, produced by a
+school supplies company, entitled How to make it happen.
 
-Nele encontramos uma lista de dicas, de orientações muito seguras para
-conseguir sucesso nas empreitadas de nossa vida.
+In it we find a list of tips, from very safe guidance to
+succeed in the endeaves of our lives.
 
-Sob o subtítulo de Caminhos para um efetivo fazer acontecer, lemos o seguinte:
+Under the subtitle of Paths for an effective make happen, we read the following:
 
-Primeiro: visualize, com detalhes, como se tudo já estivesse realizado –
-imagine com pormenores o estado desejado. Essa imagem cristalina é algo que irá
-naturalmente orientá-lo quanto ao que deve ser feito, como começar etc.
+First: view, in detail, as if everything was already accomplished -
+imagine in detail the desired state. This crystal clear image is something that will
+of course guide you as to what should be done, how to get started etc.
 
-Segundo: dê rapidamente o primeiro passo – confie nos “lampejos” que você tem.
-Se você sente confiança interior, aja sem hesitação e dê o primeiro passo. A
-natureza fará a sequência acontecer.
+Second: quickly take the first step – trust the flashes you have.
+If you feel inner confidence, act without hesitation and take the first step. The
+nature will make the sequence happen.
 
-Terceiro: faça tudo de corpo e alma – não seja “morno”, “fazendo por fazer”.
-Até o impossível se torna possível quando nos envolvemos integralmente.
+Third, do everything body and soul – don't be "warm," "doing it".
+Even the impossible becomes possible when we get fully involved.
 
-Quarto: faça tudo com boa vontade e prazer – a probabilidade de dar certo
-aumenta tremendamente quando fazemos tudo com a mente alegre.
+Fourth: do everything with good will and pleasure – the probability of working
+increases tremendously when we do everything with a cheerful mind.
 
-Quinto: seja otimista – não se deixe influenciar pelos cínicos e pelos
-pessimistas. Ajude a construir o ideal, a cada dia dando o passo do dia.
+Fifth: be optimistic – don't let yourself be influenced by cynics and
+Pessimistic. Help build the ideal every day taking the step of the day.
 
-Sexto: concentre-se em seus pontos fortes – ao invés de se deixar bloquear por
-eventuais pontos fracos, ancore-se no que você tem de melhor.
+Sixth: Focus on your strengths – rather than letting yourself be blocked by
+possible weaknesses, anchor yourself in what you have best.
 
-Sétimo: concentre energia – evite desperdiçá-la fazendo as coisas pela metade,
-ou começando muitos projetos sem nada concluir.
+Seventh: concentrate energy – avoid wasting it by doing things in half,
+or starting many projects with nothing to complete.
 
-Oitavo: seja natural – não se deixe derrotar pelo “excesso de esforço”. Faça o
-que tem que ser feito e mantenha a tranquilidade interior. Dê espaço e tempo
-para a natureza também fazer a sua parte.
+Eighth: be natural – don't be defeated by "over-effort." Do the
+that has to be done and maintain inner tranquility. Give space and time
+for nature also do its part.
 
-Nono: seja transparente – nem sequer pense desonestamente, pois isso drena sua
-energia. Já imaginou quanto de energia gastamos para “proteger” a mentira
-contada ontem? Ser transparente faz multiplicar energia.
+Ninth: be transparent – don't even think dishonestly, as it drains your
+Energy. Have you ever wondered how much energy we spend to "protect" the lie
+counted yesterday? Being transparent makes energy multiply.
 
-Décimo: seja generoso – “a generosidade move montanhas.” As coisas fluem melhor
-à sua volta porque a generosidade faz agir. Picuinhas, ao contrário, imobilizam
-as pessoas.
+Tenth: be generous – "generosity moves mountains." Things flow better
+around him because generosity makes him act. Picuinhas, on the contrary, immobilize
+people.
 
-Décimo primeiro: aja sempre com justiça, isto é, evite a postura de tirar
-vantagem de tudo. Aja pensando em benefícios para todos. As coisas passam a
-acontecer com mais fluidez.
+Eleventh: always act fairly, that is, avoid the posture of taking
+advantage of everything. Act thinking about benefits for everyone. Things start to
+happen more fluidly.
 
-Décimo segundo passo: confie 100% em sua força interior – fazer acontecer exige
-fé, principalmente em si mesmo. É essa convicção que o deixa solto para fazer o
-que é necessário.
+Twelfth step: trust 100% in your inner strength – making it happen requires
+faith, especially in itself. It is this conviction that lets him loose to make the
+that is necessary.
 
-Finalmente, décimo terceiro: busque excelência, sempre – um fazer acontecer
-efetivo deve estar ancorado na busca do melhor, do perfeito, do ideal. O tempo
-que levaremos para chegar à perfeição é outra coisa. O alvo, porém, deve sempre
-ser a perfeição.
+Finally, thirteenth: seek excellence, always – a make happen
+must be anchored in the search for the best, the perfect, the ideal. Time
+that we will take to achieve perfection is something else. The target, however, should always
+be perfection.
 
                                    *   *   *
 
-A acomodação pode tornar-se um vício perigoso em nossa vida.
+Accommodation can become a dangerous addiction in our lives.
 
-Utilizamos a palavra vício, pois, se permitirmos, ela vai nos dominando, nos
-dominando, até fazer parte de nosso estado natural de ser.
+We use the word vice, because if we allow it, it dominates us, in the
+dominating, until it is part of our natural state of being.
 
-O que começa hoje com uma pequena preguiça, com um pequeno desânimo, pode
-ganhar proporções maiores e nos lançar a processos de depressão e tristeza.
+What begins today with a little laziness, with a little discouragement, can
+gain greater proportions and launch us to processes of depression and sadness.
 
-Assim, permaneçamos atentos a qualquer indício desses sentimentos que não são
-nada bem-vindos, e logo os espantemos para longe de nós.
+Thus, let us remain attentive to any indication of these feelings that are not
+welcome, and soon we dust them away from us.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, a partir do texto Como

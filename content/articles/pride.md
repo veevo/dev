@@ -17,81 +17,81 @@ topics:
 - prayer
 ---
 
-Uma das maiores dificuldades com que se debate a Humanidade é o orgulho.
+One of the biggest difficulties facing humanity is pride.
 
-Chaga destruidora, se instala na nossa intimidade e não permite que nos
-libertemos com facilidade.
+Destructive Chaga, settles in our intimacy and does not allow us to
+let us release easily.
 
-Quando a razão alerta que é melhor perdoar, o orgulho se manifesta sobranceiro
-impedindo a atitude.
+When reason warns that it is better to forgive, pride manifests itself overlooking
+preventing attitude.
 
-Quando o coração manifesta o desejo de estender a mão da fraternidade, surge o
-orgulho e detém o gesto.
+When the heart manifests the desire to extend the hand of fraternity, the
+pride and holds the gesture.
 
-Se a consciência nos adverte quanto aos equívocos cometidos, o orgulho brota
-soberano e nos faz acreditar que somente os outros são capazes de se equivocar.
+If consciousness warns us of the misconceptions committed, pride springs
+sovereign and makes us believe that only others are able to be mistaken.
 
-Quando o aviso vem de fora, através de um amigo ou familiar, imediatamente se
-faz presente o orgulho e nos impede de aceitar qualquer observação contrária à
-nossa posição.
+When the warning comes from outside, through a friend or family member, immediately if
+pride is present and prevents us from accepting any observation contrary to the
+our position.
 
-Dessa forma, o orgulho, de mãos dadas com o egoísmo, constituem as duas chagas
-da sociedade.
+Thus, pride, holding hands with selfishness, constitute the two wounds
+society.
 
-Duas chagas intimamente arraigadas nas almas, que as impedem de ver o
-verdadeiro caminho da felicidade.
+Two wounds intimately rooted in souls, which prevent them from seeing the
+true path of happiness.
 
-Normalmente o orgulho costuma se disfarçar de amor próprio e o egoísmo de
-previdência.
+Usually pride usually disguises itself with self-love and the selfishness of
+Security.
 
-Vale distinguir bem uma coisa da outra, para que não nos enganemos na avaliação
-dos nossos sentimentos.
+It is worth distinguishing well from one thing from the other, so that we do not be mistaken in the evaluation
+of our feelings.
 
-O orgulho é arrogante, cheio de empáfia, e sempre nos leva ao despotismo.
-Queremos que todos nos respeitem e agimos como se fossemos o protótipo da
-perfeição.
+Pride is arrogant, full of empphius, and always leads us to despotism.
+We want everyone to respect us and act like we're the prototype of
+Perfection.
 
-O orgulhoso não pondera nada, ou se o faz, faz por conveniência.
+The proud ponders nothing, or if he does, he does it for convenience.
 
-Já o amor próprio tem a face da brandura. Aquele que se ama age com amor para
-com os seus semelhantes.
+Self-love, on the other hand, has the face of softness. He who loves himself acts with love to
+with their fellow men.
 
-O amor próprio é muito distinto do orgulho. O orgulhoso não perdoa, por achar
-que todos devem respeitar sua pseudoautoridade.
+Self-love is very distinct from pride. The proud does not forgive, for finding
+that everyone should respect their pseudoauthority.
 
-Já o amor próprio vê no semelhante um verdadeiro irmão. Percebe que se seu amor
-é capaz do autoperdão, também o é do perdão às falhas alheias.
+Self-love, on the other hand, sees in the fellow a true brother. Realizes that if your love
+is capable of self-forgiveness, it is also from forgiveness to other people's failures.
 
-Quanto à confusão do egoísmo com a previdência, é importante que atentemos para
-nossa intenção mais secreta.
+As for the confusion of selfishness with social security, it is important that we pay attention to
+our most secret intention.
 
-Se, tendo condições, só pensamos em nós ou em nossos familiares, e esquecemos
-dos que caminham no mundo sem recurso algum, isso não é previdência, mas
-egoísmo.
+If, in terms of conditions, we only think of ourselves or our families, and forget
+of those who walk in the world without any recourse, that's not welfare, but
+Selfishness.
 
-Se somos adeptos do cada um por si, estamos nos esquecendo da Lei de Sociedade,
-que é uma das Leis Divinas.
+If we are each other's supporters, we are forgetting the Law of Society,
+which is one of the Divine Laws.
 
-É importante que pensemos em nós e nos nossos com previdência. Mas também o é
-que não só em nós e nos nossos pensemos.
+It's important that we think of ourselves and ours with social security. But it is also
+that not just in us and our thinks.
 
-Se todos somos irmãos, nossa visão deve ser alargada para abranger o conjunto.
-E, se pudermos contribuir de forma efetiva com o bem-estar dos nossos
-semelhantes que o façamos com altruísmo.
+If we are all brothers, our vision must be broadened to cover the whole.
+And if we can effectively contribute to the well-being of our
+to do so with altruism.
 
                                    *   *   *
 
-Somente os corajosos conseguem triunfar do orgulho e do egoísmo.
+Only the brave can triumph from pride and selfishness.
 
-Costuma-se dizer que o corajoso não leva desaforo para casa. Mas, em verdade, a
-coragem e a verdadeira superioridade estão na tolerância de uma injúria e não
-no revide.
+It is often said that the brave does not take care of home. But, in fact, the
+courage and true superiority are in the tolerance of an injury and not
+in the review.
 
-É tão fácil reagir diante de uma ofensa. É tão comum devolver o troco com a
-mesma moeda. O difícil e, portanto, menos comum, é mostrar a outra face. A face
-da brandura, da tolerância, da verdadeira grandeza de caráter.
+It's so easy to react to an offense. It is so common to return the change with the
+same coin. The difficult and therefore less common is to show the other face. The face
+of softness, tolerance, true greatness of character.
 
-Pensemos nisso!
+Let's think about it!
 
 ## Source
 Redação do Momento Espírita.

@@ -14,79 +14,79 @@ topics:
 - child
 ---
 
-Conta-se que nas Ilhas Salomão, no Pacífico Sul, os nativos descobriram um
-jeito inteiramente diferente de derrubar árvores.
+It is said that in the Solomon Islands in the South Pacific, the natives discovered a
+entirely different way of tearing down trees.
 
-Se algum tronco é grosso demais para ser abatido com os seus machados, eles o
-derrubam no grito.
+If any trunk is too thick to be slaughtered with their axes, they the
+they drop in the scream.
 
-Isso mesmo, no grito. Lenhadores sobem na árvore toda manhã bem cedinho e se
-põem a gritar.
+That's right, in the scream. Lumberjacks climb the tree every morning well and
+they scream.
 
-Repetem o ritual durante trinta dias. A árvore morre e cai por terra. Segundo
-eles, o método nunca falha e a explicação, também segundo os nativos, é que,
-gritando, eles matam o espírito da árvore.
+They repeat the ritual for thirty days. The tree dies and falls apart. Second
+them, the method never fails and the explanation, also according to the natives, is that,
+screaming, they kill the spirit of the tree.
 
-Os civilizados logo pensam que se eles dispusessem de tecnologia moderna,
-poderiam simplesmente derrubar a árvore com máquinas poderosas, rapidamente e
-de forma mais eficiente.
+Civilized people soon think that if they had modern technology,
+could simply tear down the tree with powerful machines, quickly and
+more efficiently.
 
-Entretanto, a técnica desses nativos nos leva a pensar em como nós ainda
-utilizamos o grito em nossas vidas.
+However, the technique of these natives leads us to think about how we still
+we use the cry in our lives.
 
-Gritamos no trânsito, quando um motorista desatento executa alguma manobra
-infeliz, dificultando a nossa livre circulação.
+We scream in traffic when an inattentive driver performs some maneuver
+unfortunately, making it difficult for us to free movement.
 
-Gritamos no jogo de futebol, com o juiz, o bandeirinha, o jogador, e até mesmo
-com a bola que parece desviar do gol só para nos provocar.
+We screamed at the football game, with the referee, the flag, the player, and even
+with the ball that seems to deflect from the goal just to provoke us.
 
-Falamos alto com o segurança do banco porque a porta giratória nos impede a
-entrada. Xingamos o caixa do supermercado porque é muito lento, porque não
-empacota a mercadoria, porque nos fornece o troco errado.
+We speak loudly with the security of the bank because the revolving door prevents us from
+Entry. We cursed the supermarket cashier because it's too slow, because it doesn't
+package the goods, because it provides us with the wrong change.
 
-Brigamos com os aparelhos eletrodomésticos porque não funcionam direito.
+We fight with appliances because they don't work properly.
 
-Em casa, muitas vezes, ao chamarmos a atenção para o que está errado,
-esquecemos de controlar o volume da voz e falamos alto demais com nossos
-filhos, com a esposa, com nossos irmãos.
+At home, often, as we draw attention to what is wrong,
+we forget to control the volume of the voice and talk too loudly with our
+children, with his wife, with our brothers.
 
-Quase sempre gritamos com as crianças quando estão fazendo alguma traquinagem.
-Contudo, o grito, além de não educar, assusta.
+We almost always yell at the kids when they're doing some pesky.
+However, the cry, besides not educating, scares.
 
-Podemos imaginar os distúrbios provocados no organismo frágil dos pequenos, com
-um grande susto?
+We can imagine the disturbances caused in the fragile organism of the small, with
+a big scare?
 
-Com os colegas de trabalho, é comum exagerarmos no tom da voz apenas para dizer
-que determinada tarefa deve ser refeita.
+With co-workers, it is common to exaggerate in the tone of the voice just to say
+that particular task should be redone.
 
-Em locais públicos, como restaurantes, lanchonetes, quando em grupos, nos
-esquecemos do respeito que devemos às pessoas, e nos permitimos gargalhar,
-falar alto demais. E nem nos damos conta do quanto a nossa algazarra perturba
-os ouvidos alheios.
+In public places, such as restaurants, snack bars, when in groups, in the
+we forget the respect we owe people, and allow ourselves to laugh,
+speak too loudly. And we don't even realize how much our fuss disturbs
+the ears of others.
 
-Tudo isso nos faz reflexionar. Se os nativos das Ilhas Salomão descobriram que
-as árvores são sensíveis aos gritos, que dizer dos seres humanos!
+All this makes us reflective. If the natives of the Solomon Islands have discovered that
+the trees are sensitive to the screams, what to say of humans!
 
-Pensemos: com gritos e gargalhadas, perturbamos ambientes e pessoas. Com
-palavras grosseiras, ditadas pela nossa impaciência, podemos partir corações
-que nos amam ou criar inseguranças em filhos pequenos, que passam a nos temer,
-em vez de respeitar.
+Let's think: with screams and laughter, we disturb environments and people. With
+coarse words, dictated by our impatience, we can break hearts
+who love us or create insecurities in young children, who come to fear us,
+instead of respecting.
 
                                    *   *   *
 
-No trato pessoal, a fala desempenha papel importante.
+In the personal treatment, speech plays an important role.
 
-A magia da voz é daquelas que não deve ser esquecida por todos os que se acham
-envolvidos nas lides humanas, escutando os diversos corações.
+The magic of the voice is one of those who should not be forgotten by all who find themselves
+involved in human relations, listening to the various hearts.
 
-Por isso, utilizemos a palavra para construir, edificar, com o objetivo de
-fazer a vida brilhar.
+Therefore, let us use the word to build, build, with the aim of
+make life shine.
 
-Falemos com valor, falemos com amor, para que sejamos felizes e façamos os
-demais também felizes.
+Let us speak with value, talk with love, so that we may be happy and make the
+too happy.
 
-Não nos esqueçamos de que a gentileza e o respeito no trato pessoal também
-significam caridade.
+Let us not forget that kindness and respect in personal dealing so too
+they mean charity.
 
 ## Source
 Redação do Momento Espírita com base em artigo de Robert Fulghum, da

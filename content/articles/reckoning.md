@@ -11,112 +11,112 @@ topics:
 - faithlicidade
 ---
 
-O Espiritismo ensina que as Leis Divinas encontram-se inscritas na Natureza e
-na consciência de cada Espírito.
+Spiritism teaches that Divine Laws are inscribed in nature and
+in the consciousness of every Spirit.
 
-Quem se dedica a observar o mundo que o cerca, consegue assimilar o teor de
-tais Leis.
+Who is dedicated to observing the world that surrounds it, can assimilate the content of
+such Laws.
 
-Entretanto, o guia mais seguro é a consciência.
+However, the safest guide is consciousness.
 
-Durante um tempo, o egoísmo logra turvar a percepção do estatuto Divino.
+For a time, selfishness hinders the perception of Divine status.
 
-O egoísmo origina-se da identificação com a matéria.
+Selfishness originates from identification with matter.
 
-Quanto mais sintonizado com os prazeres materiais, mais dificuldade tem o homem
-em ser abnegado.
+The more tuned to the material pleasures, the more difficulty man has
+to be selfless.
 
-Nos círculos inferiores da vida, o egoísmo representa condição de
-sobrevivência.
+In the lower circles of life, selfishness represents a condition of
+Survival.
 
-Os seres irracionais ocupam-se apenas com sua manutenção.
+Irrational beings are only concerned with their maintenance.
 
-Quando famintos, os animais carnívoros simplesmente caçam e matam.
+When hungry, carnivorous animals simply hunt and kill.
 
-Se não forem hábeis e insensíveis à dor da presa, eles e seus filhotes morrem.
+If they are not skilled and insensitive to the pain of prey, they and their cubs die.
 
-Um egoísmo muito marcante constitui sinal de pouca evolução.
+A very striking selfishness is a sign of little evolution.
 
-Quem só consegue pensar no próprio bem-estar assemelha-se às feras da Natureza.
+Those who can only think of their own well-being resemble the beasts of nature.
 
-O mundo gira em redor de seu umbigo e ele não se incomoda em causar dores e
-desgraças aos semelhantes.
+The world revolves around his navel and he doesn't bother to cause pain and
+misfortunes to the like.
 
-Entretanto, os Espíritos são dotados de liberdade, consciência e vontade.
+However, spirits are endowed with freedom, conscience, and will.
 
-Consequentemente, respondem por seus atos.
+Consequently, they answer for their acts.
 
-Nenhum ser pode dar o que não tem.
+No being can give what you don't have.
 
-Não se esperam ações éticas de animais, pois isso está além de sua capacidade.
+Animal ethical actions are not expected, as this is beyond their ability.
 
-Mas os homens têm condições de agir com base em parâmetros éticos.
+But men are able to act on ethical parameters.
 
-Justamente por isso, seus atos não podem ser ditados exclusivamente pelo
-interesse pessoal.
+Precisely for this reason, their acts cannot be dictated exclusively by the
+personal interest.
 
-Os eventos dolorosos da Natureza, como o sofrimento, a doença e a morte, são
-universais.
+Nature's painful events, such as suffering, sickness and death, are
+Universal.
 
-Ninguém escapa de experimentá-los, em maior ou menor grau.
+No one escapes trying them to a greater or lesser extent.
 
-A inteligência humana possibilita assimilar a essencial igualdade de todos os
-homens.
+Human intelligence makes it possible to assimilate the essential equality of all
+Men.
 
-Essa similaridade demonstra que ser solidário é um dever elementar em face da
-vida.
+This similarity demonstrates that being supportive is an elementary duty in the face of
+Life.
 
-Com o passar dos séculos, gradualmente, o Espírito se compenetra dessa
-realidade.
+Over the centuries, gradually, the Spirit penetrates this
+Reality.
 
-Tudo o que se refere à matéria é passageiro.
+Everything that refers to the matter is fleeting.
 
-Entretanto, ele possui uma consciência que sempre o acompanha.
+However, he has a consciousness that always accompanies him.
 
-Cada dor deliberadamente causada ao próximo nela está registrada.
+Every pain deliberately caused to the next one in it is recorded.
 
-As leviandades, as humilhações infligidas, tudo isso gera dor e arrependimento.
+Levity, the humiliations inflicted, all this generates pain and repentance.
 
-Quanto mais vivido e experiente, mais responsável é o Espírito.
+The more lived and experienced, the more responsible the Spirit is.
 
-Chega um momento em que o ser espiritual se desgosta do mal.
+There comes a time when the spiritual being dislikes evil.
 
-Farto de erros e baixezas, ele decide trabalhar pelo próprio aperfeiçoamento.
+Tired of errors and rascalities, he decides to work for his own improvement.
 
-Então, prepara para si encarnações nas quais possa se recompor com o passado.
+Then prepare for you incarnations in which you can recompose with the past.
 
-Não mais se preocupa com facilidades materiais.
+You no longer care about material facilities.
 
-Riqueza, beleza e poder já não lhe interessam.
+Wealth, beauty and power no longer interest you.
 
-Quando assume elevadas posições é apenas no intuito de melhor trabalhar para o
-semelhante.
+When you take high positions, it is only in order to better work for the
+Similar.
 
-O que conta mesmo é a perspectiva de se recompor perante as Leis Divinas.
+What counts even is the prospect of recomporiting itself before divine laws.
 
-À medida que perde o gosto pelas coisas materiais, o egoísmo o abandona.
+As he loses his taste for material things, selfishness abandons him.
 
-Desembaraçado de preocupações mesquinhas, caminha vigorosamente para a
-libertação e a transcendência.
+Untangled from petty concerns, he walks vigorously to the
+liberation and transcendence.
 
-Dificuldades não o assustam, pois sua meta é elevada e sua esperança no futuro
-é infinita.
+Difficulties do not scare him, for his goal is high and his hope for the future
+it's infinite.
 
                                    *   *   *
 
-Se você enfrenta graves problemas e dores, talvez tenha chegado o momento de
-seu acerto de contas.
+If you face serious problems and pain, the time has come to
+your reckoning.
 
-Não complique a sua programada recuperação espiritual com preguiça e revolta.
+Do not complicate your scheduled spiritual recovery with laziness and revolt.
 
-Consciente da transitoriedade da vida na Terra, dedique-se a conquistar o que é
-permanente.
+Aware of the transience of life on Earth, detain to conquer what is
+Permanent.
 
-Combata seu egoísmo e esforce-se por agir no bem com desinteresse.
+Fight your selfishness and strive to act well with disinterest.
 
-A melhor forma de ser feliz é cuidar da felicidade do próximo.
+The best way to be happy is to take care of the happiness of others.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

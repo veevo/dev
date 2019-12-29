@@ -16,94 +16,94 @@ topics:
 - child
 ---
 
-A humanidade é essencialmente díspar em suas características.
+Humanity is essentially disparate in its characteristics.
 
-Cada criatura possui facilidades e dificuldades que lhe são inerentes.
+Each creature has facilities and difficulties inherent to it.
 
-A educação e o meio ambiente exercem influência no comportamento humano.
+Education and the environment influence human behavior.
 
-Mas certas tendências são inexplicáveis, no contexto de uma única existência.
+But certain trends are unexplained in the context of a single existence.
 
-Dentro do mesmo núcleo familiar, há marcantes diferenças de moralidade e
-equilíbrio entre irmãos.
+Within the same family nucleus, there are marked differences in morality and
+balance between brothers.
 
-Algumas crianças, desde a mais tenra idade, demonstram boa índole.
+Some children, from an early age, demonstrate good character.
 
-Equilibradas e serenas, aceitam com tranqüilidade a disciplina e a orientação
-dos pais. Já outras trazem a marca da rebeldia.
+Balanced and serene, they accept with tranquility the discipline and guidance
+of the parents. Others, on the other hand, bring the mark of rebellion.
 
-Instáveis e difíceis, por vezes até cruéis, constituem um desafio para a
-paciência dos familiares.
+Unstable and difficult, sometimes even cruel, are a challenge for the
+patience of family members.
 
-A realidade é que os espíritos encarnam infinitas vezes, em seu caminhar para a
-perfeição.
+The reality is that spirits embody endless times, in their journey to the
+Perfection.
 
-Cada qual é herdeiro de si próprio.
+Each of which is heir to himself.
 
-Ao reencarnar, o espírito traz consigo o que adquiriu em suas precedentes
-existências.
+By reincarnating, the spirit brings with it what it has acquired in its previous
+Stocks.
 
-Essa é a razão pela qual os homens mostram pendores bons ou maus, que neles
-parecem inatos.
+That's the reason why men show good or bad pendores, which in them
+they seem innate.
 
-Virtudes e vícios não são obras do acaso.
+Virtues and vices are not works of chance.
 
-Eles constituem o resultado de opções feitas no passado.
+They are the result of options made in the past.
 
-Quem se esforçou para burilar o próprio intelecto, hoje possui avantajada
-inteligência.
+Who struggled to circumvent their own intellect, today has advanced
+Intelligence.
 
-Aquele que gastou tempo aprimorando a sensibilidade artística dispõe atualmente
-de facilidade no campo das artes.
+The one who has spent time improving artistic sensitivity currently has
+ease in the field of arts.
 
-Já a criatura que se permitiu malbaratar os tesouros da vida ressente-se de sua
-falta.
+The creature that allowed itself to minatize the treasures of life resents its
+Lack.
 
-O ser que elegeu o vício no passado tem-no presente em seu íntimo.
+The being that elected addiction in the past has present it in its heart.
 
-Os maus pendores naturais são resquícios de imperfeições das quais o espírito
-ainda não se despojou.
+The evil natural pendores are remnants of imperfections of which the spirit
+it hasn't stripped yet.
 
-Eis o verdadeiro pecado original.
+Here's true original sin.
 
-As leis humanas, embora ainda falíveis e injustas, repelem a idéia de penalizar
-um homem pelo que outro fez.
+Human laws, though still fallible and unfair, repel the idea of penalizing
+one man for what another did.
 
-Como Deus é soberanamente justo e bom, é incoerente imaginar que ele
-responsabilize uns pelas faltas de outros.
+As God is sovereignly just and good, it is incoherent to imagine that he
+hold on to each other's faults.
 
-Cada qual se debate com a herança que providenciou para si.
+Each one struggles with the heritage he has provided for himself.
 
-Luz ou sombra, facilidades ou dificuldades, o que hoje se vive é resultado do
-que se fez no pretérito.
+Light or shadow, facilities or difficulties, what is currently experienced is the result of the
+that was done in the past.
 
-Não adianta culpar ninguém pelas dificuldades atuais.
+There's no point blaming anyone for the current difficulties.
 
-Em geral, a recordação das vidas passadas não é possível ou desejável. Mas as
-tendências atuais evidenciam os pontos carentes de correção, na economia da
-alma.
+In general, the memory of past lives is not possible or desirable. But the
+current trends highlight the points lacking in correction, in the economy of
+Soul.
 
-O ontem é passado e não pode ser modificado. Mas hoje estão sendo lançadas as
-bases do futuro.
+Yesterday is passed and can not be modified. But today are being launched the
+foundations of the future.
 
-Este é o momento de refletir maduramente sobre o amanhã que virá, e adotar
-medidas para que ele seja luminoso.
+This is the time to reflect maturely on the coming tomorrow, and adopt
+measures so that it is luminous.
 
-Ninguém fará o trabalho que lhe compete.
+No one will do their job.
 
-A nobreza de caráter, a inteligência, a pureza, nada disso pode ser
-improvisado.
+The nobility of character, intelligence, purity, none of this can be
+Improvised.
 
-Se você deseja ser pacífico e bondoso, precisa criar o hábito de ser assim.
+If you want to be peaceful and kind, you need to create a habit of being like this.
 
-Diariamente você é confrontado com situações que exigem um posicionamento.
+Daily you are faced with situations that require positioning.
 
-Compete exclusivamente a você optar por ser digno ou indigno, corajoso ou
-covarde, generoso ou mesquinho.
+It is solely up to you to choose to be worthy or unworthy, courageous or
+cowardly, generous or petty.
 
-Mas saiba que está diariamente lançando as sementes de seu futuro.
+But know that you are daily casting the seeds of your future.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Equipe de Redação do Momento Espírita, com base no capítulo I do livro O

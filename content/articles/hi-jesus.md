@@ -9,86 +9,86 @@ topics:
 ---
  
 
-Cada dia, ao meio dia, um pobre velho entrava na igreja e, poucos minutos
-depois, saía. Um dia, o sacristão lhe perguntou o que fazia, pois havia objetos
-de valor na igreja.
+Every day, at noon, a poor old man entered the church and, a few minutes
+then i'd leave. One day, the sexton asked him what he was doing, for there were objects
+of value in the church.
 
-Venho rezar, respondeu o velho.
+I come to pray, answered the old man.
 
-Mas é estranho, disse o sacristão, que você consiga rezar tão depressa.
+But it's weird, said the sexton, that you can pray so quickly.
 
-Bem, retrucou o velho, eu não sei rezar aquelas orações compridas. Mas todo
-dia, ao meio dia, eu entro na igreja e falo:
+Well, you retorted the old man, I can't pray those long prayers. But all
+day, at noon, I enter the church and say:
 
-"Oi Jesus, eu sou o Zé. Vim  visitar você."
+"Hi Jesus, I am The Ze. I came to visit you."
 
-Num minuto, já estou de saída. É só uma oraçãozinha, mas tenho certeza que Ele
-me ouve.
+One minute, I'm just leaving. It's just a little prayer, but I'm sure He
+Listen to me.
 
-Alguns dias depois, Zé sofreu um acidente e foi internado num hospital. Na
-enfermaria, passou a exercer grande influência sobre todos.
+A few days later, Zé suffered an accident and was admitted to a hospital. In
+infirmary, began to exert great influence on everyone.
 
-Os doentes mais tristes tornaram-se alegres e, naquele ambiente onde antes só
-se ouviam lamentos, agora muitos risos passaram a ser ouvidos.
+The saddest patients became cheerful and in that environment where before only
+if they heard laments, now many laughs have come to be heard.
 
-Um dia, a freira responsável pela enfermaria aproximou-se do Zé e comentou: Os
-outros doentes dizem que você está sempre tão alegre, Zé...
+One day, the nun responsible for the infirmary approached Zé and commented: The
+other patients say you're always so cheerful, Yogi...
 
-O pobre enfermo respondeu prontamente: É verdade, irmã. Estou sempre muito
-alegre! E digo-lhe que é por causa daquela visita que recebo todos os dias. Ela
-me faz imensamente feliz.
+The poor sick replied promptly: It is true, sister. I'm always very
+Cheerful! And I'm telling you it's because of that visit I get every day. She
+makes me immensely happy.
 
-A irmã ficou intrigada. Já tinha notado que a cadeira encostada na cama do Zé
-estava sempre vazia. Aquele velho era um solitário, sem ninguém.
+Her sister was intrigued. I had noticed that the chair leaning against Zé's bed
+it was always empty. That old man was a loner with no one.
 
-Quem o visita? E a que horas? Perguntou-lhe.
+Who visits you? And at what time? He asked him.
 
-Bem, irmã, todos os dias, ao meio dia, Ele vem ficar ao pé da cama por alguns
-minutos, talvez segundos... Quando olho para Ele, Ele sorri e me diz:
+Well, sister, every day, at noon, he comes to stand by the bed for some
+minutes, maybe seconds... When I look at Him, He smiles and says to me:
 
-"Oi Zé, eu sou Jesus, vim te visitar".
+"Hi Yogi, I am Jesus, I came to visit you."
 
                                    *   *  *
 
-A história é singela e seu autor é desconhecido.
+The story is simple and its author is unknown.
 
-No entanto, o ensinamento que contém nos faz refletir profundamente.
+However, the teaching it contains makes us reflect deeply.
 
-Fala-nos da fé, da simplicidade, da dedicação e da perseverança.
+It tells us about faith, simplicity, dedication and perseverance.
 
-Quem de nós dispõe, como o Zé, diariamente, de alguns minutos para falar com
+Who of us has, like Zé, daily, a few minutes to talk to
 Jesus?
 
-Muitos ainda confundimos a oração com um amontoado de palavras que vão saindo
-da boca, destituídas de sentimento e de humildade.
+Many still confuse prayer with a heaking of words that come out
+of the mouth, devoid of feeling and humility.
 
-Quantos de nós temos tal perseverança, tanto nas horas de alegria quanto nas de
-dor, para elevar o pensamento a Jesus, confiando-lhe a nossa intimidade, com a
-certeza de que Ele nos ouvirá?
+How many of us have such perseverance, both in the hours of joy and in the
+pain, to raise thought to Jesus, entrusting him with our intimacy, with the
+sure that He will hear us?
 
-A oração é uma ponte que se distende da alma opressa para que o alívio possa
-chegar.
+Prayer is a bridge that is detained from the oppressive soul so that relief can
+Get.
 
- É o fio misterioso, que nos coloca em comunhão com as esferas divinas.
+ It is the mysterious thread, which puts us in communion with the divine spheres.
 
-É um bálsamo que cura nossas chagas interiores.
+It is a balm that heals our inner wounds.
 
-É um templo, em cuja doce intimidade encontraremos paz e refúgio.
+It is a temple, in whose sweet intimacy we will find peace and refuge.
 
-Enfim, para as sombras da nossa alma, a oração será sempre libertadora
-alvorada, repleta de renovação e luz.
+Finally, to the shadows of our soul, prayer will always be liberating
+dawn, filled with renewal and light.
 
-É importante que cultivemos a fé inabalável nas soberanas leis que regem a vida
-e das quais o Sublime Galileu nos trouxe notícias.
+It is important that we have cultivated unwavering faith in sovereign laws governing life
+and of which sublime Galileo brought us news.
 
-É preciso orar, ainda que a nossa oração seja singela, mas que seja movida pelo
-sentimento.
+We must pray, even if our prayer is simple, but that it is moved by the
+Feeling.
 
                                    *   *   *
 
-Orando, chegarás ao Senhor, que te deu, na prece, um meio seguro de comunicação
-com a infinita bondade de Deus, em cujo seio dessedentarás o Espírito aflito...
- 
+Praying, you will come to the Lord, who gave you, in prayer, a safe means of communication
+with the infinite goodness of God, in whose unsedentary boon the afflicted Spirit...
+
 
 ## Source
 Redação do Momento Espírita com base em história de autor desconhecido, e

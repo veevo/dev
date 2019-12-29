@@ -7,85 +7,85 @@ topics:
 - family
 ---
 
-O bambu chinês (bambusa mitis) é uma planta da família das gramíneas, nativa do
-Oriente.
+Chinese bamboo (bambusa mitis) is a plant of the family of grasses, native to the
+East.
 
-Destacamos aqui uma particularidade muito interessante, relativa ao seu
-crescimento.
+We highlight here a very interesting particularity, relating to your
+Growth.
 
-Depois de plantada a semente desse incrível arbusto, não se vê nada por
-aproximadamente cinco anos, exceto um lento desabrochar de um diminuto broto a
-partir do bulbo.
+After planting the seed of this incredible bush, you see nothing for
+approximately five years, except a slow blossoming from a small bud to
+from the bulb.
 
-Durante cinco anos, todo crescimento é subterrâneo, invisível a olho nu.
+For five years, all growth is underground, invisible to the naked eye.
 
-O que ninguém vê, é que uma maciça e fibrosa estrutura de raiz, que se estende
-vertical e horizontalmente pela terra, está sendo cuidadosamente construída.
+What no one sees, is that a massive and fibrous root structure, which extends
+vertically and horizontally by the earth, it is being carefully built.
 
-Então, lá pelo final do quinto ano, o bambu chinês cresce, até atingir a altura
-surpreendente de vinte e cinco metros.
-
-                                   *   *   *
-
-Quantas coisas em nossa vida são similares ao bambu chinês...
-
-Trabalhamos, investimos tempo, esforço, dedicação e, às vezes, não vemos
-resultado algum por semanas, meses ou anos.
-
-Quem sabe, se lembrarmos desta lição que a natureza nos dá, através do bambu
-chinês, teremos a paciência necessária para esperar o tal quinto ano.
-
-Assim não deixaremos de persistir, de lutar, de investir em nós mesmos, sabendo
-que os frutos virão com o tempo.
-
-Muitos ainda somos imediatistas, desejando o retorno fácil, a conquista
-instantânea.
-
-Esquecemos que todas as grandes e valorosas conquistas da alma demandam tempo,
-exigem esforço de muitos e muitos anos e, às vezes, de muitas vidas.
-
-Esse hábito de não desistir de nossos objetivos, de continuar tentando, de não
-se abalar perante os inevitáveis obstáculos, constitui uma virtude.
-
-Continuar, persistir, manter constância e firmeza, fazem parte da
-importantíssima virtude da perseverança.
-
-A perseverança é o combustível dos vencedores.
-
-Mas não dos vencedores mundanos, de vitórias superficiais e transitórias. Mas
-daqueles que vencem a si mesmos, que vencem dificuldades no anonimato.
-
-Tomas Edison, homem perseverante, afirmou que nossa maior fraqueza está em
-desistir, e que o caminho mais certo para vencer é tentar mais uma vez.
-
-E quantas centenas de vezes ele tentou fabricar sua lâmpada, sem sucesso... E o
-mais interessante é que as muitas tentativas frustradas lhe davam mais forças
-ainda.
-
-Eu não falhei. – Dizia ele. Encontrei dez mil soluções que não davam certo.
-
-Em outro momento afirmou que os três grandes fundamentos para se conseguir
-qualquer coisa são: primeiro, trabalho árduo; segundo, perseverança; terceiro:
-senso comum.
-
-Aprendamos com esses expoentes que muito conseguiram, não vislumbrando apenas
-os louros da glória, ou apenas admirando contemplativamente.
-
-Respeitemo-los por suas aquisições valorosas, e enxerguemos o caminho todo que
-trilharam até conseguir seu sucesso.
+Then, by the end of the fifth year, Chinese bamboo grows, until it reaches height
+twenty-five meters.
 
                                    *   *   *
 
-Não asseveres: É-me impossível fazer!
+How many things in our life are similar to Chinese bamboo...
 
-Não redarguas: Não consigo!
+We work, invest time, effort, dedication and sometimes we don't see
+result for weeks, months or years.
 
-Nunca informes: Sei que é totalmente inútil aceitar.
+Who knows, if we remember this lesson that nature gives us, through bamboo
+china, we will have the patience necessary to wait for that fifth year.
 
-Nem retruques: É maior do que as minhas forças.
+So we will not fail to persist, to fight, to invest in ourselves, knowing
+that the fruits will come with time.
 
-Para aquele que crê, o impossível é tarefa que somente demora um pouco para ser
-realizada, já que o possível se pode realizar imediatamente.
+Many are still immediatists, desiring easy return, conquest
+Instant.
+
+We forget that all the great and valiator achievements of the soul require time,
+require effort from many and many years and sometimes many lives.
+
+This habit of not giving up our goals, of continuing to try, of not
+to shake in the face of the inevitable obstacles, constitutes a virtue.
+
+Continue, persist, maintain constancy and firmness, are part of the
+very important virtue of perseverance.
+
+Perseverance is the fuel of the winners.
+
+But not from worldly winners, superficial and transitory victories. But
+of those who overcome themselves, who overcome difficulties in anonymity.
+
+Tomas Edison, persevering man, said our greatest weakness is in
+give up, and that the surest way to win is to try again.
+
+And how many hundred times he tried to manufacture his lamp, to no avail... And the
+more interesting is that the many failed attempts gave him more strength
+Still.
+
+I didn't fail. " He said. I found 10, 000 solutions that didn't work out.
+
+At another point he stated that the three great fundamentals for achieving
+anything is: first, hard work; second, perseverance; Third:
+common sense.
+
+Let us learn from these exponents who have achieved much, not just looking at
+the laurels of glory, or just contemplatively admiring.
+
+Let us respect them for their valiator acquisitions, and see all the way that
+they walked until they got their success.
+
+                                   *   *   *
+
+Don't be severe: It's impossible for me to do!
+
+Don't give back: I can't!
+
+Never informs: I know it's totally useless to accept.
+
+No retricks: It's bigger than my strength.
+
+For the one who believes, the impossible is a task that only takes a while to be
+carried out, as possible can be carried out immediately.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 39, do

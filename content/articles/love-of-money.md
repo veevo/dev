@@ -10,97 +10,97 @@ topics:
 - mother
 ---
 
-Postura empresarial fere os Dez Mandamentos.
+Business posture hurts the Ten Commandments.
 
-Foi a essa conclusão que o professor de Pós-Graduação e Marketing, Marcelo
-Peruzzo, chegou, após realizar séria pesquisa com centenas de executivos
-brasileiros.
+It was to this conclusion that the professor of Graduate Studies and Marketing, Marcelo
+Peruzzo arrived after conducting serious research with hundreds of executives
+Brazilian.
 
-Mas, afinal de contas, o que os Dez Mandamentos e a administração empresarial
-têm em comum?
+But after all, what the Ten Commandments and business administration
+have in common?
 
-Tudo, na opinião do professor Peruzzo.
+Everything, in Professor Peruzzo's opinion.
 
-Ele fez uma pesquisa junto a executivos brasileiros, para verificar se eles
-aplicam os mandamentos no dia a dia das empresas. Do total de consultados,
-setenta e um por cento disseram acreditar nas regras divinas, mas,
-contraditoriamente, a maioria não as cumpre.
+He did a survey with Brazilian executives to check if they
+the commandments in the daily lives of companies. Of the total number of respondents,
+seventy-one percent said they believed in the divine rules, but,
+contradictorily, most do not comply with them.
 
-A pesquisa do professor tem um grau de confiabilidade de noventa e cinco por
-cento. Segundo ele, os empresários que praticam os pecados organizacionais
-correm o risco de desaparecer do mercado.
+The teacher's research has a reliability degree of ninety-five per
+Hundred. According to him, entrepreneurs who practice organizational sins
+risk of disappearing from the market.
 
-Isso já aconteceu com gente que cobiçou o mercado do próximo, quis crescer
-muito rápido e quebrou.
+This has already happened to people who coveted the next market, wanted to grow
+very fast and broke.
 
-O primeiro mandamento – Amar a Deus sobre todas as coisas – é desrespeitado
-por, pelo menos, cinquenta e quatro por cento dos entrevistados, que
-confessaram colocar o dinheiro acima de todas as coisas, cometendo, assim, o
-que o especialista chama de primeiro pecado organizacional.
+The first commandment – Loving God over all things — is disrespected
+for at least fifty-four percent of respondents, who
+confessed to putting money above all things, thus committing the
+that the expert calls the first organizational sin.
 
-A mentira é prática entre sessenta e um por cento dos entrevistados, que
-admitem prometer coisas que não cumprem, desrespeitando, segundo a analogia do
-professor, o mandamento segundo o qual o nome de Deus não deve ser pronunciado
-em vão.
+Lying is practical among sixty-one percent of respondents, who
+admit to promising things they do not comply, disrespecting, according to the analogy of the
+teacher, the commandment that The name of God should not be pronounced
+in vain.
 
-O período de descanso não é respeitado por quarenta e três por cento dos
-executivos, que trabalham dia e noite, inclusive nos fins de semana e feriados,
-relegando tudo em nome da empresa.
+The rest period is not respected by forty-three percent of
+executives, who work day and night, including on weekends and holidays,
+relegating everything on behalf of the company.
 
-O professor Peruzzo também considera que cinquenta e três por cento dos
-entrevistados não respeitam o quarto mandamento – Honrar pai e mãe –, porque
-esquecem a família e os amigos para dedicação total à organização.
+Professor Peruzzo also considers that fifty-three percent of
+respondents do not respect the fourth commandment - Honor ing father and mother , because
+forget family and friends for total dedication to the organization.
 
-A quinta regra divina, que determina que o cristão não deve matar, estaria
-sendo desrespeitada por quarenta e seis por cento.
+The fifth divine rule, which determines that the Christian should not kill, would be
+being disrespected by forty-six percent.
 
-Esse pecado organizacional pode significar matar o cliente, oferecendo um
-serviço de péssima qualidade; matar a concorrência, que é importante para
-impulsionar o próprio crescimento da organização; e matar a sociedade, não
-assumindo a devida responsabilidade social.
+This organizational sin can mean killing the client by offering a
+poor quality service; kill the competition, which is important for
+drive the organization's own growth; and kill society, not
+assuming proper social responsibility.
 
-A traição é uma prática comum entre trinta e oito por cento dos entrevistados,
-que começam a manter relacionamentos com funcionários ou colegas de trabalho,
-devido ao distanciamento da família e do amor.
+Betrayal is a common practice between thirty-eight percent of respondents,
+who begin to maintain relationships with employees or co-workers,
+due to the distancing of family and love.
 
-Mais da metade dos entrevistados, cinquenta e dois por cento, confessou
-praticar o sétimo pecado organizacional, equivalente ao Não roubarás: fazer
-transações comerciais em que não existe uma troca justa, provocando prejuízo
-para a outra parte.
+More than half of respondents, fifty-two percent, confessed
+practice the seventh organizational sin, equivalent to Not stealing: making
+transactions in which there is no fair exchange, causing injury to the
+to the other part.
 
-Um percentual muito expressivo de sessenta e quatro por cento dos executivos
-respondeu que forja políticas em benefício próprio, conspirando, fofocando, com
-inveja e ganância, e não se importa em prejudicar o próximo para obter
-vantagem.
+A very significant percentage of sixty-four percent of executives
+responded that forges policies for his own benefit, conspiring, gossiping, with
+envy and greed, and don't mind harming the next to get
+Advantage.
 
-Esse tipo de atitude joga por terra o oitavo mandamento que estabelece: Não
-prestarás falso testemunho contra teu próximo.
+This kind of attitude plays the eighth commandment that establishes: No
+you will bear false testimony against your neighbor.
 
-Vinte e sete por cento dos executivos declarou que utiliza de poder e persuasão
-para seduzir colegas ou subordinados, contrariando o nono mandamento.
+Twenty-seven percent of executives said they use power and persuasion
+to seduce colleagues or subordinates, contrary to the ninth commandment.
 
-Deixando de lado o décimo mandamento - Não cobiçarás coisa alguma que pertença
-ao teu próximo – trinta e sete por cento dos executivos admitem como objetivo
-da empresa apenas o lucro e a conquista de mercado, cobiçando o espaço dos
-outros concorrentes.
+Leaving aside the tenth commandment - You will not covet anything that belongs
+to your neighbor – thirty-seven percent of executives admit as a goal
+of the company only profit and market achievement, coveting the space of the
+competitors.
 
                                    *   *   *
 
-Talvez você, como empresário, ache que Deus não tem que se envolver nos
-negócios dos homens e que Seus mandamentos devam ser atendidos apenas pelos
-religiosos.
+Perhaps you, as a businessman, think that God does not have to get involved in the
+men's business and that His commandments should be served only by the
+Religious.
 
-No entanto, se considerar que Deus é o verdadeiro dono de tudo e que você é um
-mero administrador, então tratará de olhar o mundo dos negócios de forma
-diferente.
+However, if you consider that God is the true owner of everything and that you are a
+mere administrator, then will try to look at the business world in a way that
+Different.
 
-Mas se você é cristão, seu compromisso é ainda maior, pois foi o Cristo que
-afirmou que todos nós, um dia, seremos chamados pelas Leis Divinas a dar contas
-da nossa administração.
+But if you are a Christian, your commitment is even greater, for it was the Christ who
+stated that all of us will one day be called by the Divine Laws to give accounts
+of our administration.
 
-Pense nisso!
+Think about it!
 
- 
+
 ## Source
 Redação do Momento Espírita, com base no livro Os Dez
 Mandamentos de Deus e os pecados organizacionais, e em matéria

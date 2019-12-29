@@ -13,63 +13,63 @@ topics:
 ---
 
 
-Se a noite o surpreendeu de coração ferido ou de cérebro açoitado por amargos
-arrependimentos, não se renda à dor que lhe parece irremediável...
+If the night surprised him from an injured heart or brain whipped by bitter
+regrets, you do not surrender to the pain that seems irremediable to you...
 
-Enquanto a sombra se estende ao longo do caminho, e a ventania sopra, qual
-lamentoso grito de angústia, fite as estrelas que cintilam nas alturas e siga
-adiante, ao encontro do novo dia.
+As the shadow extends along the way, and the wind blows, which
+sorry cry of anguish, look at the stars that sparkle in the heights and follow
+ahead, to meet the new day.
 
-Não pode? Tremem-lhe os pés sob o fardo da aflição? Enrijeceram-se as fibras de
-sua alma e não consegue nutrir um novo sonho?
+Can't you? Do you shake your feet under the burden of distress? The fibres of
+your soul and can't nurture a new dream?
 
-Erga uma prece à esperança, esse gênio da luz que nos permite antever o porvir
-imenso.
+Raise a prayer to hope, this genius of light that allows us to anticipate the future
+Immense.
 
-Recolha-se à oração e ela virá, doce e infatigável enfermeira, balsamizar-lhe
-as chagas interiores e sustentar-lhe as energias semimortas.
+Gather to prayer and she will come, sweet and indefatigable nurse, ferry her
+the inner wounds and sustain the half-dead energies.
 
-Atenda-lhe o apelo carinhoso e prossiga sem desfalecimento.
+Answer his affectionate appeal and proceed without demise.
 
-Não permita que o elixir entorpecente da inércia ou o fel corrosivo do
-sofrimento o enfraqueça.
+Do not allow the narcotic elixir of inertia or corrosive fel of the
+suffering weakens him.
 
-Aceite as sugestões do gênio amigo e reflita...
+Accept the friend genius's suggestions and reflect...
 
-Sentirá no próprio coração dores maiores que a sua, os pavores dos grandes
-infelizes, as úlceras cancerosas de milhões que, até agora, você não conseguira
-ver.
+You will feel in your own heart greater pains than yours, the pavors of the great
+unfortunate, the cancerous ulcers of millions that, so far, you had not managed to
+See.
 
-Então, inefável consolo baixará do Céu sobre a sua dor, aquietando-lhe a ânsia.
+Then, ineffable comfort will lower from heaven upon his pain, quieting his eagerness.
 
-Inexprimíveis sentimentos desabrocharão em seu Espírito, e seus braços se
-abrirão para acolher as dores ignoradas dos seres mais humildes da Terra.
+Inexpressible feelings will blossom in his Spirit, and his arms will
+will open up to welcome the ignored pains of the most humble beings on earth.
 
-Nem todos sabem avaliar essa virtude celeste. Muitos a transformam em vinagre
-de impaciência ou em tortura mortal, convertendo-lhe a bênção em estilete da
-enfermidade.
+Not everyone knows how to evaluate this heavenly virtue. Many turn it into vinegar
+impatience or mortal torture, converting the blessing into stiletto of the
+Illness.
 
-Felizes, porém, daqueles que lhe guardam a sublime claridade no âmago do
-Espírito, porque verão a sabedoria do tempo, adquirindo com a vida a ciência da
-paz.
+Happy, however, of those who keep him the sublime clarity at the heart of the
+Spirit, because it will see the wisdom of time, acquiring with life the science of
+Peace.
 
-Espere! - diz a noite - O dia voltará.
+Wait! - say the night - The day will come back.
 
-Espere! - clama a semente - O fruto não tarda.
+Wait! - cries out the seed - The fruit soon.
 
-Espere! - anuncia a justiça - E tudo recomporei.
+Wait! - announces justice - And Everything Will help.
 
-Bem-aventurados, pois, quantos no mundo sabem aprender, servir e esperar!
+Blessed, therefore, how many in the world know how to learn, serve and wait!
 
                                    *   *   *
 
-Suporte com coragem o fardo de sua dor, avançando na estrada da vida
-heroicamente, ainda que seja um centímetro por dia...
+Courageously support the burden of your pain, advancing on the road of life
+heroically, even if it's an inch a day...
 
-Lembre-se de que hoje, a noite maternal lhe enxugará o pranto com o repouso
-obrigatório, e de que amanhã o dia voltará, renovando todas as coisas.
+Remember that today, the maternal night will wipe your weeping with the home.
+mandatory, and that tomorrow the day will return, renewing all things.
 
-Lembre-se, ainda, que a esperança sempre surge com os primeiros raios da
+Remember, furthermore, that hope always arises with the first rays of the
 aurora.
 
 ## Source

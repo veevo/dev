@@ -19,88 +19,88 @@ topics:
 - prayer
 ---
 
-Há uma interessante passagem evangélica na qual Jesus recomenda que o homem se
-reconcilie o mais depressa possível com seu adversário.
+There is an interesting evangelical passage in which Jesus recommends that man
+reconcile as soon as possible with your opponent.
 
-A reconciliação deve se processar enquanto ambos estão a caminho, para que um
-não entregue o outro ao juiz.
+Reconciliation must take place while both are on their way, so that a
+not hand over the other to the judge.
 
-Porque o juiz poderá entregar o culpado ao ministro da justiça, que o colocará
-na prisão.
+Because the judge can give the culprit to the minister of justice, who will put him
+in prison.
 
-Se isso ocorrer, as celas não se abrirão enquanto não for pago o último ceitil.
+If this occurs, the cells will not open until the last ceitil is paid.
 
-Trata-se de imagens fortes, que chamam a atenção para a importância da
-convivência equilibrada.
+These are strong images, which draw attention to the importance of
+balanced coexistence.
 
-A vida na Terra é uma fecunda e importante escola.
+Life on Earth is a fruitful and important school.
 
-Espíritos de personalidades e valores diversos são colocados lado a lado.
+Spirits of diverse personalities and values are placed side by side.
 
-O resultado deve ser o aprendizado e o crescimento de todos os envolvidos.
+The result should be the learning and growth of all involved.
 
-A convivência nem sempre é fácil.
+Coexistence is not always easy.
 
-Na vida social, costumam surgir desacertos.
+In social life, there are usually any uncertain ones.
 
-As ideias e os objetivos costumam ser diferentes, mesmo entre pessoas de boa
-vontade.
+Ideas and objectives are often different, even among people of good
+Will.
 
-Comumente se afirma que a convivência entre certos indivíduos é difícil por
-serem inimigos espirituais.
+It is commonly stated that living between certain individuals is difficult by
+be spiritual enemies.
 
-Nessa linha, teriam um passado de erros em comum a justificar a animosidade
-presente.
+In this line, they would have a common past of errors justifying the animosity
+This.
 
-Essa hipótese por vezes é verdadeira.
+That hypothesis is sometimes true.
 
-Entretanto, em geral, os desentendimentos de hoje decorrem mais de imperfeições
-e vícios do que de real inimizade pretérita.
+However, in general, today's disagreements stem more from imperfections
+and vices than of real intimate past.
 
-Vaidade, orgulho e egoísmo respondem pela ampla maioria das querelas do mundo.
+Vanity, pride and selfishness account for the vast majority of the world's quarrels.
 
-Não importa o passado, seres generosos e humildes sempre encontram um modo de
-conviver de forma respeitosa e pacífica.
+No matter the past, generous and humble beings always find a way of
+living in a respectful and peaceful way.
 
-O problema não reside no ontem, mas no hoje que pode se desdobrar no amanhã.
+The problem is not yesterday, but today that can unfold tomorrow.
 
-Importa adotar comportamento digno e fraterno, para seguir livre.
+It is important to adopt dignified and fraternal behavior, to go free.
 
-A lei divina é perfeita e cuida de todos.
+Divine law is perfect and takes care of everyone.
 
-Ela jamais é burlada, mesmo no mais ínfimo ceitil.
+She is never scammed, even in the tiniest ceitil.
 
-Mas é programada para o progresso e a felicidade dos seres, não para punir e
+But it is programmed for the progress and happiness of beings, not to punish and
 infelicitar.
 
-Daí vem a magna importância da exortação de Jesus.
+Hence comes the magnaimportance of Jesus' exhortation.
 
-Seres imperfeitos erram e se atritam.
+Imperfect beings make mistakes and stand at.
 
-Dos embates e dos pontos de vista divergentes, o progresso pode surgir.
+From the conflicts and divergent views, progress can arise.
 
-Contudo, limites se fazem necessários nesse processo de divergência.
+However, limits are necessary in this process of divergence.
 
-A vida precisa ser levada de modo que o coração não se replete de mágoas.
+Life needs to be taken so that the heart does not renumber sorrows.
 
-Está-se em uma escola, não em uma batalha campal.
+You're in a school, not a pitched battle.
 
-Os outros são irmãos, companheiros de jornada, embora por vezes pensem e ajam
-de modo diverso.
+The others are brothers, fellow son of a journey, although sometimes they think and act
+in a different way.
 
-Acima de qualquer coisa, é preciso manter-se digno e fraterno.
+Above all, you have to stay worthy and fraternal.
 
-Quando o semelhante erra, perdoá-lo de coração, sem impor condições
-humilhantes.
+When the similar one errs, forgive him from the heart, without imposing conditions
+Humiliating.
 
-Quando se erra, arrepender-se, pedir desculpas, reparar e seguir adiante.
+When you make a mistake, repent, apologize, repair and move on.
 
-Só não convém esperar a incidência da Lei, por entre mágoas e vaidades.
+It is only not appropriate to expect the incidence of the Law, amid sorrows and vains.
 
-Porque é aí que surgem as grandes dores, destinadas a dulcificar o coração que
-se fez orgulhoso e ressentido.
+Because that's where the great pains arise, destined to sweeten the heart that
+made himself proud and resentful.
 
-Pense nisso.
+Think about it.
 
 # Source
 Redação do Momento Espírita.

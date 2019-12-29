@@ -11,88 +11,88 @@ topics:
 ---
 
 
-Você se julga uma pessoa paciente?
+Do you think you're a patient?
 
-Não tenha pressa de responder, mas ouça atentamente a historieta que vamos
-contar.
+Don't be in a hurry to answer, but listen carefully to the story that we're going to
+Count.
 
-Um homem estava passando por uma séria dificuldade financeira.
+A man was experiencing serious financial difficulty.
 
-Já há algum tempo andava desempregado e, devido a sua idade, estava sendo muito
-difícil arranjar um emprego.
+For some time he was unemployed and, due to his age, was being very
+difficult to get a job.
 
-Há dias que não fazia uma refeição decente e o desânimo havia tomado conta de
-sua vontade, por isso perambulava, agora, pelas ruas, sem destino.
+I haven't had a decent meal in days and the discouragement had taken over
+his will, so he wandered the streets now without destiny.
 
-Num dado trecho do caminho, enxergou no chão o que pareceu ser uma nota de
-dinheiro.
+In a given stretch of the way, he saw on the ground what appeared to be a note of
+Money.
 
-Correu em direção ao papel e viu que se tratava de uma cédula de valor.
+He ran toward the paper and saw that it was a valuable ballot.
 
-Não era muito, mas, antes de recolhê-la da calçada, olhou por todos os lados,
-para ver se ninguém por perto reclamava a falta do dinheiro.
+It wasn't much, but before collecting it from the sidewalk, he looked everywhere,
+to see if no one around complained about the lack of money.
 
-Não, não havia ninguém com ar de ter perdido alguma coisa.
+No, there was no one looking like i missed something.
 
-O homem pensou: É bom demais para ser verdade!
+Man thought, "It's too good to be true!
 
-Apesar da quantia não ser tão expressiva, já serviria para amenizar-lhe a fome
-naquele dia.
+Although the amount is not so expressive, it would already serve to ease the hunger
+that day.
 
-Quase num sobressalto, ajuntou a nota, desamassando-a.
+Almost on a supel, he added the note, unmassing it.
 
-Porém, que decepção! A nota, na verdade era apenas a metade da cédula.
+However, what a disappointment! The note was actually only half the ballot.
 
-Irritado, rasgou em pedacinhos o pedaço de papel, jogando-os num bueiro.
+Angry, he tore the piece of paper into pieces, throwing them into a manhole.
 
-Continuou a caminhada, amolentado, esbravejando em pensamento.
+He continued the walk, amolentado, squealing in thought.
 
-Contudo, alguns metros adiante, para surpresa sua, encontraria a mesma nota.
-Era a outra metade da primeira!
-
-                                   *   *   *
-
-Os grandes problemas da impaciência são as perdas que o impaciente sofre.
-
-A primeira delas é, obviamente, a perda da serenidade.
-
-Sem serenidade, não temos condições de avaliar com frieza as circunstâncias que
-nos envolvem, de modo que possamos enxergar as saídas e soluções possíveis.
-
-Perdendo a serenidade,  perdemos também o bom senso.
-
-Sem o bom senso,  nos tornamos impotentes, ou apenas nos sentimos impotentes.
-
-Paciência é respeito.
-
-Respeito aos outros e a nós mesmos.
-
-Seja paciente você também.
-
-Você verá que é muito mais produtivo trabalharmos pacientemente do que nos
-irritarmos com o que não será modificado do dia para a noite.
-
-Ademais, quem não sabe esperar, também não sabe usufruir!
+However, a few feet ahead, to your surprise, you would find the same note.
+It was the other half of the first!
 
                                    *   *   *
 
-Tomas Edison, o grande inventor, já estava na tentativa número seiscentos e
-sete para incandescer um filamento e conseguir inventar a lâmpada.
+The great problems of impatience are the losses that the impatient suffers.
 
-O seu assistente, cansado, insistiu para que ele desistisse.
+The first of these is obviously the loss of serenity.
 
-Edison perseverou. Resultado: dessa vez, o invento alcançou êxito.
+Without serenity, we are unable to coldly assess the circumstances that
+involve us, so that we can see the possible outputs and solutions.
 
-Você acaba de perceber o que a paciência pode conseguir.
+Losing serenity, we also lose common sense.
 
-A pessoa paciente é aquela que aguarda o momento certo de agir, a hora ideal
-para falar e o instante oportuno de calar.
+Without common sense, we become powerless, or just feel powerless.
 
-Paciência não significa passividade, indolência ou subserviência.
+Patience is respect.
 
-Paciência é a atitude inteligente de quem compreende que as pessoas nem sempre
-são como os outros desejariam que fossem.
- 
+Respect for others and ourselves.
+
+Be patient, you too.
+
+You will see that it is much more productive to work patiently than in
+annoy with what will not be modified overnight.
+
+Moreover, those who can't wait, can't enjoy it either!
+
+                                   *   *   *
+
+Tomas Edison, the great inventor, was already on the attempt number six hundred and
+seven to glow a filament and be able to invent the lamp.
+
+His tired assistant insisted he give up.
+
+Edison persevered. Result: This time, the invention has achieved success.
+
+You just realized what patience can achieve.
+
+The patient person is the one who waits for the right time to act, the ideal time
+to speak and the opportune moment to shut up.
+
+Patience does not mean passivity, indolence or subservience.
+
+Patience is the intelligent attitude of those who understand that people do not always
+are as others would wish they would be.
+
 
 ## Source
 Redação do Momento Espírita.

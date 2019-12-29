@@ -7,68 +7,68 @@ topics:
 - forgiveness
 ---
 
-A linguagem dos Evangelhos, pela sua tônica de síntese, não se alonga em
-descrições, como muito gostaríamos.
+The language of the Gospels, by its emphasis on synthesis, does not lengthen in
+descriptions, as we would very much like.
 
-Assim é que alguns personagens são apresentados de forma meteórica e nos deixam
-a pensar o que lhes terá ocorrido, após o encontro com Jesus.
+So that some characters are presented in a meteoric way and leave us
+thinking what happened to them after the encounter with Jesus.
 
-O caso da adúltera, surpreendida em flagrante e conduzida pelo esposo e seus
-amigos à praça pública para julgamento é um desses episódios.
+The case of adulterer, surprised in flagrante and conducted by the spouse and her
+friends to the public square for trial is one of these episodes.
 
-O desenlace não se encerra com as palavras do Cristo à turba exaltada e à
-mulher sofrida.
+The denouement does not end with the words of Christ to the exalted mob and the
+woman suffered.
 
-Narram-nos as tradições espirituais que, após ouvir do Mestre as frases:
-Ninguém te condenou? Eu também não te condeno. Vai e não tornes a errar, ela se
-ausentou da praça, de alma angustiada.
+We narrate the spiritual traditions that, after hearing from the Master the phrases:
+No one convicted you? I don't condemn you either. Go and don't make a mistake again, she'll get
+ausentou of the square, with anguished soul.
 
-O que fazer, agora? Retornar ao lar? De forma alguma, desde que não poderia
-aguardar do esposo compreensão, após o desfecho dos fatos.
+What to do now? Return home? Not at all, as long as i couldn't
+waiting for the spouse's understanding, after the outcome of the facts.
 
-Voltar ao lar paterno? Inviável, marcada que estava pelo equívoco considerado
-imperdoável e merecedor da morte pela lapidação.
+Go back to the father's home? Unfeasible, marked that it was by the misunderstanding considered
+unforgivable and deserving of death by stoning.
 
-Jesus lhe permitira viver. Contudo, para onde ir? O que fazer? Com o Espírito
-conturbado, quando o véu da noite se fez sobre a Terra, ela buscou o Mestre, no
-lar que O acolhia.
+Jesus had allowed him to live. However, where to go? What to do? With the Spirit
+troubled, when the veil of the night was made upon the earth, she sought the Master, in the
+home that welcomed Him.
 
-Solicitou entrevista em particular e Lhe falou das suas incertezas.
+He requested a particular interview and told Him of his uncertainties.
 
-Errara, sim, pois se deixara enredar nas malhas da sedução de habilidoso homem.
-Que rumo tomar, indagava, desde que não tinha para onde ir?
+He had made a mistake, yes, because he had let himself be entangled in the meshes of the seduction of skilled man.
+What course to take, i asked, since i had nowhere else to go?
 
-O Mestre, que viera para os doentes, e não para os sãos, que viera para
-consolar, não para julgar, estendeu-Lhe as mãos e Lhe acenou com perspectivas
-novas.
+The Master, who had come to the sick, and not to the sane, who had come to
+consolation, not to judge, reached out to Him and waved to Him with perspectives
+New.
 
-Aconselhou-a a buscar localidade onde não fosse conhecida, recomeçar sua vida e
-primar pelo reto caminho.
+He advised her to seek locality where she was not known, resume her life and
+press by the right path.
 
-A noite recamada de estrelas a surpreendeu na estrada para distantes sítios.
+The night relayered stars surprised her on the road to distant places.
 
-Anos depois, nas imediações da cidade de Tiro, ela podia ser encontrada em
-humilde casa, servindo ao seu próximo.
+Years later, in the vicinity of the city of Tiro, she could be found in
+humble home, serving his neighbor.
 
-Transformara sua sede de amor em doação ao semelhante. Recebia em seu lar os
-doentes abandonados, chagados e enfermos da alma.
+He had turned his thirst for love into a donation to the fellow. He received in his home the
+abandoned, chagados and sick of the soul.
 
-Lavava-os, tratava-lhes as feridas e para lhes dulcificar o caminho cheio de
-espinhos, falava-lhes de Jesus.
+He washed them, treated them with his wounds and to dulcise their way full of
+thorns, spoke to them of Jesus.
 
-Eu estava perdida, afirmava, e Jesus me recuperou, apontando-me a luz.
+I was lost, he claimed, and Jesus recovered me, pointing out the light.
 
-A esperança acena para além do véu da desesperança, para todos os que, caídos,
-embora, anseiam reerguer-se.
+Hope beckons beyond the veil of hopelessness, for all who, fallen,
+though, they yearn to rise again.
 
                                    *   *   *
 
-Se você está a ponto de cair, cedendo às paixões inferiores, alce os olhos e
-busque Jesus, através dos fios delicados da prece.
+If you are about to fall, yielding to the lower passions, moose your eyes and
+seek Jesus, through the delicate threads of prayer.
 
-Se você se sente à beira do abismo, recorde que os que seguem o Cristo, caem de
-pé, dispostos ainda à retomada dos bons propósitos e das lutas nobres, no
-sincero desejo de acertar.
+If you feel on the edge of the abyss, remember that those who follow Christ fall from
+still willing to resume good purposes and noble struggles, in the
+sincere desire to get it right.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 15 do livro

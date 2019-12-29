@@ -15,59 +15,59 @@ topics:
 ---
 
 
-Muitos pais enfrentam dificuldades a cada manhã, quando precisam despertar os filhos para seguirem para suas obrigações.
+Many parents face difficulties each morning when they need to awaken their children to move on to their obligations.
 
-Quando pequenos, há os que escondem a cabeça debaixo das cobertas ou do travesseiro, como se isso os pudesse liberar do que devem fazer.
+When small, there are those who hide their heads under the covers or pillow, as if this could release them from what they should do.
 
-Viram para um lado, viram para o outro e pedem mais cinco minutos. Ou só mais um minutinho.
+They saw it one way, they saw it the other and asked for another five minutes. Or just one more minute.
 
-Quando maiores reclamam por precisarem levantar cedo, principalmente nos dias frios, invernosos. E, entre resmungos, dizem que o que mais desejam na vida é ficarem ricos, muito ricos, para não precisarem mais estudar, trabalhar.
+When they larger complain about having to get up early, especially on cold, wintery days. And among grumbling, they say that what they want most in life is to get rich, too rich, so they don't have to study anymore, work.
 
-Enfim, poderem ficar na cama pela manhã o quanto quiserem, e não terem com que se preocupar. Também não terem que enfrentar o frio e a chuva, nos dias de inverno.
+Anyway, you can stay in bed in the morning as much as you want, and have nothing to worry about. They also don't have to face the cold and rain on winter days.
 
-Em verdade, não são somente as crianças ou jovens que assim pensam.
+In fact, it's not just children or young people who think so.
 
-Alguns de nós, adultos, muitas vezes ficamos desejando ganhar na loteria, ou quem sabe, uma herança, que nos liberte das horas incômodas de trabalho.
+Some of us adults often wish to win the lottery, or who knows, an inheritance that frees us from uncomfortable hours of work.
 
-Sem falar nos que ficamos contando, ano a ano, o tempo que falta para a aposentadoria...
+Not to mention the ones we keep counting, year by year, the time left for retirement...
 
 *   *   *
 
-Importante termos em mente que a vida não é um eterno período de férias.
+Important terms in mind that life is not an eternal vacation.
 
-A Terra é a grande escola do Espírito, onde com trabalho e disciplina auxiliamos no progresso do planeta e nós mesmos progredimos.
+Earth is the great school of the Spirit, where with work and discipline we assist in the progress of the planet and we have progressed ourselves.
 
-Estamos submetidos a leis físicas que regem o mundo: lei do magnetismo, lei de atração, lei da eletricidade, lei da gravidade...
+We are subject ed to physical laws governing the world: law of magnetism, law of attraction, electricity law, law of gravity...
 
-Também estamos submetidos a leis morais, que regem o mundo da alma, da consciência, da ética.
+We are also subjected to moral laws, which govern the world of soul, consciousness, ethics.
 
-É nesse grande mundo das leis morais que vamos encontrar uma lei importantíssima.
+It is in this great world of moral laws that we will find a very important law.
 
-Trata-se da lei do trabalho, que estabelece que toda ocupação útil é trabalho. Ela nos impulsiona a evoluir, a crescer.
+It is the law of labor, which establishes that every useful occupation is work. It drives us to evolve, to grow.
 
-Trabalhar, portanto, não nos deve ser um problema. Importante estarmos ativos.
+Working, therefore, should not be a problem for us. It's important to be active.
 
-É certo que o repouso faz parte das divinas leis, sendo necessário para o corpo e para a mente.
+It is true that rest is part of the divine laws, being necessary for the body and for the mind.
 
-No entanto, em demasia, se torna ociosidade, preguiça, nos impedindo de aprender e evoluir.
+However, too much, it becomes idleness, laziness, preventing us from learning and evolving.
 
-Muito tempo sem atividades intelectuais e físicas violentam o caráter do homem, enfraquecem seus músculos e nervos, que foram destinados ao movimento e à ação.
+Long without intellectual and physical activities violent the character of man, weaken his muscles and nerves, which were destined for movement and action.
 
-O trabalho nos proporciona troca de experiências, conhecimentos, aprendizados que a alma armazena, dentro de si, no decorrer das várias vidas na Terra.
+The work provides us with an exchange of experiences, knowledge, learning that the soul stores, within itself, during the various lives on Earth.
 
-Seja qual for nosso saber, sempre teremos algo a ensinar e muito a aprender.
+Whatever we know, we will always have something to teach and a lot to learn.
 
-Quando oferecemos nossas capacidades laborativas, a sociedade nos devolve em forma de salário.
+When we offer our work skills, society returns us in the form of salary.
 
-Salário que revertemos no custeio de nossas necessidades e até pequenos prazeres.
+Salary that we revert in the cost of our needs and even small pleasures.
 
-Os mensageiros celestes, em suas orientações ao Codificador da Doutrina Espírita, Allan Kardec, prescreveram que o limite do trabalho é o limite de nossas forças.
+The heavenly messengers, in their orientations to the Codificator of the Spiritist Doctrine, Allan Kardec, prescribed that the limit of work is the limit of our forces.
 
-Dessa forma, respeitando nossos limites, estabeleçamos períodos alternados de atividades e de repouso, evitando desgastes excessivos ou estresse.
+Thus, respecting our limits, we establish alternate periods of activities and rest, avoiding excessive wear or stress.
 
-A sabedoria está, exatamente, em chegar ao equilíbrio que nos possibilite excelente produção, ao tempo que, igualmente, nos permitamos o repouso, o lazer, a descontração.
+Wisdom is exactly in reaching the balance that allows us excellent production, at the time that we also allow ourselves to rest, leisure, relaxation.
 
-Pensemos nisso!
+Let's think about it!
 
 ## Source
 Redação do Momento Espírita, com base nos itens

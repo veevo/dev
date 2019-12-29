@@ -11,111 +11,111 @@ topics:
 ---
 
 
-Estamos vivendo um período em que dois mundos se confundem: o virtual e o real.
+We are living a period in which two worlds are confused: the virtual and the real.
 
-Muitas pessoas, especialmente jovens, adolescentes e crianças, dedicam horas do
-seu dia no mundo virtual.
+Many people, especially young people, adolescents and children, dedicate hours of the
+your day in the virtual world.
 
-Por falta de alguém que lhes oriente ou lhes faça companhia no mundo real,
-buscam suprir essa carência na Internet.
+For the lack of someone who guides them or companythem in the real world,
+seek to meet this lack on the Internet.
 
-Batem longos papos... virtuais. Olhos nos olhos? Não. Talvez nem se conheçam.
+They beat long conversations... Virtual. Eyes on the eyes? No. Maybe they don't even know each other.
 
-Trocam abraços apertados, mas não sentem o calor humano.
+They exchange tight hugs, but they don't feel the human warmth.
 
-Enviam flores... virtuais. Sem perfume, sem textura, sem graça...
+They send flowers... Virtual. No perfume, no texture, no grace...
 
-É um mundo atraente, porque oferece uma grande variedade de opções e exige
-esforço mínimo.
+It is an attractive world because it offers a wide variety of options and requires
+minimal effort.
 
-Nesse mundo, gastam horas e horas sem perceber que o tempo passou.
+In this world, they spend hours and hours without realizing that time has passed.
 
-Sentam-se confortavelmente diante de um microcomputador e viajam pelo mundo...
-sem sair de casa.
+They sit comfortably in front of a microcomputer and travel the world...
+without leaving the house.
 
-Não é preciso enfrentar problemas no trânsito, nem pagar passagem, nem sofrer
-com a chuva, com o calor ou o frio.
+There is no need to face traffic problems, pay for passage, nor suffer
+with rain, with heat or cold.
 
-Muitos entram pelas portas desse fascinante mundo virtual em plena luz do sol e
-só se dão conta que já raiou um novo dia quando o sono avisa que a madrugada
-chegou.
+Many enter through the doors of this fascinating virtual world in broad sunlight and
+only realize that a new day has already been a day when sleep warns that the dawn
+Came.
 
-Nesse mundo em que amigos imaginários se encontram, pouco importa a realidade
-de uns e de outros.
+In this world where imaginary friends meet, it doesn't matter the reality
+of one and the other.
 
-Eles não se conhecem, ou se conhecem pouco, mas trocam inúmeras informações,
-nem sempre verdadeiras, pois isso não tem tanta importância.
+They don't know each other, or know each other little, but exchange countless information,
+not always true, because it doesn't matter so much.
 
-Vivem intensamente esse mundo, onde a imaginação tem asas...
+This world lives intensely, where imagination has wings...
 
-Onde se pode fazer o que se deseja sem que ninguém saiba. Conectar-se com os
-mais variados assuntos e obter prazeres imaginários.
+Where you can do what you want without anyone knowing. Connect with
+various subjects and obtain imaginary pleasures.
 
-Poderíamos até dizer que para alguns esse mundo virtual é mais fascinante que a
-realidade.
+We could even say that for some this virtual world is more fascinating than the
+Reality.
 
-Mas será que o uso desmedido desse recurso não está nos tornando insensíveis,
-falsos, viciados, promíscuos?
+But is the unmeasured use of this resource not making us insensitive,
+fakes, addicts, promiscuous?
 
-Será que não estamos navegando em águas sombrias e perigosas?
+Aren't we sailing in dark, dangerous waters?
 
-A Internet é um avanço importante para facilitar nossa vida e abrir novas
-portas de comunicação e integração entre criaturas.
+The Internet is an important step forward to make our lives easier and open new
+ports of communication and integration between creatures.
 
-No entanto, não surgiu para que fechemos a porta do mundo real.
+However, it did not come up so that we could close the door of the real world.
 
-Não surgiu para que evitemos o contato físico com nossos familiares, nossos
-vizinhos e amigos.
+It did not come up so that we avoid physical contact with our family members, our
+neighbors and friends.
 
-O mundo virtual, por mais atraente que seja, não tem calor, nem perfume, não
-tem a vibração da natureza, nem o brilho do sol.
+The virtual world, however attractive it may be, has no warmth, no perfume, no
+has the vibration of nature, nor the brightness of the sun.
 
-É um mundo onde tudo é válido... Mas nem tudo é verdade.
+It's a world where everything is valid... But not everything is true.
 
-Sem o contato pessoal não se pode perceber o apoio num sorriso, a compaixão num
-olhar, o calor de um aperto de mão, nem a docilidade de um gesto de ternura.
+Without personal contact one cannot perceive the support in a smile, compassion in a
+look, the warmth of a handshake, nor the docility of a gesture of tenderness.
 
-Quem se isola no mundo virtual acaba perdendo a sensibilidade e desenvolvendo a
-indiferença diante dos acontecimentos reais.
+Those who isolate themselves in the virtual world end up losing sensitivity and developing the
+indifference to real events.
 
-A Internet surgiu para abrir novas possibilidades em nossas vidas, e não para
-que nos isolemos em casa, fugindo da realidade para viver da imaginação.
+The Internet has emerged to open up new possibilities in our lives, not to
+that we isolate ourselves at home, fleeing reality to live from imagination.
 
-Nossa caixa de mensagens pode estar abarrotada de beijos, abraços, bom dia e
-boa noite, feliz aniversário e outras felicitações... Virtuais.
+Our message box may be crammed with kisses, hugs, good morning and
+good evening, happy birthday and other congratulations... Virtual.
 
-Isso tudo pode ser deletado com apenas um clique ou com um defeito qualquer na
-máquina.
+This can all be deleted with just one click or with any defect in the
+Machine.
 
-Mas quando um abraço aproxima dois corações e uma voz deseja um bom dia com
-convicção, os registros ficam gravados na alma, onde nada, nem ninguém, pode
-apagar.
+But when a hug approaches two hearts and a voice wishes a good day with
+conviction, the records are engraved on the soul, where nothing, nor anyone else, can
+Turn off.
 
-Por todas essas razões, abra as portas e as janelas para que o sol penetre em
-sua vida.
+For all these reasons, open the doors and windows so that the sun penetrates into
+your life.
 
-Note os vizinhos... Eles podem estar precisando de alguém que lhes diga: “olá!
-Tenha um bom dia!”
+Note the neighbors... They may be in need of someone who says to them, "hello!
+Have a nice day!"
 
-Ouça o choro ou a gargalhada de seus irmãos. Eles são reais e não estão no
-mesmo lar que você por acaso.
+Listen to the crying or laughter of your brothers. They are real and are not in the
+same home as you by chance.
 
-Não se tranque em seu mundo virtual.
+Don't lock yourself in your virtual world.
 
-Sinta o perfume das flores...
+Feel the scent of flowers...
 
-Ouça o canto dos pássaros...
+Listen to the bird song...
 
-Ande na areia e deixe a espuma das ondas tocar seus pés...
+Walk in the sand and let the foam of the waves touch your feet...
 
-Vivendo intensamente o mundo real, você perceberá que o mundo virtual terá
-outro significado em sua vida.
+Living intensely the real world, you will realize that the virtual world will have
+another meaning in his life.
 
-Um significado mais belo e mais abrangente.
+A more beautiful and more comprehensive meaning.
 
-Deixará de ser fim para ser um excelente meio de progresso.
+It will no longer be an end to being an excellent means of progress.
 
-Pense nisso!
+Think about it!
 
 
 ## Source

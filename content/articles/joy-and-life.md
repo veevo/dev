@@ -13,57 +13,57 @@ topics:
 - prayer
 ---
 
-A Humanidade terrena passa por momentos difíceis, complicados, jamais imaginados pelas gerações presentes.
+Earthly humanity goes through difficult, complicated times, never imagined by the generations present.
 
-Muitos se perguntam por onde anda a alegria de viver, frente à triste realidade que enfrentamos.
+Many wonder where the joy of living is, in the face of the sad reality we face.
 
-Quanto mais o homem tem progredido científica e tecnologicamente, sua alegria parece distante ou impossível.
+The more man has progressed scientifically and technologically, his joy seems distant or impossible.
 
-As conquistas realizadas pelo ser humano, nessas últimas décadas, no micro e no macrocosmo, fazem com que um sentimento de poder passe a lhe alimentar o ego.
+The achievements made by the human being, in recent decades, in micro and macrocosm, make a feeling of power feed him the ego.
 
-Perceber que pode penetrar, desvendar e manipular o mundo microscópico, é motivo de muito orgulho.
+Realizing that you can penetrate, unravel and manipulate the microscopic world, is a cause for great pride.
 
-Olhar para os astros, e se sentir conhecedor dos meios de alcançar alguns, aproximar-se de outros, analisá-los através de suas potentes aparelhagens, fá-lo vaidoso.
+Look at the stars, and feel knowledgeable of the means of reaching some, approaching others, analyzing them through their powerful stereos, makes it vain.
 
-Essas descobertas propiciam que a criatura comece a se sentir um tanto quanto criador, pois que não tem outra visão da realidade da vida.
+These findings provide the creature to begin to feel somewhat creative, because it has no other vision of the reality of life.
 
-E, apesar de todas essas conquistas, não sente a verdadeira alegria.
-
-*   *   *
-
-Quando o homem se entender como filho de Deus, herdeiro dessa Inteligência Suprema do Universo e Causa Primeira de tudo o que existe, mudará sua maneira de ser.
-
-Quando conceber que é um Espírito imortal, de que nada sabe, frente ao muito a aprender, deixará de lado seu tolo orgulho.
-
-Quando se aceitar como alguém que precisa de muita conquista, na direção do bem, diminuirá a vaidade que o acomete.
+And despite all these achievements, you do not feel true joy.
 
 *   *   *
 
-Necessário se faz um mergulho na realidade: enquanto vivermos apenas em busca de conquistas na área material, estaremos trilhando somente a linha horizontal da vida.
+When man understands himself as the son of God, heir to this Supreme Intelligence of the Universe and Causa First of all that exists, he will change his way of being.
 
-Ao buscarmos o crescimento, também na linha vertical, nos aprimorando na conquista das virtudes, da ética, do sentimento moral, a alegria nos visitará.
+When you conceive that you are an immortal Spirit, that you know nothing, in the face of much to learn, you will leave aside your foolish pride.
 
-Alguém poderá argumentar como podemos falar em alegria, em meio a tanto sofrimento existente no planeta.
+When you accept yourself as someone who needs a lot of achievement, in the direction of good, it will diminish the vanity that affects you.
 
-Então, pensemos: ao nos dispormos a viver a vida com alegria, precisamos olhar as situações com outros óculos. Por exemplo, o sofrimento faz mal, no entanto, não é um mal, porque oferece os recursos valiosos para a aquisição do bem permanente.
+*   *   *
 
-Logo, ter alegria não impede a aproximação do sofrimento, pois que ele faz parte de nosso processo de evolução.
+Necessary if we make a dive in reality: as long as we live only in search of achievements in the material area, we will be walking only the horizontal line of life.
 
-Ao compreender esse fato, não abandonamos a alegria, até por poder aprender com a dor, e evoluir para Deus.
+As we seek growth, also in the vertical line, improving us in the conquest of virtues, ethics, moral feeling, joy will visit us.
 
-Quando o amor não está presente no sentimento, a alegria não floresce, porque permanece sombreada pelas dúvidas e suspeitas.
+One might argue how we can speak of joy, amid so much suffering on the planet.
 
-As pessoas dizem querer a alegria, a felicidade, mas não conseguem adquiri-las, por mais as persigam.
+So let's think: as we are willing to live life with joy, we need to look at situations with other glasses. For example, suffering is wrong, however, it is not an evil, because it offers valuable resources for the acquisition of the permanent good.
 
-A alegria não é encontrada em mercados ou farmácias, mas no coração, que sente e ama.
+Therefore, having joy does not prevent the approximation of suffering, because it is part of our process of evolution.
 
-Sempre que possível expressemos a alegria de viver.
+By understanding this fact, we do not abandon joy, even because we can learn from pain, and evolve to God.
 
-Se já encontramos Jesus, melhor razão temos para a alegria, porque envoltos na Luz do mundo, nenhuma sombra ameaça.
+When love is not present in feeling, joy does not flourish, because it remains shaded by doubts and suspicions.
 
-Alegremo-nos com a vida que desfrutamos, e agradeçamos sempre a glória de saber e de amar, para agir com acerto.
+People say they want joy, happiness, but they can't acquire them, no longer chasing them.
 
-A vida com alegria é, em si mesma, um hino de louvor a Deus.
+Joy is not found in markets or pharmacies, but at heart, that feels and loves.
+
+Whenever possible we express the joy of living.
+
+If we have already found Jesus, the better reason we have for joy, because wrapped in the Light of the world, no shadow threatens.
+
+Let us rejoice in the life we enjoy, and we always thank the glory of knowing and loving, to act with the right.
+
+Life with joy is, in itself, a hymn of praise to God.
 
 ## Source
 Redação do Momento Espírita, com base na mensagem

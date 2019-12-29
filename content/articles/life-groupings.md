@@ -13,88 +13,88 @@ topics:
 - tolerancia
 ---
 
-Segundo a Espiritualidade Superior, as agruras da vida terrena constituem
-provas ou expiações.
+According to higher spirituality, the groups of terrena life constitute
+evidence or atonements.
 
-As expiações originam-se de erros cometidos.
+The atonements stem from mistakes made.
 
-Por ser possuidor de determinado vício, o Espírito violou a Lei Divina.
+Because he possesses a certain vice, the Spirit violated divine law.
 
-Por exemplo, em decorrência da gula, prejudicou a harmonia de seu corpo em
-anterior existência.
+For example, as a result of gluttony, it impaired the harmony of his body in
+previous existence.
 
-Viveu menos do que deveria e deixou de cumprir sua programação espiritual.
+He lived less than he should and stopped fulfilling his spiritual programming.
 
-A expiação representa a soma de dores necessária para o Espírito se desgostar
-do vício que o acomete.
+Atonement represents the sum of pain necessary for the Spirit to dislike
+of the addiction that affects him.
 
-Ela se origina do erro, mas visa o progresso.
+It originates from the error, but aims at progress.
 
-Persiste até que a lição seja aprendida e o faltoso canse de sua fissura moral
-e se arrependa.
+Persistuntil the lesson is learned and the lackof the singing of his moral fissure
+and repent.
 
-Ela é um remédio forte na medida exata do mal a ser combatido.
+It is a strong remedy in exact measure of evil to be fought.
 
-Já as provas são literalmente testes aos quais o ser se submete para alcançar
-vivências mais sublimes.
+The tests are literally tests to which being submits to achieve
+more sublime experiences.
 
-Embora ser provado sempre envolva esforço e sacrifício, trata-se de algo
-positivo.
+While proven always involves effort and sacrifice, it is something
+Positive.
 
-Raciocine-se com base no vestibular de acesso às faculdades.
+Raciocine is based on the entrance exam for access to colleges.
 
-Os alunos se inscrevem, pagam uma taxa por isso, estudam por longo tempo e,
-finalmente, se submetem ao exame.
+Students sign up, pay a fee for it, study for a long time, and,
+finally, undergo the exam.
 
-Evidentemente, no tempo em que estão demonstrando seus conhecimentos,
-permanecem sob tensão.
+Of course, in the time when they are demonstrating their knowledge,
+remain under tension.
 
-Mas o vestibular representa uma fase necessária para que atinjam seu objetivo.
+But the entrance exam represents a phase necessary for them to achieve their goal.
 
-Trata-se da porta de acesso a uma situação com a qual sonham.
+This is the gateway to a situation they dream of.
 
-Se tiverem sucesso no vestibular, poderão fazer o curso escolhido e, mais
-tarde, desempenhar a profissão almejada.
+If they succeed in the entrance exam, they can take the chosen course and, more
+afternoon, to play the desired profession.
 
-Seguramente nenhum deles se sente injustiçado nas horas que passa a realizar
-seus exames.
+Surely none of them feel wronged in the hours that come to carry out
+their examinations.
 
-Eles se candidataram e aquele evento tem um propósito sério em suas vidas.
+They applied and that event has a serious purpose in their lives.
 
-O mesmo ocorre com as provas da vida material.
+The same is true of the evidence of material life.
 
-Antes de reencarnar, os Espíritos escolhem as provas a que se submeterão.
+Before reincarnating, the Spirits choose the tests to which they will submit.
 
-Preparam-se por longo tempo, estudam, tomam sábias resoluções.
+They prepare for a long time, study, take wise resolutions.
 
-Contam com o auxílio e a instrução de seres mais evoluídos, aos quais prometem
-todo o empenho para vencer os naturais obstáculos da jornada.
+They have the help and instruction of more evolved beings, to whom they promise
+commitment to overcome the natural obstacles of the journey.
 
-Após o renascimento, lentamente as provas se apresentam àquele que se
-candidatou a vivenciá-las.
+After rebirth, the evidence slowly presents itself to the one who
+applied to experience them.
 
-Para quem deseja consolidar a virtude da paciência, tais provas vêm na figura
-de pessoas difíceis com as quais têm de conviver.
+For those who wish to consolidate the virtue of patience, such evidence comes in the figure
+difficult people with whom they have to live with.
 
-O que almeja exercitar a frugalidade e a humildade renasce em um contexto
-social muito humilde.
+What aims to exercise frugality and humility is reborn in a context
+very humble social.
 
-Há os que se propõem a vivenciar enfermidades, os que querem exercitar a
-tolerância ou o desprendimento.
+There are those who propose to experience diseases, those who want to exercise the
+tolerance or detachment.
 
-Para cada um, as experiências surgem no devido tempo.
+For each, the experiences arise in due course.
 
-Bem se vê que na Terra ninguém deve reclamar de nada.
+It is well seen that no one should complain about anything on Earth.
 
-As expiações constituem remédio para velhos males morais, que só trazem
-transtornos.
+Atonements are a remedy for old moral evils, which only bring
+Disorders.
 
-As provas representam uma oportunidade de consolidação de virtudes, com vistas
-a um porvir melhor.
+The evidence represents an opportunity for the consolidation of virtues, with a view to
+to a better future.
 
-O papel de quem as vive é fazer o seu melhor e confiar em Deus.
+The role of those who live them is to do their best and trust God.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

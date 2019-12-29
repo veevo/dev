@@ -18,85 +18,85 @@ topics:
 - prayer
 ---
 
-Quando você nasceu na Terra, parecia um pássaro semimorto que a tempestade
-arremessara numa praia esquecida.
+When you were born on Earth, it looked like a half-dead bird that the storm
+he had thrown on a forgotten beach.
 
-Então, apareceu uma imensa ternura num coração de mulher.
+Then a huge tenderness appeared in a woman's heart.
 
-Pelas mãos maternas você foi lavado e alimentado milhares de vezes.
+By your mother's hands you've been washed and fed thousands of times.
 
-Simplesmente por amor.
+Simply for love.
 
-Você cresceu forte.
+You grew up strong.
 
-Quando o véu da ingenuidade infantil envolvia sua cabecinha, os professores se
-deram conta da sua inteligência. E a alimentaram com as primeiras letras e com
-toda a riqueza que a escola proporciona.
+When the veil of child naivety involved his little head, teachers
+they realized their intelligence. And they fed her with the first letters and with
+all the wealth that the school provides.
 
-Você se tornou jovem.
+You've become young.
 
-E no vigor da sua juventude, a despreocupação era a tônica dos seus dias.
+And in the vigor of his youth, the lack of concern was the tonic of his days.
 
-Foi então que amigos notaram o seu caráter de nobreza nos gestos e direcionaram
-a sua jornada para as bênçãos do trabalho.
+It was then that friends noticed their character as nobility in gestures and directed
+your journey to the blessings of work.
 
-Você se enriqueceu de experiência.
+You've been rich in experience.
 
-Na madureza, a enfermidade veio lhe fazer uma demorada visita.
+In the hardness, the disease came to pay him a long visit.
 
-Quando todos já imaginavam que você partiria para a grande viagem, médicos
-diligentes estenderam o remédio eficaz e a força sublime que havia dentro de
-você venceu a doença.
+When everyone already imagined that you would leave for the big trip, doctors
+diligent ly extended the effective remedy and sublime strength that existed within
+you beat the disease.
 
-Recuperado, você retornou às lides.
+Recovered, you returned to the lides.
 
-Então houve horas de incompreensão, pressões profissionais, situações de
-desconforto, criadas pela inveja e pela calúnia.
+So there were hours of misunderstanding, professional pressures, situations of
+discomfort, created by envy and slander.
 
-Nessas horas, em meio às lágrimas doridas, você pôde ouvir canções de conforto,
-conclamando-o à esperança e à alegria.
+At these times, amid sore tears, you could hear comfort songs,
+calling it to hope and joy.
 
-Passou o tempo. Dobraram-se os anos.
+He's been here. The years have doubled.
 
-Por onde quer que você siga, percebe a luz invisível que clareia os seus
-pensamentos.
+Wherever you follow, you realize the invisible light that lightens your
+Thoughts.
 
-Se você sofre, é o apoio que chega.
+If you suffer, it's the support that arrives.
 
-Se você erra, é a voz que corrige. Se você teme ou vacila, ante inusitada
-situação, é o braço que sustenta.
+If you make a mistake, it's the voice that corrects. If you fear or falter, before unusual
+situation, it is the arm that sustains.
 
-Se você se encontra mergulhado em solidão, é a companhia que consola.
+If you find yourself immersed in solitude, it is the company that consoles.
 
-Em todos os momentos da sua vida, dos primeiros vagidos aos da atualidade, em
-qualquer circunstância, você depende desse alguém.
+At all times in his life, from the first wanders to those of today, in
+any circumstance, you depend on that someone.
 
-Falamos de Deus, Nosso Pai, a quem devemos aprender a amar e respeitar, pois
-nos encontramos nEle como o fruto na árvore.
+We speak of God, Our Father, whom we must learn to love and respect, for
+we find ourselves in Him as the fruit in the tree.
 
-Ele nos sustenta e Sua seiva nos dessedenta.
+He sustains us and His sap desicdents us.
 
-E mesmo que tudo pareça contra nós, abandonados ou incompreendidos pelos
-afetos, sofrendo os golpes da adversidade mais rude, nunca estaremos distantes
-da presença de Deus.
+And even if everything seems against us, abandoned or misunderstood by the
+affections, suffering the blows of rudest adversity, we will never be far away
+of God's presence.
 
                                    *   *   *
 
-Você sabia?
+Did you know that?
 
-Você sabia que Deus nos proporciona momentos diversos para enriquecermos nosso
-Espírito?
+Did you know that God provides us with different moments to enrich our
+Spirit?
 
-Assim, a presença da enfermidade é momento para meditação sobre a fragilidade
-orgânica.
+Thus, the presence of the disease is a time for meditation on the fragility
+Organic.
 
-A manifestação da saúde é momento de agir no bem, valorizando-a.
+The manifestation of health is time to act well, valuing it.
 
-O ensejo da oração é momento de iluminação interior.
+The cove of prayer is a moment of interior enlightenment.
 
-A hora da provação é momento de resgate libertador.
+The time of the ordeal is a moment of liberating rescue.
 
-Pensemos nisso e aproveitemos todos os momentos como dádivas de Deus.
+Let us think about it and enjoy every moment as God's gifts.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 44,do livro Justiça Divina,

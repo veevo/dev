@@ -10,81 +10,81 @@ topics:
 - mother
 ---
 
-As lendas chinesas são muito interessantes e sempre plenas de ensinos.
+Chinese legends are very interesting and always full of teachings.
 
-Uma delas conta que o rei Sol tinha uma filha muito amada, tão linda que até
-mesmo o Imperador Amarelo era cheio de admiração por ela.
+One of them tells that King Sol had a much loved daughter, so beautiful that even
+even the Yellow Emperor was full of admiration for her.
 
-Quando o rei Sol saía para dirigir o curso da aurora, a cada manhã, a filha
-desejava ir com ele.
+As King Sun left to direct the course of dawn, every morning, the daughter
+wished to go with him.
 
-Mas ele era muito ocupado e não a podia levar consigo. Um dia, ela remou
-secretamente atrás do pai, num barco.
+But he was very busy and couldn't take her with him. One day, she reined
+secretly behind his father, on a boat.
 
-Infelizmente, uma tempestade se levantou e ela foi tragada pelo mar, deixando
-seu pai tomado de tristeza.
+Unfortunately, a storm rose and she was engulfed by the sea, leaving
+his father taken with sadness.
 
-No entanto, ela renasceu como um pássaro de cabeça listrada, garras vermelhas e
-bico branco.
+However, she was reborn as a striped-headed bird, red claws and
+white beak.
 
-Por causa do seu canto lamentoso é chamado de Jingwei.
+Because of your sorry singing is called Jingwei.
 
-Pois Jingwei prometeu se vingar do mar, dizendo que o transformaria em terra
-seca.
+For Jingwei promised to take revenge from the sea, saying he would turn him into land
+Dry.
 
-Por isso, começou a catar pequenas pedras, com o bico, voando de sua casa para
-o Mar do Leste e deixando-as cair sobre as ondas irregulares.
+Therefore, he began to pick up small stones, with his beak, flying from his house to
+the East Sea and dropping them on the irregular waves.
 
-O mar lhe disse: Pequeno pássaro, desista! Mesmo se trabalhar por um milhão de
-anos, você nunca me transformará numa planície deserta.
+The sea said to him: Little bird, give up! Even if you work for a million
+years, you will never turn me into a desert plain.
 
-A resposta rancorosa de Jingwei foi: Mesmo que eu leve dez milhões de anos ou
-cem milhões de anos, até o final do mundo, vou tratar de fazer de você terra
-seca.
+Jingwei's spiteful response was: Even if I take ten million years or
+hundred million years, by the end of the world, I'll try to make you land
+Dry.
 
-As fêmeas descendentes de Jingwei prosseguem na interminável tarefa de buscar
-pedrinhas e gravetos para aterrar o mar.
+Jingwei's descending females continue in the endless task of seeking
+pebbles and sticks to land the sea.
 
                                    *   *   *
 
-Os chineses respeitam enormemente esse pássaro por sua determinação férrea e
-pela força de vontade.
+The Chinese greatly respect this bird for its railway determination and
+by the willpower.
 
-Monumentos foram erguidos em sua homenagem e ainda podem ser vistos em vários
-locais, às margens da costa leste da China.
+Monuments were erected in their honor and can still be seen in several
+on the shores of China's east coast.
 
-Cantada em versos, a lenda se tornou sinônimo de idealismo invencível e de
-empenho árduo.
+Sung in verses, the legend became synonymous with invincible idealism and
+hard commitment.
 
-Permitimo-nos enfocar outra faceta dessa ave: o ódio que ela destila. Ódio que
-lhe consome os dias em vingança inútil.
+We allow ourselves to focus on another facet of this bird: the hatred it distills. Hate that
+consumes you the days in useless revenge.
 
-Sabendo, embora, que jamais conseguirá atingir o objetivo, afirma que morrerá
-tentando.
+Knowing, though, that you will never be able to achieve the goal, you say you will die
+Trying.
 
-Por vezes, não é exatamente assim que nos portamos? Atingidos em nosso orgulho
-ou no que dizemos ser nossa honra, concentramos nossas energias em tola
-vingança.
+Sometimes isn't that exactly how we behave? Hit in our pride
+or what we say is our honor, we focus our energies on foolish
+Revenge.
 
-Mesmo que tudo que façamos não atinja o alvo, que consideramos nosso inimigo,
-não desistimos.
+Even if everything we do does does not reach the target, which we consider our enemy,
+we didn't give up.
 
-Ainda quando o organismo, registrando nossas vibrações negativas, dê sinais
-alarmantes de enfermidade, persistimos no intuito.
+Even when the organism, recording our negative vibrations, signals
+alarming diseases, we persist in the intention.
 
-Sofremos, choramos mas ratificamos: Morro, mas não me entrego! Vou até o fim!
+We suffer, we cry but ratify: Morro, but I do not give! I'm going all the way!
 
-Valerá a pena? Não será mais produtivo aderirmos ao perdão ensinado por Jesus?
+Is it worth it? Is it no longer productive to adhere to the forgiveness taught by Jesus?
 
-Profundo conhecedor do psiquismo humano, terapeuta exemplar, Ele nos recomendou
-a reconciliação com o adversário.
+Deep connoisseur of human psyche, exemplary therapist, He recommended us
+reconciliation with the adversary.
 
-Sabia Ele que nada de positivo traz a vingança, prejudicando, primeiramente e
-acima de tudo, ao seu promotor.
+He knew that nothing positive brings revenge, harming, first and
+above all, to his promoter.
 
-Pensemos nisso e deixemos que siga em paz quem nos agride ou envenena os dias.
+Let us think about it and let them go in peace who attacks us or poisons us the days.
 
-De nossa parte, vibremos no bem, pelo bem e usufruamos de saúde e felicidade.
+For our part, we vibrate in good, for good and enjoy health and happiness.
 
 
 ## Source

@@ -12,110 +12,110 @@ topics:
 - prayer
 ---
 
-O homem é gregário por natureza.
+Man is gregarious by nature.
 
-Por instinto, ele busca estar próximo de seus semelhantes.
+By instinct, he seeks to be close to his fellow men.
 
-O progresso é uma das leis da vida, cujo atendimento é facilitado pelo
-intercâmbio de idéias e experiências.
+Progress is one of the laws of life, the care of which is facilitated by the
+exchange of ideas and experiences.
 
-Afigura-se natural que os homens procurem ser aceitos em seu meio social e
+It is natural that men seek to be accepted in their social environment and
 familiar.
 
-Em todas as fases da vida, o fenômeno da busca de aceitação ocorre.
+At all stages of life, the phenomenon of the search for acceptance occurs.
 
-Por exemplo, na adolescência é marcante a preocupação em ser parte de um grupo.
+For example, in adolescence, it is remarkable the concern to be part of a group.
 
-Certamente por isso, os adolescentes padronizam gostos e comportamentos.
+Certainly for this, adolescents standardize tastes and behaviors.
 
-Vestem-se, falam e agem de modo semelhante.
+They dress, talk and act in a similar way.
 
-Parecer diferente é algo assustador, pois pode conduzir à condição de pária
+It seems different is something scary, as it can lead to pariah status
 social.
 
-Pela vida afora, ser normal é reconfortante.
+For life, being normal is comforting.
 
-Quando a conduta e as crenças de um homem são partilhadas por outros, ele se
-sente seguro e confortável.
+When a man's conduct and beliefs are shared by others, he
+feels safe and comfortable.
 
-Quem assume uma postura diferenciada tende a ser malvisto.
+Those who assume a differentiated posture tend to be mistreated.
 
-Quando menos, por seu comportamento provocar reflexões.
+The less, because of your behavior provoke reflections.
 
-O que antes parecia tão acertado, talvez não o seja.
+What once seemed so settled, maybe it's not.
 
-Para a maioria das pessoas, é desagradável ter de rever sua postura em face da
-vida.
+For most people, it is unpleasant to have to review your posture in the face of the
+Life.
 
-Quando se admite um erro, a etapa seguinte é engendrar esforços para
-corrigi-lo.
+When you admit an error, the next step is to engender efforts to
+fix it.
 
-Como é mais fácil permanecer inerte, o que leva à reflexão muitas vezes é
-repudiado.
+As it is easier to remain inert, what leads to reflection is often
+Repudiated.
 
-É preciso maturidade e coragem para ser diferente.
+It takes maturity and courage to be different.
 
-Quem ousa contrariar os padrões considerados normais, no meio em que se insere,
-sujeita-se a críticas e rejeições.
+Who is unopposed to the standards considered normal, in the environment in which it is inserted,
+subject to criticism and rejections.
 
-Mas ser normal nem sempre é bom.
+But being normal isn't always good.
 
-Em um mundo marcado pela corrupção, talvez a conduta desonesta seja tida por
+In a world marked by corruption, perhaps dishonest conduct is taken by
 normal.
 
-Pôr a saúde em risco, por vícios de toda ordem, também não causa espanto.
+Putting health at risk, due to vices of all order, also does not cause astonishment.
 
-Muitos assim o fazem e esse comportamento não destoa do que a sociedade tolera
-com tranqüilidade.
+Many like this do so and this behavior does not give up what society tolerates
+with tranquility.
 
-A maledicência, os desregramentos sexuais, o hábito de sempre levar vantagem,
-nada disso parece chocante.
+Malevolence, sexual unruleracties, the habit of always taking advantage,
+none of this seems shocking.
 
-Na sociedade atual, nada é mais banal do que o vício.
+In today's society, nothing is more banal than addiction.
 
-A genuína virtude é que é rara.
+The genuine virtue is rare.
 
-Justamente por sua raridade, chama tanto a atenção.
+Precisely because of its rarity, it draws so much attention.
 
-Em um ambiente leviano, a conduta de quem prefere viver honesta e dignamente
-soa como uma censura para os demais.
+In a frivolous environment, the conduct of those who prefer to live honestly and worthily
+sounds like a censorship for others.
 
-Pense se a sua busca por aceitação não o está fazendo trilhar caminhos
-estranhos.
+Think about whether your quest for acceptance isn't making you walk paths
+Strangers.
 
-Recorde os exemplos e a figura do Cristo.
+Remember the examples and figure of Christ.
 
-Ele conviveu com equivocados de toda ordem, mas preservou sua pureza.
+He lived with misguided of every order, but preserved his purity.
 
-Amparou os caídos e exortou-os ao bem.
+He supported the fallen and urged them for good.
 
-Sua conduta reta e suas sábias palavras causaram muito desconforto.
+His straight conduct and his wise words caused a lot of discomfort.
 
-As pessoas importantes da época acharam necessário matá-lo, para calar sua voz
-e fazer cessar sua influência.
+The important people of the time thought it necessary to kill him, to silence his voice
+and to cease its influence.
 
-Reflita sobre isso e analise sua vida.
+Ponder it and analyze your life.
 
-Veja se o conceito de normalidade não o está corrompendo.
+See if the concept of normality is not corrupting you.
 
-Se você vive com tranqüilidade entre corruptos, talvez a corrupção já o tenha
-marcado.
+If you live quietly among corrupt, perhaps corruption has already
+Marked.
 
-Se sua companhia é muito apreciada pelos levianos e maledicentes, quiçá você
-simplesmente seja um deles.
+If your company is greatly appreciated by the frivolous and malevolent, perhaps you
+simply be one of them.
 
-Se a pornografia não o choca mais, provavelmente você já a incorporou em sua
-vida.
+If pornography doesn't shock you anymore, you've probably already incorporated it into your
+Life.
 
-Por certo não lhe causa alegria perceber-se afinado com a maldade do mundo.
+It certainly doesn't cause you joy to perceive yourself in tune with the wickedness of the world.
 
-Assim, ouse ser diferente.
+So you're sorry to be different.
 
-Seja rigorosamente honesto, leal, íntegro e bondoso.
+Be strictly honest, loyal, righteous and kind.
 
-Pode ser que sua presença seja menos requisitada.
+Your presence may be less requested.
 
-Mas sem dúvida você será mais feliz e terá paz em seu coração.
+But no doubt you will be happier and will have peace in your heart.
 
 
 ## Source

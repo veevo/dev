@@ -16,83 +16,83 @@ topics:
 ---
 
 
-A espiritualidade superior ensina que o isolamento é contrário à natureza
-humana.
+Higher spirituality teaches that isolation is contrary to nature
+Human.
 
-Segundo ela, o homem é instintivamente gregário por motivos providenciais.
+According to her, the man is instinctively gregarious for providential reasons.
 
-Ele precisa progredir e o progresso é sempre fruto da colaboração de muitos.
+He needs to progress and progress is always the result of the collaboration of many.
 
-Em regra, o homem busca a vida em sociedade por razões pessoais.
+As a rule, man seeks life in society for personal reasons.
 
-Ocorre que as criaturas possuem diferentes habilidades e caracteres.
+It turns out that creatures have different abilities and characters.
 
-Mediante o convívio, elas se aproveitam dos talentos recíprocos e aprendem umas
-com as outras.
+Through conviviality, they take advantage of reciprocal talents and learn a
+with the others.
 
-Justamente por isso, a força de uma sociedade advém da diversidade de seus
-integrantes.
+Precisely for this being, the strength of a society comes from the diversity of its
+Members.
 
-Quando a diversidade é valorizada, tem-se um organismo social dinâmico e
-eficiente.
+When diversity is valued, there is a dynamic social organism and
+Efficient.
 
-Ao contrário, toda tentativa de uniformização, com intolerância ao diferente,
-implica enfraquecimento.
+On the contrary, every attempt at uniformity, with intolerance to the different,
+implies weakening.
 
-Pode-se entender que vigora no âmbito humano uma lei geral de cooperação.
+It can be understood that a general law of cooperation is in force in the human sphere.
 
-Ela se apresenta nos mais variados contextos, dos triviais aos sublimes.
+It presents itself in the most varied contexts, from trivial to sublime.
 
-Por exemplo, Jesus encarnou na Terra para ensinar e exemplificar a vivência do
-bem, na conformidade dos desígnios divinos.
+For example, Jesus incarnated on earth to teach and exemplify the experience of
+well, in the conformity of divine designs.
 
-Dotado de extremas sabedoria e pureza, ainda assim buscou companheiros para
-auxiliá-lO na tarefa.
+Endowed with extreme wisdom and purity, he still sought companions to
+help him in the task.
 
-Escolheu doze Apóstolos, aos quais ministrou os mais variados ensinamentos.
+He chose twelve Apostles, to whom he taught the most varied teachings.
 
-Orientou-os, burilou-os e amparou-os para que no tempo devido sustentassem a
-vivência do Evangelho no mundo.
+He guided them, circumvented them and supported them so that in due time they would sustain the
+experience of the Gospel in the world.
 
-Os Apóstolos eram diferentes entre si.
+The Apostles were different from each other.
 
-Havia os reflexivos, os exaltados, os emotivos e os práticos.
+There were reflective, the exalted, the emotional and the practical.
 
-Jesus a nenhum desprezou. Antes, soube aproveitar suas diferentes habilidades
-para o sucesso da empreitada evangélica.
+Jesus despised it. Before, he knew how to take advantage of his different skills
+for the success of the Evangelical endeave.
 
-Certamente, ao assim agir, o Mestre Divino sinalizou a importância da
-cooperação e da tolerância.
+Certainly, in doing so, the Divine Master signaled the importance of
+cooperation and tolerance.
 
-Dotado de poderes magnéticos desconhecidos e de extraordinária sabedoria, nem
-por isso quis fazer tudo sozinho.
+Endowed with unknown magnetic powers and extraordinary wisdom, nor
+that's why I wanted to do it all by myself.
 
-Soube dividir o peso da tarefa com homens rudes e que não O compreendiam bem.
+He knew how to share the weight of the task with rude men who didn't understand Him well.
 
-Esse eloquente exemplo demanda detida reflexão.
+This eloquent example demands for reflection.
 
-A vida em sociedade nem sempre é fácil.
+Life in society is not always easy.
 
-Entre pessoas de visões e habilidades diversas, por vezes surgem discussões e
-desentendimentos.
+Among people of diverse visions and skills, sometimes discussions arise and
+Disagreements.
 
-Ocorre que o bem pujante nunca é obra de um homem só.
+It turns out that the thriving good is never the work of one man.
 
-Toda realização de importância é sempre fruto do esforço de incontáveis
-envolvidos.
+Every realization of importance is always the result of the effort of countless
+Involved.
 
-Apenas é preciso ser tolerante para conviver com o diferente.
+You just have to be tolerant to live with the different.
 
-A fim de que o melhor resultado surja, importa aprender a admirar opiniões
-divergentes.
+In order for the best result to emerge, it is important to learn to admire opinions
+Divergent.
 
-Não apenas tolerá-las, mas valorizá-las, no que apresentem de positivo.
+Not only tolerate them, but value them, in what they have positive.
 
-Sem dúvida, é possível agir sozinho na luta por um ideal.
+Undoubtedly, it is possible to act alone in the struggle for an ideal.
 
-Ocorre que, quando várias mãos se juntam, o bem se multiplica e expande.
+It turns out that when multiple hands come together, the good multiplies and expands.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

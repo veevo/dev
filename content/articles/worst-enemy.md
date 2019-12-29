@@ -11,85 +11,85 @@ topics:
 ---
 
 
-Um homem, admirável pelas qualidades de trabalho e pelas virtudes do caráter,
-foi percebido pelos inimigos da Humanidade que conhecemos por ignorância,
-calúnia, maldade, discórdia, vaidade, preguiça e desânimo.
+A man, admirable for the qualities of work and the virtues of character,
+was perceived by the enemies of humanity that we know out of ignorance,
+slander, wickedness, discord, vanity, laziness and discouragement.
 
-Juntos, eles tramaram agir contra ele, conduzindo-o à derrota.
+Together, they plotted to act against him, leading him to defeat.
 
-A ignorância começou a sua perseguição, apresentando-o ao povo como mau
-observador das obrigações religiosas.
+Ignorance began his persecution, presenting him to the people as bad
+observer of religious obligations.
 
-Dizia que ele se isolava cuidando da terra, cheio de ambições desmedidas para
-enriquecer à custa do alheio suor. Não tinha fé, nem respeitava os bons
+He said he was isolated by taking care of the land, full of unmeasured ambitions for
+enrich at the expense of others sweat. He had no faith, nor respected the good
 costumes.
 
-O lavrador ativo recebeu as notícias da adversária, sorriu calmo e falou com
-sinceridade: A ignorância está desculpada.
+The active farmer received the news from the opponent, smiled calmly and spoke to
+sincerity: Ignorance is excused.
 
-Surgiu, então, a calúnia e o denunciou às autoridades por espião de interesses
-estranhos. Aquele homem vivia, quase sozinho, para melhor comunicar-se com
-vasta quadrilha de ladrões.
+Slander then arose and denounced it to the authorities for spy interests
+Strangers. That man lived, almost alone, to better communicate with
+vast gang of thieves.
 
-O serviço policial tratou de minuciosas averiguações e, ao término do inquérito
-vergonhoso, a vítima afirmou sem ódio: A calúnia estava enganada.
+The police service dealt with thorough investigations and, at the end of the investigation
+shameful, the victim claimed without hatred: Slander was wrong.
 
-E trabalhou com dobrado valor moral.
+And he worked with doubled moral value.
 
-Logo veio a maldade, que principiou incendiando-lhe o campo. Destruiu-lhe
-milharais enormes, prejudicou-lhe a vinha, poluiu-lhe as fontes.
+Soon came the wickedness, which began by burning the field to him. Destroyed him
+huge milharais, harmed his vineyard, polluted his supplies.
 
-O operário incansável tudo refez, respondendo: Contra as sombras do mal, tenho
-a luz do bem.
+The tireless worker all redid, answering: Against the shadows of evil, I have
+the light of good.
 
-Os perseguidores, reconhecendo que haviam encontrado um Espírito robusto na fé,
-instruíram a discórdia, que passou a assediá-lo dentro da própria casa.
+The pursuers, recognizing that they had found a robust Spirit in faith,
+they instructed the discord, which began to harass him inside his own house.
 
-Provocações o cercaram de todos os lados e, em breve, irmãos e amigos o
-abandonaram.
+Taunts surrounded him from all sides and, soon, brothers and friends the
+Abandoned.
 
-O bom homem sofreu bastante mas, ergueu os olhos para o céu e falou:
+The good man suffered a lot but raised his eyes to heaven and said:
 
-Meu Deus, estou só. No entanto, continuarei agindo e servindo em Teu nome.
-Esquecerei a discórdia.
+Oh, my God, I'm alone. However, I will continue to act and serve on Your behalf.
+I'll forget about the discord.
 
-Apareceu, então, a vaidade que foi lhe dizendo:
+Then came the vanity that was telling him:
 
-Você é um grande herói... Venceu aflições e batalhas! Deverá ganhar a auréola
-dos justos e dos santos!
+You're a great hero. You've overcome afflictions and battles! You must win the halo
+of the righteous and the saints!
 
-O trabalhador sincero continuou imperturbável:
+The sincere worker remained unfazed:
 
-Sou apenas um átomo que respira. Toda glória pertence a Deus!
+I'm just an atom that breathes. All glory belongs to God!
 
-Foi a vez da preguiça lhe acariciar a fronte, com mãos traiçoeiras:
+It was the turn of laziness to caress his forehead, with treacherous hands:
 
-Seus sacrifícios são excessivos. Repouse. Você já perdeu as melhores forças!
+Your sacrifices are excessive. Rest. You've already lost the best strength!
 
-Vigilante, o interpelado replicou sem hesitar:
+Vigilant, the challenge replied without hesitation:
 
-Meu dever é o de servir em benefício de todos, até ao fim da luta.
+My duty is to serve for the benefit of all, until the end of the fight.
 
-Afastando-se a preguiça, o desânimo compareceu.
+Moving away from laziness, discouragement came.
 
-Não atacou de longe, nem de perto. Não se sentou na poltrona para conversar,
-nem lhe cochichou aos ouvidos. Entrou no coração do operoso lavrador e, depois
-de se instalar, começou a lhe perguntar:
+He didn't attack from afar or a close time. He didn't sit in the chair to talk,
+neither whispered to his ears. He entered the heart of the operous farmer and then
+to settle in, he began to ask you:
 
-Para que se esforçar? Por que servir? Não vê que o mundo está repleto de
-colaboradores mais competentes? Que razão justifica tamanha luta?
+Why try? Why serve? You can't see that the world is full of
+competent employees? What reason justifies such a fight?
 
-Não será melhor deixar tudo por conta de Deus? Que espera? Tudo é inútil... Não
-se lembra de que a morte destruirá tudo?
+Wouldn't it be better to leave everything on God's sake? What do you expect? Everything is useless... No
+Do you remember that death will destroy everything?
 
-O homem forte e valoroso, que triunfara de tantos combates, começou a ouvir
-aquelas interrogações, deitou-se e passou anos sem se levantar.
+The strong and valiating man, who had triumphed from so many fights, began to hear
+those interrogations, lay down and spent years without getting up.
 
                                    *   *   *
 
-Não permitamos que o desânimo nos impeça de viver, de agir e de sonhar. Sempre
-que o percebamos por perto, coloquemo-nos em oração, afirmando: Minha alma é
-maior e mais forte do que você.
+Let us not allow discouragement to prevent us from living, acting and dreaming. Always
+that we perceive him around, put ourselves in prayer, stating, My soul is
+bigger and stronger than you.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 22,

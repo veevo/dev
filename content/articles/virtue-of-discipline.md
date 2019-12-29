@@ -16,108 +16,108 @@ topics:
 ---
  
 
-Certas palavras e expressões às vezes têm seu sentido deturpado ou reduzido.
+Certain words and expressions sometimes have their sense misrepresented or reduced.
 
-Assim ocorre com a disciplina, freqüentemente entendida como submissão a um
-agente externo.
+Thus, it occurs with discipline, often understood as submission to a
+external agent.
 
-O termo remeteria à ação que sujeita a vontade de outrem.
+The term would refer to the action subject to the will of others.
 
-Por exemplo, o pai que disciplina seu filho ou o comandante que conduz suas
-tropas sob um regime disciplinar severo.
+For example, the father who disciplines his son or commander who conducts his
+troops under a severe disciplinary regime.
 
-Embora a disciplina sob o aspecto exterior seja necessária, ela a tal não se
-circunscreve.
+Although discipline in the outside aspect is necessary, it is not necessary to
+Limited.
 
-Na realidade, é sob o prisma interno que a disciplina revela seu mais rico
-potencial.
+In reality, it is from the inner prism that discipline reveals its richest
+Potential.
 
-Trata-se de uma virtude que viabiliza a aquisição de todas as outras.
+It is a virtue that enables the acquisition of all others.
 
-Sem disciplina, não há avanço e transformação moral e intelectual.
+Without discipline, there is no advancement and moral and intellectual transformation.
 
-A criatura indisciplinada permanece como sempre foi.
+The undisciplined creature remains as it always has been.
 
-Seus vícios e debilidades não encontram firme oposição e os mesmos erros são
-incessantemente repetidos.
+Their addictions and weaknesses do not find firm opposition and the same errors are
+incessantly repeated.
 
-A disciplina atua no plano da vontade.
+Discipline acts on the will plan.
 
-Ela estabelece regras e define como deve ser o comportamento futuro.
+It lays down rules and defines what future behavior should look like.
 
-O homem disciplinado diz a si mesmo que deve fazer e se mantém firme no
-propósito.
+The disciplined man tells himself he must do and holds firm in the
+Purpose.
 
-Mesmo contra seus interesses e tendências naturais, segue o programa de
-melhoramento que se impôs como meta.
+Even against its natural interests and trends, follows the
+improvement that has been set as a target.
 
-A disciplina consiste em uma força interior que permite a alteração de velhos
-hábitos.
+Discipline consists of an inner force that allows the alteration of old
+Habits.
 
-Não se trata apenas de decidir ser melhor, mas de colocar em prática o que se
-decidiu.
+It is not just about deciding to be better, but to put into practice what is
+Decided.
 
-Certamente há vacilos, mas logo o homem disciplinado retoma seu projeto
-inicial.
+Certainly there are falters, but soon the disciplined man resumes his project
+Initial.
 
-Ele não se permite desistir, quando percebe a viabilidade da meta que elegeu
-para si.
+He does not allow himself to give up, when he realizes the viability of the goal he elected
+for yes.
 
-Todos os Espíritos, atualmente vinculados à Terra, já passaram por incontáveis
-encarnações.
+All spirits, currently bound to the earth, have gone through countless
+Incarnations.
 
-No longo processo de aprendizado, cometeram muitos equívocos e desenvolveram
-maus hábitos.
+In the long learning process, they have made many misconceptions and developed
+bad habits.
 
-Certas tendências do pretérito remoto ainda hoje se fazem presentes nos homens.
+Certain trends of the remote past are still present in men today.
 
-Nos primórdios da evolução, o Espírito era despido de cogitações intelectuais e
-morais mais complexas.
+In the early days of evolution, the Spirit was stripped of intellectual and
+more complex morals.
 
-As preocupações do ser resumiam-se à preservação da vida e à perpetuação da
-espécie.
+The concerns of being boiled down to the preservation of life and the perpetuation of
+Species.
 
-O tempo não gasto com a satisfação dessas necessidades era dedicado ao ócio.
+The time not spent with the satisfaction of these needs was dedicated to idleness.
 
-Assim, o gosto excessivo pelo descanso lembra as fases primitivas da existência
-imortal.
+Thus, the excessive taste for rest resembles the primitive phases of existence
+Immortal.
 
-O mesmo ocorre com a preocupação desmedida com alimentação e sexo.
+The same is true with the unmeasured concern with food and sex.
 
-Nada há de errado com a satisfação das necessidades elementares da vida, em um
-contexto de dignidade.
+Nothing is wrong with the satisfaction of the elementary needs of life, in a
+context of dignity.
 
-O vício reside no excesso e na fixação do pensamento em atividades que são
-meramente instrumentais.
+Addiction lies in excess and fixation of thought in activities that are
+merely instrumental.
 
-A destinação do Espírito humano é excelsa.
+The destination of the human spirit is excellent.
 
-Compete-lhe vencer a si mesmo, libertar-se de hábitos primários e preparar-se
-para experiências transcendentais do intelecto e do sentimento.
+It is up to him to beat himself, free himself from primary habits and prepare
+for transcendental experiences of intellect and feeling.
 
-Ocorre que isso somente é possível com muita disciplina.
+It turns out that this is only possible with a lot of discipline.
 
-Sem uma vontade firme aplicada na correção do próprio comportamento, ninguém
-avança.
+Without a firm will applied in the correction of one's own behavior, no one
+Advances.
 
-Maus hábitos, como maledicência, gula, preguiça e leviandade sexual, não somem
-por si sós.
+Bad habits, such as malevolence, gluttony, laziness and sexual levity, do not disappear
+by themselves.
 
-Eles devem ser corajosamente enfrentados e subjugados.
+They must be courageously faced and subdued.
 
-O abandono de vícios é lento e doloroso.
+Abandonment of addictions is slow and painful.
 
-No princípio, o esforço necessário é hercúleo.
+In the beginning, the necessary effort is herculean.
 
-Mas gradualmente se percebe o peso que representam as más tendências.
+But you gradually realize the weight that the bad trends represent.
 
-Surge uma sensação de liberdade e de leveza, com a adoção de um padrão digno de
-comportamento.
+There is a sense of freedom and lightness, with the adoption of a pattern worthy of
+Behavior.
 
-Então, o que era difícil se torna fácil e prazeroso, pois a disciplina gera a
-espontaneidade.
+So what was difficult becomes easy and pleasurable, for discipline generates
+Spontaneity.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

@@ -11,84 +11,84 @@ topics:
 ---
 
 
-Ela acordou louca! Foi o que todos afirmaram, no amanhecer daquele dia, na
-cidade de Magdala.
+She woke up crazy! That's what everyone said, at dawn that day, in the
+city of Magdala.
 
-Todos desejavam saber o que havia acontecido à Maria Madalena que a fez deixar
-toda sua riqueza e conforto para sair de Magdala trajando apenas um simples
-manto.
+Everyone wanted to know what had happened to Mary Magdalene who made her leave
+all his wealth and comfort to get out of Magdala wearing just a simple
+Mantle.
 
 *   *   *
 
-A noite estava escura e ligeiramente fria.
+The night was dark and slightly cold.
 
-Ao aproximar-se da singela casa de pescador, na praia de Cafarnaum e na qual
-ela sabia estar o Mestre, seu coração disparou e suas mãos ficaram trêmulas.
+As you approach the simple fisherman's house, on capernaum beach and in which
+she knew the Master was, her heart went off and his hands became shaky.
 
-Embora sua alma desejasse profundamente aquele encontro, ela se sentia
-envergonhada por seus atos passados, por sua vida de luxúria e desequilíbrio no
-campo afetivo.
+Although her soul deeply desired that encounter, she felt
+ashamed for her past acts, for her life of lust and imbalance in the
+affective field.
 
-Ao adentrar no recinto e contemplá-lo, num impulso ela se lançou a Seus pés e,
-em meio a grossas lágrimas, exclamou: Raboni, que, em aramaico, significa
-Mestre querido.
+As she entered the enclosure and contemplated him, in an impulse she threw herself at His feet, and,
+midst of thick tears, he exclaimed, Raboni, who, in Aramaic, means
+Master dear.
 
-Jesus, tomando as mãos daquela mulher entre as suas, gentilmente asseverou:
+Jesus, taking the hands of that woman among his own, kindly assailed:
 Maria.
 
-Ela estranhou o fato dEle a chamar pelo nome, pois que estavam se conhecendo
-naquele momento.
+She surprised him to call her by name, for they were getting to know each other
+at that moment.
 
-Porém Jesus, redarguiu: Maria, eu sou o bom pastor. E conheço todas as minhas
-ovelhas.
+But Jesus redargui: Mary, I am the good shepherd. And I know all my
+Sheep.
 
-Naquele instante, o Mestre falou a Maria sobre os tesouros do céu e a convidou
-a uma tarefa grandiosa: Ama, Maria.
+At that moment, the Master spoke to Mary about the treasures of heaven and invited her
+to a great task: Love, Mary.
 
-Sentindo-se renascer, Maria Madalena retornou à sua residência, vendeu seus
-bens, tudo distribuindo entre seus servos e os pobres.
+Feeling reborn, Mary Magdalene returned to her residence, sold her
+goods, all distributing between their servants and the poor.
 
-A partir daquele dia, onde se encontrava Jesus de Nazaré, lá também estava a
-arrependida de Magdala.
+From that day, where Jesus of Nazareth was, there was also the
+sorry of Magdala.
 
-O tempo se sucedeu. Chegou o dia em que Jesus foi levado diante da autoridade
-romana, aprisionado, torturado e crucificado.
+Time has followed. The day came when Jesus was taken before the authority
+roman, imprisoned, tortured and crucified.
 
-Durante o caminho até o Gólgota, ao lado de Maria, mãe do Cristo, encontrava-se
-Maria Madalena. Seu coração estava despedaçado de tristeza pelo que os homens
-faziam Àquele que havia sido o único homem que verdadeiramente a amara e a
-aceitara.
+Along the way to Golgotha, alongside Mary, mother of Christ, was
+Mary magdalene. His heart was shattered with sadness by what men
+they made him who had been the only man who had truly loved her and
+i'd accepted.
 
-Três dias haviam passado desde que Ele morrera. Na manhã de domingo, Maria de
-Magdala foi ao local da sepultura de Jesus. Para sua surpresa, o túmulo estava
-vazio.
+Three days had passed since He died. On Sunday morning, Maria de
+Magdala went to the site of Jesus' grave. To his surprise, the tomb was
+Empty.
 
-Antes que pudesse entender o que houvera acontecido, aquela doce voz mais uma
-vez a chamou pelo nome: Maria.
+Before I could understand what had happened, that sweet voice plus a
+instead called her by name: Mary.
 
-E, com o coração repleto de alegria, ela novamente se lançou a Seus pés: Raboni
+And with her heart filled with joy, she again threw herself at His feet: Raboni
 !
 
-Nos anos que se seguiram, Maria de Magdala foi viver junto aos abandonados no
-vale dos leprosos, em Jerusalém, ofertando-lhes os ensinamentos do Mestre.
+In the years that followed, Mary of Magdala went to live together with the abandoned in the
+valley of the lepers in Jerusalem, offering them the teachings of the Master.
 
-Em seu retorno ao plano espiritual, foi recebida por Jesus, que, abraçando-a,
-declarou: Maria, já passaste a porta estreita!... Amaste muito! Vem! Eu te
-espero aqui!
+On his return to the spiritual plane, he was received by Jesus, who, embracing her,
+declared: Mary, have you passed the narrow door!... You loved it a lot! Comes! I
+I hope here!
 
 *   *   *
 
-Guardemos as palavras de Pedro: O amor cobre uma multidão de pecados e erros.
-Deixemos o ontem no passado e nos preocupemos com o que hoje fazemos em função
-de nosso progresso.
+Let us keep Peter's words: Love covers a multitude of sins and mistakes.
+Let's leave yesterday in the past and worry about what we do today in function
+of our progress.
 
-Todos os dias Deus nos concede um novo alvorecer, repleto de oportunidades.
-Aproveitemos, portanto, cada segundo, a fim de marcharmos em direção ao Mestre.
+Every day God grants us a new dawn, full of opportunities.
+Let us therefore take advantage of every second in order to march towards the Master.
 
-Tenhamos a certeza: Ele nos conhece pelo nome e nos aguarda de braços
+Let's be sure: He knows us by name and awaits us with arms
 abertos...
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. 20,

@@ -7,78 +7,78 @@ topics:
 - jesus
 ---
 
-Narra o Evangelho de Mateus que, quando os inimigos de Jesus O tentaram
-envolver em uma contradição, acerca da legalidade ou não do pagamento do
-tributo ao Imperador de Roma, o Excelso Mestre assim concluiu o ensino: Dai,
-pois, a César, o que é de César e a Deus o que é de Deus.
+Narrates the Gospel of Matthew that when Jesus' enemies tried him
+involved in a contradiction, whether or not the payment of the
+tribute to the Emperor of Rome, the Excelso Master thus concluded teaching: Dai,
+for Caesar, what is caesar and God's what is of God.
 
-A resposta nos conduz a profundas reflexões.
+The answer leads us to deep reflections.
 
-César e Deus podem significar o humano e o Divino, o material e o espiritual.
+Caesar and God can mean the human and the Divine, the material and the spiritual.
 
-Normalmente, por vivermos no mundo carnal, nos afadigamos pela conquista de
-coisas materiais. Isso porque este mundo muito nos exige para a sobrevivência e
-o desfrutar de algum conforto.
+Usually, because we live in the carnal world, we struggle to conquer
+material things. That's because this world requires us so much for survival and
+enjoy some comfort.
 
-Assim, aplicamos todas as horas, ou grande parte delas, aos compromissos
-materiais. Mesmo quando nos dispomos ao repouso, nosso objetivo é o de refazer
-as forças para a luta do dia seguinte que nos aguarda, com a mesma ou maior
-intensidade.
+Thus, we apply all hours, or most of them, to the commitments
+Materials. Even when we have rest, our goal is to redo
+forces for the next day's fight that awaits us, with the same or greater
+Intensity.
 
-Envolvidos no cotidiano, programamos a nossa vida como se ela jamais viesse a
-se extinguir pela desencarnação.
+Involved in everyday life, we program our lives as if it never came to
+extinguished by disincarnation.
 
-Elegemos um culto exagerado ao corpo, imaginando que dele não mais nos
-haveremos de apartar. Nesse afã, gastamos horas inúmeras com a seleção das mais
-aprimoradas dietas, os exercícios físicos apropriados, vitaminas, ervas, banhos
+We elected an exaggerated cult of the body, imagining that he no longer us
+we'll break apart. In this fan, we spend countless hours selecting the most
+improved diets, appropriate physical exercises, vitamins, herbs, baths
 etc.
 
-Naturalmente, ao sermos surpreendidos pela morte física, pela falta de hábito
-de elevação, poderemos prosseguir na fixação perturbadora e ilusória de que a
-morte não nos ceifou o corpo, permanecendo ao seu lado.
+Of course, when we are surprised by physical death, by the lack of habit
+elevation, we can continue in the disturbing and illusory fixation that the
+death did not reaperus at the body, remaining by his side.
 
-Como homens, vivemos em sociedade e temos deveres para com ela. Necessitamos
-cumprir com nossa parte para o progresso de todos.
+As men, we live in society and have duties towards it. Need
+fulfill our part for the progress of all.
 
-E ninguém pense que fugir do mundo, sob o pretexto de servir a Deus, se
-justifique. O Mestre Jesus nos deu os exemplos de como viver no mundo, servindo
-aos homens.
+And no one thinks that fleeing the world, under the pretext of serving God, if
+Justify. Master Jesus gave us examples of how to live in the world, serving
+to men.
 
-Ele participou das bodas em Caná, santificando-as com Sua presença. Foi à casa
-de um cobrador de impostos, honrando-lhe o lar.
+He participated in the wedding in Cana, sanctifying them with His presence. He went to the house
+of a tax collector, honoring his home.
 
-Mais de uma vez hospedou-se na chácara dos irmãos de Betânia. Ouviu a mulher
-equivocada, lecionando-lhe honradez. Foi ao templo e à sinagoga, sem
-preconceito de espécie alguma. Participou das festas habituais do povo, sem se
-permitir envolver em paixões.
+More than once he stayed in the farm of bethany's brothers. You heard the woman
+misguided, teaching him honor. He went to the temple and synagogue, without
+prejudice of any kind. Participated in the usual feasts of the people, without
+involve in passions.
 
-Tudo fez com naturalidade, discrição e honorabilidade.
+Everything did with naturalness, discretion and honorability.
 
                                    *   *   *
 
-Aprendamos com Jesus. Em nossos dias, dediquemos a Deus um momento de reflexão,
-uma hora de misericórdia para com os Seus filhos.
+Let's learn from Jesus. In our day, we dedicate to God a moment of reflection,
+an hour of mercy towards His children.
 
-Encaminhemos a Deus nossa dádiva, ofertando-nos ao próximo.
+Let us refer to God our gift, offering ourselves to others.
 
-Vivamos no mundo, amando a vida e servindo ao mundo sem escravidão. E
-canalizemos para Deus os nossos recursos morais, trabalhando nossa intimidade
-espiritual, imperecível, imortal.
+We live in the world, loving life and serving the world without slavery. And
+channel our moral resources to God, working our intimacy
+spiritual, imperishable, immortal.
 
- 
-### Você sabia?
- 
-...que o nascimento de Jesus foi anunciado por cânticos celestes e informado
-aos pastores como uma notícia de muita alegria?
 
-E sabia que Jesus encerrou o Seu messianato, entre os homens, em plena luz do
-dia, em glorioso encontro na natureza, desaparecendo aos olhos de quinhentos
-discípulos?
+### Did you know?
 
-Dessa forma nos ensinou que a vida é um poema de júbilos em nome do amor.
+... that the birth of Jesus was announced by celestial chants and informed
+to pastors as a news of great joy?
 
-Pensemos nisso.
- 
+And he knew that Jesus ended His messianate, among men, in the light of the
+day, in glorious encounter in nature, disappearing in the eyes of five hundred
+Disciples?
+
+In this way he taught us that life is a poem of joys in the name of love.
+
+Let's think about it.
+
 ## Source
 Redação do Momento Espírita, com base no cap. 17,
 do livro Momentos de Esperança, pelo Espírito Joanna de Ângelis,

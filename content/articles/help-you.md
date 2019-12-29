@@ -7,64 +7,64 @@ topics:
 ---
  
 
-Narra-se que um sábio caminhava com os discípulos por uma estrada tortuosa,
-quando encontraram um homem piedoso que, ajoelhado, rogava a Deus que o
-auxiliasse a tirar seu carro do atoleiro.
+It is narrated that a sage walked with his disciples along a tortuous road,
+when they found a pious man who, kneeling, begged God that the
+help get your car out of the quagmire.
 
-Todos olharam o devoto, sensibilizaram-se e prosseguiram.
+Everyone looked at the devotee, became sensitized and proceeded.
 
-Alguns quilômetros à frente, havia um outro homem que tinha, igualmente, o
-carro atolado num lodaçal. Esse, porém, esbravejava reclamando, mas tentava com
-todo empenho liberar o veículo.
+A few miles ahead, there was another man who also had the
+car jammed in a slime. This, however, braved complaining, but tried with
+every effort to release the vehicle.
 
-Comovido, o sábio propôs aos discípulos ajudá-lo.
+Moved, the wise man proposed to the disciples to help him.
 
-Reuniram todas as forças e conseguiram retirar o transporte do atoleiro. Após
-os agradecimentos, o viajante se foi feliz.
+They gathered all their forces and managed to remove the transport from the quagmire. After
+thanks, the traveler himself was happy.
 
-Os aprendizes surpresos, indagaram ao mestre: Senhor, o primeiro homem orava,
-era piedoso e não o ajudamos. Este, que era rebelde e até praguejava, recebeu
-nosso apoio. Por quê?
+The surprised apprentices asked the master: Lord, the first man prayed,
+he was pious and we didn't help him. This one, who was rebellious and even cursed, received
+our support. Why is that?
 
-Sem perturbar-se, o nobre professor respondeu: Aquele que orava, aguardava que
-Deus viesse fazer a tarefa que a ele competia. O outro, embora desesperado por
-ignorância, empenhava-se, merecendo auxílio.
-
-*   *   *
-
-Muitos de nós costumamos agir como o primeiro viajante. Diante das
-dificuldades, que nos parecem insolúveis, acomodamo-nos, esperando que Deus
-faça a parte que nos cabe para a solução do problema.
-
-Nós podemos e devemos empregar esforços para melhorar a situação em que nos
-encontramos.
-
-Há pessoas que desejam ver os obstáculos retirados do caminho por mãos
-invisíveis, esquecidas de que esses obstáculos, em sua maioria, foram ali
-colocados por nós mesmos, cabendo-nos agora, a responsabilidade de retirá-los.
-
-Alguns se deixam cair no amolentamento, alegando que a situação está difícil e
-que não adianta lutar.
-
-Outros não dispõem de perseverança, abandonando a luta após ligeiros esforços.
-
-Com propriedade afirma a sabedoria popular que pedra que rola não cria limo,
-sugerindo alteração de rota, movimento, dinamismo, realização.
-
-Não basta pedir ajuda a Deus, é preciso buscar, conforme o ensino de Jesus:
-Buscai e achareis, batei e abrir-se-vos-á.
-
-Devemos, portanto, fazer a nossa parte que Deus nos ajudará no que não estiver
-ao nosso alcance resolver.
+Without disturbing himself, the noble teacher replied: He who prayed, awaited that
+God would come to do the task that was competing for him. The other, though desperate for
+ignorance, committed itself, deserving aid.
 
 *   *   *
 
-         Seria ideal que, sem reclamar e pensando corretamente, fizéssemos
-esforços para retirar do atoleiro o carro da nossa existência, a fim de
-seguirmos adiante felizes, com coragem e disposição. Confiantes de que Deus
-sustentará as nossas forças para que possamos triunfar.
+Many of us usually act as the first traveler. In the face of
+difficulties, which seem insoluble to us, we settle down, hoping that God
+do the part that is up to us to solve the problem.
 
-Pensemos nisso!
+We can and must make efforts to improve the situation in which we
+Found.
+
+There are people who wish to see obstacles taken from the path by hand
+invisible, forgotten that these obstacles, for the most part, were there
+placed by ourselves, and it is now up to us to remove them.
+
+Some drop into the soslow, claiming that the situation is difficult and
+that there's no point in fighting.
+
+Others do not have perseverance, abandoning the fight after slight efforts.
+
+With property affirms the popular wisdom that stone rolling does not create slime,
+suggesting change of route, movement, dynamism, realization.
+
+It is not enough to ask God for help, it is necessary to seek, according to the teaching of Jesus:
+Search and find, knock and open up to you.
+
+We must therefore do our part that God will help us in what is not
+within our reach to solve.
+
+*   *   *
+
+         It would be ideal that, without complaining and thinking correctly, we would
+efforts to remove from the quagmire the car from our existence in order to
+move on happily, with courage and disposition. Confident that God
+will sustain our strength so that we may triumph.
+
+Let's think about it!
 
 ## Source
 Redação do Momento Espírita.

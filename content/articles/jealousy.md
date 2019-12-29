@@ -10,69 +10,69 @@ topics:
 - love
 ---
 
-Os ciumentos não precisam de causa para o ciúme: têm ciúme, nada mais. O ciúme
-é monstro que se gera em si mesmo e de si nasce.
+Jealouss need no cause for jealousy: they're jealous, nothing more. Jealousy
+it is a monster that is generated in itself and is born of itself.
 
-William Shakespeare apresenta em sua obra Otelo, uma análise profunda, incômoda
-e intensa desse grande gigante da alma, o ciúme.
+William Shakespeare presents in his work Othello, a deep, uncomfortable analysis
+and intense of this great giant of the soul, jealousy.
 
-Na clássica peça shakesperiana, o general mouro Otelo é envenenado pela
-desconfiança, vinda do verbo afiado e sorrateiro de seu alferes, Iago.
+In the classic Shakespearean piece, Moorish general Othello is poisoned by the
+mistrust, coming from the sharp and sneaky verb of his ensign, Iago.
 
-Iago, também por ciúme e inveja, procura uma forma de destruir seu amo e sua
-amada, Desdêmona, e encontra nesse poderoso tóxico a maneira de promover sua
-vendeta.
+Iago, also out of jealousy and envy, seeks a way to destroy his love and his
+desdêmona, and finds in this powerful toxic way of promoting his
+soldade.
 
-Procurando descobrir mais sobre esta fragilidade humana, vamos perceber o ciúme
-como a inquietação mental causada por suspeita ou receio de rivalidade nos
-relacionamentos humanos.
+Trying to find out more about this human fragility, let's understand jealousy
+such as mental unrest caused by suspicion or fear of rivalry in the
+human relationships.
 
-É uma espécie de distorção, um exagero, um desequilíbrio do sentimento de zelo.
+It's a kind of distortion, an exaggeration, an imbalance of the sense of zeal.
 
-Adentrando na intimidade deste sentimento, vamos descobrir que ele é medo. Medo
-de algum dia sermos dispensáveis à pessoa com a qual nos relacionamos.
+Entering the intimacy of this feeling, let's find out he's fear. Fear
+to someday be expendable to the person we relate to.
 
-Medo de sermos abandonados, rejeitados ou menosprezados. Medo de não mais
-sermos importantes. Medo de não sermos mais amados, enfim, é, de certa forma,
-medo da solidão.
+Fear of being abandoned, rejected or despised. Fear of no more
+be important. Fear of not being loved anymore, in short, is, in a way,
+fear of loneliness.
 
-O psiquiatra e psicoterapeuta Eduardo Ferreira Santos revela que tal sentimento
-é totalmente voltado para si mesmo, egocentrado e, por esta afirmação, podemos
-entender o porquê da frase do personagem Iago, de Shakespeare, dizendo que o
-ciúme não precisa de causas exteriores, que se gera em si mesmo.
+Psychiatrist and psychotherapist Eduardo Ferreira Santos reveals that such feeling
+is totally geared towards himself, egocentered and, by this statement, we can
+understand why Shakespeare's iago character phrase said that the
+jealousy does not need external causes, which is generated in itself.
 
-Suas causas interiores, segundo o Espírito Joanna de Ângelis, são encontradas
-principalmente na insegurança psicológica, na baixa autoestima, no orgulho
-avassalador que não suporta rivalidades.
+His inner causes, according to the Spirit Joanna of Angelas, are found
+psychological insecurity, low self-esteem, pride
+overwhelming that does not support rivalries.
 
-E no egoísmo, que ainda nos faz ver aqueles que estão à nossa volta como
+And in selfishness, which still makes us see those around us as
 posses.
 
-O ser inseguro transfere para o outro a causa desta insegurança, dizendo-se
-vítima, quando apenas é escravo de ideias absurdas, fantasias, ilusões, criadas
-em sua mente, que ateiam incêndios em ocorrências imaginárias.
+The insecure being transfers to the other the cause of this insecurity, saying that
+victim, when he is only a slave to absurd ideas, fantasies, illusions, created
+in his mind, which set fires in imaginary occurrences.
 
-Agravado, este sentir leva a psicoses, a problemas neuropsiquiátricos, como
-diversos tipos de disritmias cerebrais, sendo causador de agressões físicas e
-crimes passionais.
+Aggravated, this feeling leads to psychoses, neuropsychiatric problems, such as
+different types of cerebral dysrhythmia, causing physical aggression and
+crimes.
 
-O ciúme é um sinal de alerta, mostrando que algo não vai bem, que algo precisa
-ser reparado, repensado.
+Jealousy is a warning sign, showing that something is not going well, that something needs
+be repaired, rethought.
 
-A terapia para o ciúme passa pelo autoconhecimento, quando percebemos a
-fragilidade em nós, e tomamos atitudes práticas de autocontrole,
-autodisciplina, para erradicá-lo gradualmente da vida.
+The therapy for jealousy goes through self-knowledge, when we perceive the
+fragility in us, and we take practical attitudes of self-control,
+self-discipline, to eradicate it gradually from life.
 
-O tratamento também prescreve uma reconquista da autoestima, da confiança em si
-mesmo, tornando-nos menos sensíveis às investidas cruéis desse vício moral.
+Treatment also prescribes a reconquest of self-esteem, trust in itself
+even by making us less sensitive to the cruel attacks of this moral addiction.
 
-Finalmente, as ações no bem, que fazem com que a alma se doe e amplie seu leque
-de relações, também colabora significativamente para educar o sentimento de
-posse exacerbado e inquieto.
+Finally, actions in good, which cause the soul to give and broaden its range
+relationships, also collaborates significantly to educate the feeling of
+exacerbated and restless possession.
 
-O amor não precisa do sal do ciúme para temperar as relações. O sabor de todo
-relacionamento sadio virá da confiança irrestrita e do altruísmo, que pensa
-sempre no bem do outro.
+Love doesn't need the salt of jealousy to temper relationships. The taste of it all
+sound relationship will come from unrestricted trust and altruism, which thinks
+always in the good of the other.
 
 ## Source
 Redação do Momento Espírita, com base no cap. Ciúme, do livro

@@ -20,107 +20,107 @@ topics:
 ---
 
 
-A evolução espiritual é um fenômeno bastante complexo, que se dá em sucessivas
-fases.
+Spiritual evolution is a very complex phenomenon, which occurs in successive
+Phases.
 
-No começo, predomina a natureza corpórea.
+At first, body nature predominates.
 
-Dominada pelos instintos, a criatura dedica seu tempo e seu interesse a
-atividades comezinhas.
+Dominated by instincts, the creature devotes its time and interest to
+activities eatzinhas.
 
-Comer, vestir-se, abrigar-se, procriar e cuidar da prole, eis a que se resumem
-suas preocupações.
+Eat, dress, shelter, breed and care for offspring, behold to which they boil down
+their concerns.
 
-Nesse período, o egoísmo é marcante.
+During this period, selfishness is striking.
 
-Os instintos de conservação da vida e da preservação da espécie têm absoluta
-preponderância.
+The instincts for the conservation of life and the preservation of the species have absolute
+Preponderance.
 
-Com o tempo, o ser começa a desvincular-se de sua origem.
+Over time, the being begins to detach from its origin.
 
-A inteligência se desenvolve, o raciocínio se sofistica e o senso moral
-desabrocha.
+Intelligence develops, reasoning is sophisticated and moral sense
+Blooms.
 
-As invenções tornam possível gastar tempo com questões não diretamente ligadas
-à sobrevivência.
+Inventions make it possible to spend time on issues not directly linked
+survival.
 
-Viver deixa de ser tão difícil, sob o prisma material.
+Living is no longer so difficult, from the material prism.
 
-Em compensação, começam os dilemas morais.
+On the other hand, moral dilemmas begin.
 
-Com a razão desenvolvida, a responsabilidade surge forte nos caminhos
-espirituais.
+With the reason developed, responsibility arises strong in the ways
+Spiritual.
 
-O que antes era admissível passa a ser um escândalo.
+What was once admissible becomes a scandal.
 
-A sensibilidade se apura e a criatura aspira por realizações intelectuais e
-afetivas.
+Sensitivity is cleared and the creature aspires to intellectual achievements and
+Affective.
 
-Essa nova sensibilidade também evidencia que o próximo é seu semelhante, com
-igual direito a ser feliz e realizado.
+This new sensitivity also shows that the next is its similar, with
+equal right to be happy and fulfilled.
 
-Gradualmente se evidencia a igualdade básica entre todos os homens.
+It is gradually evident the basic equality between all men.
 
-Malgrado possuidores de talentos e valores diversos, não se distinguem no
-essencial.
+Malgrad possessors of talents and diverse values, are not distinguished in the
+Essential.
 
-Uma chama divina os anima e a todos conduzirá aos maiores cimos da evolução.
+A divine flame animates them and will lead everyone to the greatest developments.
 
-Contudo, o abandono dos hábitos toscos das primeiras vivências não é fácil.
+However, the abandonment of the quasi-poor habits of the first experiences is not easy.
 
-Séculos são gastos na árdua tarefa de domar vícios e paixões.
+Centuries are spent on the arduous task of taming addictions and passions.
 
-As encarnações se sucedem enquanto o Espírito luta para ascender.
+Incarnations follow as the Spirit struggles to ascend.
 
-O maior entrave para a libertação das experiências dolorosas é o egoísmo, que
-possui forte vínculo com o apego às coisas corpóreas.
+The greatest obstacle to the liberation of painful experiences is selfishness, which
+has a strong bond with attachment to bodily things.
 
-Quanto mais se aferra aos bens materiais, mais o homem demonstra pouco
-compreender sua natureza espiritual.
+The more it stings to material goods, the more man shows little
+understand their spiritual nature.
 
-O Espírito necessita libertar-se do apego a coisas transitórias.
+The Spirit needs to free himself from attachment to transient things.
 
-Apenas assim ele adquire condições de viver as experiências sublimes a que está
-destinado.
+Just as soon as he acquires conditions to live the sublime experiences to which he is
+Destined.
 
-Quem deseja sair do primitivismo deve combater o gosto pronunciado pelos gozos
-da matéria.
+Those who wish to leave primitivism must combat the taste pronounced by the enjoyments
+of matter.
 
-O melhor meio para isso é praticar a abnegação.
+The best way to do this is to practice selflessness.
 
-Trata-se de uma virtude que se caracteriza pelo desprendimento e pelo
-desinteresse.
+It is a virtue characterized by detachment and
+Disinterest.
 
-A ação abnegada importa na superação das tendências egoístas do agente.
+Selfless action matters in overcoming the agent's selfish tendencies.
 
-Age-se em benefício de uma causa, pessoa ou princípio, sem visar a qualquer
-vantagem ou interesse pessoal.
+It is acts for the benefit of a cause, person or principle, without targeting any
+advantage or personal interest.
 
-Certamente não é uma virtude que se adquire a brincar.
+It's certainly not a virtue you get to play with.
 
-Apenas com disciplina e determinação é que ela se incorpora ao caráter.
+Only with discipline and determination does it incorporate into character.
 
-Mas como ninguém fará o trabalho alheio, é preciso principiar em algum momento.
+But since no one will do the work of others, you have to start at some point.
 
-Comece, pois, a praticar a abnegação.
+Therefore, start practicing selflessness.
 
-Esforce-se em realizar uma série de atitudes com foco no próximo.
+Strive to perform a series of attitudes focused on others.
 
-Esqueça a sua personalidade e pense com interesse no bem alheio.
+Forget your personality and think with interest in the good of others.
 
-Esse esforço inicial não tardará a dar frutos.
+This initial effort will soon bear fruit.
 
-O gosto pelo transitório lentamente o abandonará.
+The taste for the transient will slowly abandon him.
 
-Ele será substituído pelos prazeres espirituais.
+He will be replaced by spiritual pleasures.
 
-Você descobrirá a ventura de ser bondoso, de amparar os caídos e de ensinar os
-ignorantes.
+You will discover the chance of being kind, of supporting the fallen and teaching the
+Ignorant.
 
-Esses gostos suaves e transcendentes o conduzirão a esferas de sublimes
-realizações.
+These soft and transcendent tastes will lead you to spheres of sublime
+Achievements.
 
-Pense nisso.
+Think about it.
 
 
 ## Source

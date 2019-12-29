@@ -13,100 +13,100 @@ topics:
 - child
 ---
 
-Ele é um homem com mais de oitenta anos. Forte. Daqueles bons italianos.
+He's a man over eighty. Strong. Those good Italians.
 
-Um exemplo de saber envelhecer. Ele já se deu conta, há muito tempo, que o
-vigor da juventude o deixou.
+An example of knowing how to grow old. He has realized a long time ago that the
+strength of youth has left him.
 
-Mas, isso não quer dizer que se acomodou. Faz tudo o que o corpo ainda lhe
-permite.
+But that doesn't mean it got settled. Do everything the body still gives you
+Allows.
 
-Até há pouco tempo, dirigia seu carro e, em determinadas épocas, tomava da
-esposa, dizia Inté para os filhos e netos e saía a viajar.
+Until recently, he drove his car and, at certain times, took care of the
+wife, Inté said to her children and grandchildren and went on a trip.
 
-De cada vez, um local diferente.
+At a time, a different location.
 
-Vamos conhecer tal lugar? - Perguntava para a esposa, cuja idade beira a dele.
+Are we going to know this place? - I asked his wife, whose age is about his.
 
-Quer dizer, perguntava por perguntar, porque a senhora, também disposta, sempre
-concordava.
+I mean, I asked to ask, because you, also willing, always
+Agree.
 
-Fechavam o apartamento e lá iam para uma estância, uma estação de águas, um
-hotel fazenda.
+They closed the apartment and there they went to a resort, a water station, a
+farm hotel.
 
-Há pouco, completaram suas bodas de ouro e os filhos promoveram uma grande
-festa.
+Earlier, they completed their golden wedding and their children promoted a great deal of
+Party.
 
-Ele compareceu no mais belo e alinhado terno, bigodes aparados, cabelo branco
-bem penteado e a seriedade, disfarçando a emoção.
+He appeared in the most beautiful and lined suit, trimmed whiskers, white hair
+well-combed and seriousness, disguising emotion.
 
-Ela, num lindo vestido longo, azul turquesa, encantando os olhos dele, como se
-fossem os anos primeiros de convivência.
+She, in a beautiful long dress, turquoise blue, delighting his eyes, as if
+were the first years of coexistence.
 
-Recentemente, amigos de Ideal Espírita decidiram por prestar-lhe homenagem,
-pelos anos de dedicação à causa. Pelo seu pioneirismo, alçando a bandeira da
-Doutrina Espírita em terras onde apenas despontava, tímida.
+Recently, friends of Ideal Spiritist decided to pay tribute to him,
+years of dedication to the cause. For its pioneering, raising the flag of
+Spiritist Doctrine in lands where it just emerged, shy.
 
-De imediato, sua memória e sua ética foram ativadas.
+Immediately, your memory and ethics have been activated.
 
-Por que eu? Antes de mim, houve quem fizesse muito mais do que eu. E melhor.
+Why me? Before me, there were those who did a lot more than I did. And better.
 
-E recordou do amigo, por cujas mãos conheceu a Doutrina Espírita. E esteve
-presente para a entrega da homenagem. Naturalmente, ele também foi homenageado.
+And he remembered his friend, for whose hands he knew the Spiritist Doctrine. And it was
+gift for the delivery of the tribute. Of course, he was also honored.
 
-Emocionado, agradeceu, dizendo não merecer porque, dizia, da Doutrina Espírita
-recebera o melhor. Ele era, portanto, um devedor.
+Thrilled, thanked, saying he did not deserve because, he said, of the Spiritist Doctrine
+had received the best. He was therefore a debtor.
 
-E, incentivou à juventude, aos atuais trabalhadores a continuarem no bendito
-labor da divulgação, espalhando luzes, aclarando mentes e corações.
+And, he encouraged youth, to the current workers to continue in the blessed
+labor of disclosure, spreading lights, clarifying minds and hearts.
 
-Comoveu a todos.
+He moved everyone.
 
-Simples, embora detentor de considerável patrimônio e posses, abraça com vigor
-os amigos.
+Simple, though possessing considerable assets and possessions, embraces vigorously
+friends.
 
-Faz questão de um bom papo, embora a dificuldade, por vezes, para ouvir. Mas,
-ele ajusta o seu aparelho para a surdez e participa.
+It makes a point of good talk, although the difficulty sometimes to hear. But
+he adjusts his device for deafness and participates.
 
-Não tem vergonha de tornar a perguntar, quando não entende.
+You're not ashamed to ask again when you don't understand.
 
-Sábio, não fala se não tem certeza de ter bem entendido a pergunta.
+Wise, don't talk if you're not sure you understood the question.
 
-Sabe calar-se quando muitos falam ao mesmo tempo, dificultando-lhe a captação
-das palavras.
+You know how to shut up when many talk at the same time, making it difficult for you to capture
+of words.
 
-Ainda guarda um ar de maroto, por vezes, mostrando que o viço infantil não
-morreu em sua intimidade.
+It still holds an air of naughty sometimes showing that the children's viço does not
+died in his intimacy.
 
-Assim, outro dia, em pleno café da manhã com amigos, quando todos já haviam
-terminado a refeição e se entretinham à mesa, conversando, ele tomou de uma
-faca e a introduziu no pote de doce de leite.
+So the other day, in the middle of breakfast with friends, when everyone had already
+finished the meal and entertained each other at the table, talking, he took from a
+knife and introduced it into the jar of milk candy.
 
-Trouxe-a com a ponta carregada do precioso doce. Olhou para a esposa,
-exatamente como criança que sabe que o que vai fazer está errado, e lambeu-a,
-com prazer.
+I brought it with the loaded tip of the precious candy. He looked at his wife,
+exactly as a child who knows that what he's going to do is wrong, and licked her,
+with pleasure.
 
-Todos riram. Ele também. Havia acabado de fazer uma peraltice bem própria de
-criança.
+They all laughed. So is he. I had just made a very peraltice of itself of
+Child.
 
-Mas, afinal, quando envelhecemos com sabedoria, somos assim.
+But after all, when we age wisely, that's the way it is.
 
-Maduros no agir, jovens no pensar, crianças para o prazer de viver intensamente
-cada dia.
+Mature in acting, young people in thinking, children for the pleasure of living intensely
+every day.
 
                                    *   *   *
 
-Pessoas frívolas, que somente valorizam o exterior, temem envelhecer.
+Frivolous people, who only value the outside, fear aging.
 
-Pessoas ponderadas envelhecem sorrindo. Sabem que o vigor da juventude é
-passageiro e aproveitam a madureza dos anos para semear sabedoria e colher
+Thoughtful people age smiling. You know that the strength of youth is
+passenger and take advantage of the toughness of the years to sow wisdom and harvest
 venturas.
 
-Venturas por ter educado filhos para o bem e para o amor. Por ter cultivado o
-afeto no matrimônio. Por ter construído amizades sólidas, independentes de
-idade, raça, cor, nível social.
+Perhaps for having educated children for good and love. For cultivating the
+affection in marriage. For having built solid friendships, independent of
+age, race, color, social level.
 
-Aprendamos com quem sabe envelhecer!
+Let's learn from someone who knows how to grow old!
 
 
 ## Source

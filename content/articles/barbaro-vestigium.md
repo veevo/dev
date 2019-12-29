@@ -11,74 +11,74 @@ topics:
 - humility
 ---
 
-> "Se alguém vos bater na face direita, apresentai-lhe também a outra.”–Jesus.
+> "If someone hits you on the right face, also introduce you to another." Jesus.
 
-Os preconceitos do mundo sobre o que se convencionou chamar "ponto de honra”
-produzem essa necessidade sombria, nascida do orgulho e da exaltação da
-personalidade, que leva o homem a retribuir uma injúria com outra injúria, uma
-ofensa com outra.
+The prejudices of the world about what was convinced to be called the "point of honor"
+this dark need, born of the pride and exaltation of
+personality, which leads man to repay an injury with another injury, a
+offense with another.
 
-Essa sede de vingança é tida como justiça, aos olhos daqueles cujo senso moral
-ainda não se desenvolveu o bastante para se elevar acima das paixões terrenas.
+This thirst for revenge is regarded as justice, in the eyes of those whose moral sense
+has not yet developed enough to rise above the terrenas passions.
 
-Por isso é que a lei Moisaica prescrevia: “Olho por olho, dente por dente,” de
-acordo com a época em que Moisés vivia.
+That's why the Moisaic law prescribed, "Eye for an eye, tooth for tooth," of
+according to the time when Moses lived.
 
-Depois veio o Cristo e disse: "Retribuí o mal com o bem.”
+Then Christ came and said, "I gave back evil with good."
 
-Ao orgulhoso este ensino parecerá uma covardia, pois ele não compreende que
-haja mais coragem em suportar um insulto do que vingar-se.
+By proud this teaching will seem cowardice, for he does not understand that
+there is more courage in enduring an insult than revenge.
 
-E não compreende porque sua visão não ultrapassa o momento presente.
+And you don't understand why your vision doesn't go beyond the present moment.
 
-É evidente que Jesus, ao dar esses conselhos, não condena a repressão legal dos
-agressores que deve ser considerada, pois ainda é necessária.
+It is clear that Jesus, in giving these counsels, does not condemn the legal repression of
+aggressors that should be considered, as it is still necessary.
 
-Nem prescreveu que se deixasse o campo livre aos maus, isentando-os de todo e
-qualquer motivo de temor. Se não houver um freio aos agressores, bem depressa
-todos os bons serão suas vítimas.
+Nor did he prescribe that if he left the field free to the bad, exempting them from all over and
+any reason for fear. If there is no brake on the aggressors, very quickly
+all the good will be your victims.
 
-Jesus ao enunciar aquela máxima, não pretendeu interdizer toda defesa, mas
-condenar a vingança.
+Jesus, in uttering that maxim, he did not intend to say all defense, but
+condemn revenge.
 
-Dizendo que apresentemos a outra face àquele que nos haja batido numa, disse,
-sob outra forma, que não se deve pagar o mal com o mal.
+Saying that we present the other side to the one who has hit us in a, he said,
+in another form, that one should not pay evil with evil.
 
-Que o homem deve aceitar com humildade tudo o que seja de molde a lhe abater o
-orgulho.
+That man must accept with humility all that is in such a way as to slaughter him
+Pride.
 
-Que maior ventura lhe advém de ser ofendido do que de ofender, de suportar
-pacientemente uma injustiça do que praticar alguma.
+What greater might come from being offended than of offending, to bear
+patiently an injustice than to practice any.
 
-Que mais vale ser enganado do que enganador, arruinado do que arruinar os
-outros.
+What better to be deceived than deceptive, ruined than ruining the
+Other.
 
-Aquele que deseja a vingança, geralmente se deixa enredar nas malhas da
-falsidade e da baixeza, porque quase nunca se vinga a céu aberto.
+He who desires revenge usually gets entangled in the meshes of the
+falsehood and rascality, because it almost never takes revenge in the open.
 
-Toma caminhos escusos, segue na sombra o inimigo, que de nada desconfia, e
-espera o momento oportuno para, sem perigo, feri-lo.
+Take shady paths, follow in the shadow the enemy, who distrusts nothing, and
+waits for the opportune time to, without danger, hurt him.
 
-Esconde-se do outro espreitando-o, prepara-lhe odiosas armadilhas e, em sendo
-propícia a ocasião, derrama-lhe no copo o veneno.
+He hides from the other lurking him, prepares him hateful traps and, in being
+propitious occasion, pours into the glass the poison.
 
-É esse tipo de comportamento que Jesus condena.
+It is this kind of behavior that Jesus condemns.
 
-Somente uma sociedade civilizada compreenderá e aceitará essas verdades. E isso
-acontecerá com o progresso intelecto-moral dos povos.
+Only a civilized society will understand and accept these truths. That's it
+will happen with the intellect-moral progress of the peoples.
 
-A vingança, portanto, é um dos últimos vestígios dos costumes bárbaros, que
-tende a desaparecer dentre os homens.
+Revenge, therefore, is one of the last vestiges of barbarian customs, which
+tends to disappear among men.
 
-Assim, deixemos a justiça por conta das leis dos homens, com a certeza de que
-os crimes impunes, fatalmente serão colhidos nas malhas das Leis Divinas, que
-dão a cada um segundo suas obras.
+So let us leave justice on account of the laws of men, with the certainty that
+crimes with impunity, will be fatally collected in the meshes of divine laws, which
+each second his works.
 
                                      * * *
 
-A Justiça Divina jamais falta. Mesmo que não seja percebida, ela realiza o seu
-ministério superior, alcançando todos quantos desrespeitem os estatutos que
-regem a vida.
+Divine Justice never lacks. Even if it is not perceived, it realizes its
+higher ministry, reaching all those who disrespect the statutes that
+govern life.
 
 ## Source
 Redação do Momento Espírita com base no cap. IX de O evangelho segundo o

@@ -13,92 +13,92 @@ topics:
 - mother
 ---
 
-Talvez você já tenha dito ou ouvido a infeliz afirmativa: Se eu uso drogas, o
-problema é meu, e ninguém tem nada a ver com isso. A droga só a mim prejudica.
+Maybe you have said or heard the unfortunate statement: If I use drugs, the
+it's my problem, and no one has anything to do with it. The drug only hurts me.
 
-Se você pensa dessa maneira, gostaríamos de convidá-lo a fazer algumas
-reflexões a respeito, sob outro ponto de vista.
+If you think that way, we'd like to invite you to do some
+reflections on this, from another point of view.
 
-Você já deve ter visto, ao vivo, pela TV ou nos jornais, a triste imagem de uma
-criança de oito anos de idade ou de um adolescente de doze, com uma
-metralhadora na mão, a serviço dos traficantes de drogas, não é mesmo?
+You may have seen, live, on TV or in the newspapers, the sad image of a
+eight-year-old child or a twelve-year-old, with a
+machine gun in hand, in the service of drug dealers, isn't it?
 
-São cenas chocantes e deprimentes, você há de convir...
+These are shocking and depressing scenes, you're going to come around...
 
-No entanto, você jamais deve ter pensado que, usando drogas, está colocando o
-dinheiro na mão do traficante para que ele compre a arma e a coloque nos ombros
-dessas crianças.
+However, you may never have thought that, using drugs, you are putting the
+money in the dealer's hand so he can buy the gun and put it on his shoulders
+of these children.
 
-Você já deve ter visto o sórdido espetáculo de uma mãe desesperada, com o
-coração sangrando e o rosto banhado em pranto, debruçada sobre o cadáver do
-filho querido que foi morto tentando fazer com que a mercadoria chegasse às
-suas mãos.
+You may have already seen the sordid spectacle of a desperate mother, with the
+bleeding heart and his face bathed in tears, leaning over the corpse of the
+dear son who was killed trying to get the merchandise to reach the
+your hands.
 
-Você, que é consumidor, talvez não tenha se dado conta, mas é um dos
-responsáveis pela violência gerada nesse disputado mercado das drogas.
+You, who are a consumer, may not have realized, but it is one of the
+responsible for the violence generated in this disputed drug market.
 
-Você, que é usuário de drogas, ainda que seja de vez em quando, está
-contribuindo com a corrupção nutrida no submundo das drogas, e fomentando a
-disputa sangrenta pelo consumidor, que enche os bolsos dos poderosos do
-tráfico, dizimando vidas e matando esperanças.
+You, who are a drug user, even if it is from time to time, is
+contributing to the corruption nourished in the underworld of drugs, and fostering
+bloody dispute by the consumer, which fills the pockets of the powerful of the
+trafficking, decimating lives and killing hopes.
 
-Lamentavelmente, a grande maioria desses consumidores não percebe que o mal que
-causam está longe de ser um problema seu, como afirmam.
+Unfortunately, the vast majority of these consumers do not realize that the evil that
+cause is far from your problem, as they claim.
 
-Não se dão conta de que seu vício é alimentado com sangue e lágrimas de muitos.
+They don't realize that your addiction is fed with the blood and tears of many.
 
-Em nome da satisfação de seu egoísmo, o consumidor de drogas deixa um rastro de
-sangue sem precedentes... E responderá por isso perante as Leis Divinas, sem
-dúvidas.
+In the name of the satisfaction of his selfishness, the drug consumer leaves a trail of
+unprecedented blood... And you will answer for this before the Divine Laws without
+Doubts.
 
-As mídias noticiaram o assassinato de um jornalista, que foi executado a sangue
-frio pelos donos do pedaço, que ele invadira, no cumprimento do seu dever de
-profissional comprometido com a verdade.
+Media reported the murder of a journalist, who was executed in blood
+cold by the owners of the piece, which he had invaded, in fulfilling his duty to
+committed to the truth.
 
-O povo se manifestou. Houve passeatas, protestos e pedidos de justiça. Muito
-louvável, não há dúvida.
+The people have spoken out. There were marches, protests and requests for justice. Very much
+commendable, there is no doubt.
 
-Mas, quantos daqueles que empunharam a bandeira da paz e da justiça não terão
-contribuído para que aquela execução se realizasse?
+But how many of those who wielded the flag of peace and justice will not have
+contributed to that execution taking place?
 
-Quantos executivos que, sentados em suas poltronas de luxo criticam a
-violência, sem se dar conta de que esta é alimentada pela farta mesada que
-colocam nas mãos de filhos viciados.
+How many executives who, sitting in their luxury armchairs criticize the
+violence, without realizing that it is fueled by the abundant allowance that
+put in the hands of addicted children.
 
-Você há de concordar que não haveria esse mercado infame das drogas se não
-houvesse o consumidor.
+You have to agree that there would be no this infamous drug market if not
+there was the consumer.
 
-Quando vemos a cínica expressão de um prisioneiro que comanda o terror de
-dentro da prisão, temos que admitir que ele age dessa forma porque tem costas
-quentes, e está seguro de que nada lhe acontecerá.
+When we see the cynical expression of a prisoner who commands the terror of
+inside the prison we have to admit that he acts that way because he has his back
+and you are sure that nothing will happen to you.
 
-E você, que é consumidor de drogas, está financiando esse mercado bilionário,
-alimentando esses tiranos cruéis que enriquecem graças a sua frágil vontade de
-encarar a vida de frente e de mente lúcida.
+And you, who are a drug consumer, are financing this billionaire market,
+feeding these cruel tyrants who enrich thanks to their fragile will to
+face life in front and lucid mind.
 
-Mas essas não são as únicas desgraças que um viciado provoca. Há aquelas que
-acontecem dentro do seu próprio lar. Aquelas capazes de dilacerar um coração de
-mãe ou de pai, de irmão ou de filho, com atitudes inconsequentes e egoístas.
+But those aren't the only misfortunes an addict provokes. There are those who
+happen within their own home. Those capable of tearing a heart of
+mother or father, brother or son, with inconsequential and selfish attitudes.
 
-Se você ainda não havia pensado nessa questão sob esse ponto de vista, pense
-agora.
+If you hadn't thought of this issue from that point of view, think
+Now.
 
-E, se pensar com sinceridade, perceberá que o vício está longe de ser um
-problema só seu, que só a você prejudica.
+And if you think sincerely, you'll realize that addiction is far from a
+your problem alone, which only harms you.
 
-Faça um balanço urgente e tome a decisão acertada: boicote as drogas. Empobreça
-esses abutres que se alimentam das vidas dos dependentes descuidados.
+Take an urgent review and make the right decision: boycott the drugs. Impoverish
+these vultures that feed on the lives of careless dependents.
 
-Se lhe faltarem as forças, busque ajuda de profissionais especializados e
-confie seu coração àquele que foi e continua sendo o maior Psicoterapeuta de
-todos os tempos: Jesus Cristo.
+If you lack your strength, seek help from specialized professionals and
+trust your heart to the one who has been and remains the greatest Psychotherapist of
+all times: Jesus Christ.
 
-Seu atendimento é gratuito, basta buscá-lO através da oração.
+Your service is free, just pick it through prayer.
 
-Se as drogas ainda não destruíram por completo o seu senso crítico, reflita
-agora sobre tudo isso e mude o rumo dos seus passos.
+If the drugs have not yet completely destroyed their critical sense, reflect
+now on all this and change the course of your steps.
 
-Temos certeza de que você conseguirá.
+We're sure you'll make it.
 
 ## Source
 Redação do Momento Espírita.

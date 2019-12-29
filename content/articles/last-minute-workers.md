@@ -14,105 +14,105 @@ topics:
 - family
 ---
 
-Em suas pregações, Jesus utilizou largamente o recurso das parábolas.
+In his preaching, Jesus largely used the parable stake.
 
-Mediante elas ministrou ensinamentos morais a um povo rude, ainda incapaz de
-assimilar as grandes verdades da vida, em toda a sua pureza.
+Through them he taught moral teachings to a rude people, still unable to
+assimilate the great truths of life, in all its purity.
 
-Sob o véu da alegoria, jazem rutilantes ensinamentos.
+Under the veil of allegory, lie reutilizing teachings.
 
-Cada qual extrai das parábolas a lição compatível com seu estado evolutivo.
+Each one extracts from the parables the lesson compatible with its evolutionary state.
 
-Mas a essência, sempre consistente na necessidade de uma vida honesta e
-fraterna, é acessível a todos.
+But the essence, always consistent in the need for an honest and
+fraternal, is accessible to everyone.
 
-À medida que a criatura cresce em compreensão, ela percebe novos desdobramentos
-de uma mesma passagem evangélica.
+As the creature grows in understanding, it notices new developments
+of the same evangelical passage.
 
-Utilizando uma expressão do Cristo, passa a ter olhos de ver.
+Using an expression of Christ, he begins to have eyes to see.
 
-É muito conhecida a Parábola dos trabalhadores da última hora.
+The Parable of last-minute workers is well known.
 
-Nela, Jesus fala de um proprietário de vinha que assalariou trabalhadores em
-diversos momentos do dia.
+In it, Jesus speaks of a vineyard owner who employed workers in
+several moments of the day.
 
-Ao final, a todos remunerou igualmente.
+In the end, everyone muttered equally.
 
-Assim, quem trabalhou apenas uma hora ganhou o mesmo de quem iniciou a tarefa
-ao alvorecer.
+So who worked only an hour won the same of who started the task
+at dawn.
 
-Proporcionalmente, a remuneração dos últimos contratados foi muito superior à
-dos primeiros.
+Proportionally, the remuneration of the last contractors was much higher than the
+of the first ones.
 
-Por se tratar de um ensinamento alegórico, dele podem ser extraídas variadas
-lições.
+Because it is an allegorical teaching, it can be extracted from it as a variety of
+Lessons.
 
-Um dos enfoques possíveis é comparar os trabalhadores com todos os envolvidos
-na reforma moral da Humanidade.
+One of the possible approaches is to compare workers with all involved
+in the moral reform of humanity.
 
-Ao longo dos séculos, eles se sucederam.
+Over the centuries, they have succeeded.
 
-Foram profetas, legisladores, administradores, juristas e pensadores os mais
-diversos.
+Prophets, legislators, administrators, jurists and thinkers were the most
+Different.
 
-A diferença na remuneração pode ser referida ao resultado obtido com a tarefa.
+The difference in remuneration may be referred to the result obtained with the task.
 
-No princípio, as criaturas eram muito rudes e bastante refratárias aos
-ensinamentos.
+At first, the creatures were very rude and quite refractory to the
+Teachings.
 
-Com o passar dos séculos, foram se tornando mais receptivas e maleáveis.
+Over the centuries, they became more receptive and malleable.
 
-Hoje, as leis civis implementadas por Moisés parecem bastante severas.
+Today, the civil laws implemented by Moses seem quite severe.
 
-Por exemplo, a regra do olho por olho soa intolerante aos ouvidos do homem
-moderno.
+For example, the rule of the eye-by-eye sounds intolerant to man's ears
+Modern.
 
-Mas para a época foi uma grande e importante inovação.
+But for the time it was a great and important innovation.
 
-Até então, vigorava a vingança desmedida.
+Until then, the unmeasured revenge was in force.
 
-Perante um mal feito, não raro se eliminava não apenas o ofensor, mas toda a
-sua família.
+In the face of an evil done, it was not uncommon to eliminate not only the offender, but all the
+his family.
 
-A proporcionalidade da represália representou um avanço moral.
+The proportionality of reprisal represented a moral advance.
 
-Como o povo ainda não conseguia perdoar, ao menos se tinha um limite para o
-revide.
+As the people still could not forgive, at least if they had a limit on the
+review.
 
-E assim gradualmente a Humanidade evoluiu.
+And so gradually humanity has evolved.
 
-Incontáveis pessoas dedicaram suas vidas a esse mister.
+Countless people have dedicated their lives to this mister.
 
-Coisas que hoje parecem naturais são fruto de grandes lutas e renúncias.
+Things that today seem natural are the result of great struggles and renunciations.
 
-Direitos trabalhistas, igualdade entre homens e mulheres e proibição de penas
-cruéis são alguns exemplos.
+Labour rights, gender equality and ban on penalties
+are some examples.
 
-Pode-se dizer que os reformistas dos primeiros tempos trabalharam na base do
-edifício.
+It can be said that early-time reformers worked on the basis of the
+Building.
 
-Hoje já se atua na cumeeira, na medida em que a Humanidade está pronta para
-vivenciar a fraternidade.
+Today it is already active in the summit, as humanity is ready to
+experience fraternity.
 
-Notícias sobre atos cruéis e desonestos chocam, pois no íntimo a maioria da
-população deseja outras vivências.
+News about cruel and dishonest acts shock, for in the intimate most of the
+population wants other experiences.
 
-Em suma, chegou a vez dos trabalhadores da última hora.
+In short, it's the workers' turn at the last minute.
 
-É preciso se tomar do ideal de viver em um mundo melhor e agir para que ele se
-implante na Terra.
+It is necessary to take the ideal of living in a better world and act so that it
+implant on Earth.
 
-Urge que os homens de bem mostrem a força de seu caráter e ocupem espaços.
+It is urgent that good men show the strength of their character and occupy spaces.
 
-É necessário que as crianças sejam educadas para amar o trabalho e a
-honestidade e viver fraternalmente.
+It is necessary that children be educated to love work and
+honesty and live fraternally.
 
-Mas, mais do que apenas belos discursos, são necessários exemplos.
+But more than just beautiful speeches, examples are needed.
 
-A generosa recompensa do esforço será a ventura de viver, e mais tarde
-renascer, em um mundo justo e fraterno.
+The generous reward of effort will be the chance to live, and later
+rebirth, in a righteous and fraternal world.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

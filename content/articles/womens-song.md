@@ -7,83 +7,83 @@ topics:
 - woman
 ---
 
-“Que o outro saiba quando estou com medo, e me tome nos braços sem fazer
-perguntas demais.
+"Let the other know when I'm afraid, and take me in my arms without doing
+too many questions.
 
-Que o outro note quando preciso de silêncio e não vá embora batendo a porta,
-mas entenda que não o amarei menos porque estou quieta.
+Let the other note when I need silence and don't leave knocking the door,
+But understand that I won't love you less because I'm quiet.
 
-Que o outro aceite que me preocupo com ele e não se irrite com minha
-solicitude, e se ela for excessiva saiba me dizer isso com delicadeza ou bom
+May the other accept that I care about him and not get mad at my
+concern, and if it is excessive know how to tell me this with delicacy or good
 humor.
 
-Que o outro perceba minha fragilidade e não ria de mim, nem se aproveite disso.
+Let the other perceive my frailty and not laugh at me, nor take advantage of it.
 
-Que se estou apenas cansada o outro não pense logo que estou nervosa, ou
-doente, ou agressiva, nem diga que reclamo demais.
+That if I'm just tired the other doesn't think i'm nervous right away, or
+patient, or aggressive, don't even say I complain too much.
 
-Que o outro sinta quanto me dói a idéia da perda, e ouse ficar comigo um pouco
-- em lugar de voltar logo à sua vida.
+May the other feel how much the idea of loss hurts, and dare stay with me a little
+- instead of coming back to your life soon.
 
-Que se estou numa fase ruim o outro seja meu cúmplice, mas sem fazer alarde nem
-dizendo ‘Olha que estou tendo muita paciência com você!’
+That if I'm at a bad time the other is my accomplice, but without making a fuss or
+saying 'Look, I'm having a lot of patience with you!'
 
-Que quando sem querer eu digo uma coisa bem inadequada diante de mais pessoas,
-o outro não me exponha nem me ridicularize.
+That when I unintentionally say something very inappropriate in front of more people,
+the other one doesn't expose me or ridicule me.
 
-Que se eventualmente perco a paciência, perco a graça e perco a compostura, o
-outro ainda assim me ache linda e me admire.
+That if I eventually lose patience, Lose grace and lose my composure, the
+another still think So think I'm beautiful and admire me.
 
-Que o outro não me considere sempre disponível, sempre necessariamente
-compreensiva, mas me aceite quando não estou podendo ser nada disso.
+May the other not always consider me available, always necessarily
+understanding, but accept me when I'm not able to be any of that.
 
-Que, finalmente, o outro entenda que mesmo se às vezes me esforço, não sou, nem
-devo ser, a mulher-maravilha.
+That, finally, the other understands that even if I sometimes struggle, I am not, nor
+I must be, wonder woman.
 
-Mas apenas uma pessoa: vulnerável e forte, incapaz e gloriosa, assustada e
-audaciosa - uma mulher.”
+But only one person: vulnerable and strong, incapable and glorious, frightened and
+audacious -- a woman."
 
-Compreender o outro é uma arte.
+Understanding the other is an art.
 
-Exige esforço, concentração, desprendimento, disposição.
+Requires effort, concentration, detachment, disposition.
 
-Alguns poderão pensar: “Mas como posso entrar na mente do outro, penetrar seus
-sentimentos, e descobrir o que se passa lá?”
+Some might think, "But how can I get into each other's minds, penetrate your
+feelings, and find out what's going on there?"
 
-Aí está a razão da analogia com a arte.
+There's the reason for the analogy with art.
 
-Exige-nos empatia – colocarmos-nos no lugar do outro.
+It requires empathy – putting ourselves in the place of the other.
 
-A palavra empatia é derivada do grego “empatheia”, que significa afeto ou
-paixão, ou ainda “entrar no sentimento”.
+The word empathy is derived from the Greek "empatheia", which means affection or
+passion, or even "get into feeling".
 
-Os gregos entendiam que para se observar devidamente uma obra de arte era
-necessário “entrar em seu sentimento”, observá-la de dentro para fora.
+The Greeks understood that to properly observe a work of art was
+necessary to "get into your feeling", observe it from the inside out.
 
-A quarta edição do novo “World College Dictionary”, da Webster, define empatia
-como: “a projeção de sua própria personalidade na personalidade de outra
-pessoa, a fim de entendê-la melhor.
+The fourth edition of Webster's new World College Dictionary sets empathy
+as: "the projection of his own personality in the personality of another
+person in order to understand it better.
 
-É também encontrada como a habilidade de compartilhar as emoções, pensamentos
-ou sentimentos com outrem.”
+It is also found as the ability to share emotions, thoughts
+or feelings with others."
 
-Alguns terapeutas abraçam uma definição mais ampla. Dizem que somos empáticos
-quando respondemos à necessidade do paciente, quando lhe oferecemos o que ele
-precisa para melhorar.
+Some therapists embrace a broader definition. They say we're empathic
+when we respond to the patient's need when we offer him what he
+needs to improve.
 
-Sem empatia nos isolamos em nossos próprios sentimentos, sem troca, sem
-alimentação.
+Without empathy we isolate ourselves in our own feelings, without exchange, without
+Power.
 
-Sem empatia nossas trocas de energia encontram barreiras, linhas imaginárias
-por onde o sentir não consegue passar.
+Without empathy our energy exchanges encounter barriers, imaginary lines
+where feeling can't go through.
 
-Sem dúvida alguma, a empatia é um novo estágio nos relacionamentos humanos,
-fundamental para que cresçamos e nos entendamos em níveis mais profundos.
+Without a doubt, empathy is a new stage in human relationships,
+fundamental to grow and understand ourselves at deeper levels.
 
                                      * * *
 
-A proposta do Cristo, de fazermos aos outros o que queiramos que os outros nos
-façam, é a mais bela e completa lição de empatia até hoje existente.
+Christ's proposal to do to others what we want others to
+do, is the most beautiful and complete lesson in empathy to date existing.
 
 ## Source
 Redação do Momento Espírita com base em cap.

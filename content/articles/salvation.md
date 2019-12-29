@@ -18,109 +18,109 @@ topics:
 ---
 
 
-A idéia de salvação há muito ocupa o pensamento da Humanidade.
+The idea of salvation has long occupied the thought of humanity.
 
-Contudo, o conceito permanece indefinido.
+However, the concept remains undefined.
 
-Afinal, em que consiste exatamente a salvação?
+After all, what exactly does salvation consist of?
 
-Será um processo mágico que transmuda de repente um ser egoísta e falho em um
-anjo de amor e misericórdia?
+It will be a magical process that suddenly transmutes a selfish and flawed being into a
+angel of love and mercy?
 
-Os homens sempre têm buscado gurus e salvadores.
+Men have always sought gurus and saviors.
 
-Não no sentido de um mestre cujos exemplos devam ser imitados e os
-ensinamentos, seguidos.
+Not in the sense of a master whose examples must be imitated and the
+teachings, followed.
 
-Mas sim como alguém que faça o trabalho duro.
+But as someone who does the hard work.
 
-Há um certo gosto pelo maravilhoso, por soluções fáceis e rápidas.
+There is a certain taste for the wonderful, easy and quick solutions.
 
-Conforme algumas concepções, basta crer em um Ser Superior para ser salvo ou
-redimido.
+According to some conceptions, simply believe in a Higher Being to be saved or
+Redeemed.
 
-Pela obra e graça de um terceiro, os problemas da criatura somem e ela se
-transporta a um mundo ideal.
+By the work and grace of a third, the creature's problems disappear and it disappears
+transports to an ideal world.
 
-Aí, então, tudo é descanso e ócio.
+Then, then, everything is rest and idleness.
 
-As fissuras morais desaparecem e não há mais dúvidas ou desafios.
+Moral fissures disappear and there are no more doubts or challenges.
 
-A rigor, nem se tem mais o mesmo ser, mas outro totalmente diferente, sem
-qualquer vínculo com o primeiro.
+Strictly speaking, you don't have the same anymore, but another totally different, without
+any link with the former.
 
-Há quem confira a alguns ritos o poder de provocar essa surpreendente
-transformação.
+Some people check out some rites the power to provoke this amazing
+Transformation.
 
-Entretanto, no âmbito cristão, não é possível olvidar o princípio evangélico
-que diz:
+However, within the Christian level, it is not possible to look at the evangelical principle
+that says:
 
-A cada um segundo suas obras.
+Every one according to his works.
 
-No livro O Consolador, o Espírito Emmanuel, mediante a psicografia do médium
-Francisco Cândido Xavier, trata do tema.
+In the book The Comforter, the Spirit Emmanuel, through the psychography of the medium
+Francisco Cândido Xavier, take care of the subject.
 
-Segundo ele, a salvação da alma deve ser entendida como auto-iluminação, a
-caminho das mais elevadas realizações.
+According to him, the salvation of the soul must be understood as self-enlightenment, the
+path of the highest achievements.
 
-Ou seja, o próprio ser se ilumina.
+That is, the being himself lights up.
 
-Não se trata de mero aproveitamento do esforço de terceiro.
+It is not a mere use of third-party effort.
 
-Emmanuel afirma que o Evangelho é o roteiro para a ascensão de todos os
-Espíritos.
+Emmanuel states that the Gospel is the roadmap for the rise of all
+Spirits.
 
-Da vivência do Evangelho decorre a luz espiritual.
+Spiritual light takes place from the gospel's experience.
 
-Conclui-se que a salvação é o resultado de um trabalhoso processo de
-auto-iluminação.
+It is concluded that salvation is the result of a laborious process of
+self-illumination.
 
-O candidato deve esforçar-se em seguir os exemplos e os ensinamentos do Cristo.
+The candidate must strive to follow the examples and teachings of Christ.
 
-Necessita abandonar tendências inferiores e vícios.
+You need to abandon lower trends and addictions.
 
-Romper com velhos hábitos e assumir o compromisso de ser melhor a cada dia.
+Break with old habits and make a commitment to be better every day.
 
-Cessar com maledicência, pornografia, preguiça, desonestidade e tudo o mais que
-seja incompatível com o título de cristão.
+Cease with malevolence, pornography, laziness, dishonesty and everything else that
+incompatible with the title of Christian.
 
-A salvação é um compromisso que o homem assume com sua consciência.
+Salvation is a commitment that man assumes with his conscience.
 
-É uma questão de maturidade, de assumir a responsabilidade pela própria
-existência imortal.
+It is a matter of maturity, of taking responsibility for the
+immortal existence.
 
-Não há milagres e nem solução fácil.
+There are no miracles and no easy solution.
 
-Um não faz o trabalho árduo pelo outro.
+One doesn't do the hard work for the other.
 
-A redenção é o resultado de muito esforço e disciplina.
+Redemption is the result of a lot of effort and discipline.
 
-O ser surge redimido quando está pronto para a vivência da mais pura
-fraternidade.
+The being appears redeemed when it is ready for the experience of the purest
+Fraternity.
 
-Quando realmente internalizou a idéia de que deve tratar o próximo como
-gostaria de ser tratado.
+When you really internalized the idea that you should treat others as
+i would like to be treated.
 
-Quando não mais se permite baixezas e deslealdades.
+When you no longer allow rascalities and disloyalties.
 
-Quando a dor do próximo toca fundo em seu coração.
+When the pain of the next touches deep in his heart.
 
-Ao redimir-se, o Espírito se liberta do mal.
+By redeeming himself, the Spirit frees himself from evil.
 
-Por entender as dificuldades alheias, perdoa com facilidade e não permite que o
-mal do mundo o contamine.
+By understanding the difficulties of those of the other people, forgives with ease and does not allow the
+evil of the world contaminates him.
 
-Por saber o quão difícil e trabalhoso é purificar-se, torna-se indulgente com
-as imperfeições alheias.
+Knowing how difficult and laborious it is to purify, it becomes indulgent with
+other people's imperfections.
 
-E faz todo o bem possível, pois sente intensa compaixão pelos semelhantes.
+And he does everything he can, because he feels intense compassion for the fellow.
 
-Tal estado d'alma liberta o Espírito dos círculos do sofrimento e o habilita a
-vivências sublimes em mundos depurados.
+Such a state of soul frees the Spirit from the circles of suffering and enables him to
+sublime experiences in debugged worlds.
 
-Esse é o significado da salvação.
+That's the meaning of salvation.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita, com base na questão 225,

@@ -11,85 +11,85 @@ topics:
 ---
 
 
-Jesus havia descido do Monte onde há pouco, Pedro, Thiago e João haviam
-presenciado o fenômeno da transfiguração.
+Jesus had come down from The Mount where just now, Pedro, Thiago and João had
+witnessed the phenomenon of transfiguration.
 
-Quando chegaram à multidão, aproximou-se-Lhe um homem, pondo-se de joelhos
-diante Dele, e dizendo:
+When they reached the crowd, a man approached Him, kneeling
+before Him, and saying:
 
-Senhor, tem misericórdia de meu filho, que é lunático e sofre muito; pois
-muitas vezes cai no fogo, e muitas vezes na água.
+Lord, have mercy on my son, who is whimsical and suffers greatly; Because
+often falls into the fire, and often in the water.
 
-E trouxe-o a Teus discípulos, e não puderam curá-lo.
+And i brought him to His disciples, and they couldn't cure him.
 
-Eis que Jesus lhe respondeu:
+Bebethat Jesus answered him:
 
-Ó geração incrédula e perversa! Até quando estarei Eu convosco, e até quando
-vos sofrerei? Trazei-Mo aqui.
+O incredulous and wicked generation! How long will I be with you, and even when
+Will I suffer you? Bring mo here.
 
-Narra então o evangelista Mateus, que Jesus repreendeu o Espírito mau que
-estava com ele e o Espírito o abandonou.
+Then narrates the evangelist Matthew, that Jesus rebuked the evil Spirit that
+was with him and the Spirit abandoned him.
 
-Os discípulos se aproximaram de Jesus, curiosos, e, em particular, lhe
-perguntaram:
+The disciples approached Jesus, curious, and, in particular, his
+Asked:
 
-Por que não pudemos nós expulsar o Espírito mau?
+Why couldn't we cast out the evil Spirit?
 
-Ao que o Mestre lhes redarguiu:
+To which the Master gave them:
 
-Por causa de vossa pouca fé. Porque, em verdade vos digo que, se tiverdes fé
-como um grão de mostarda, direis a este monte: passa daqui para acolá, e há de
-passar. E nada vos será impossível.
+Because of your little faith. Because, in truth, I say unto you, if you have faith
+like a mustard grain, you will say to this hill: move from here to there, and there is of
+Spend. And nothing will be impossible for you.
 
-Finaliza Jesus a lição, afirmando:
+Jesus concludes the lesson, stating:
 
-Mas esta casta de demônios não é expulsa senão pela oração e pelo jejum.
+But this caste of demons is caste but by prayer and fasting.
 
                                    *   *   *
 
-Necessário serenar a alma e as idéias preconcebidas, e refletir profundamente
-sobre a proposta de jejum e oração oferecida pelo Rabi.
+It is necessary to serenade the soul and preconceived ideas, and reflect deeply
+on the proposal for fasting and prayer offered by the Rabbi.
 
-Será que Jesus, ao propor o ato de jejuar, referia-se a deixar de se alimentar
-regularmente?
+Did Jesus, in proposing the act of fasting, was referring to stop feeding
+Regularly?
 
-Pois é assim que muitos entendem até os dias de hoje. Por isso, faz-se mister
-que nos debrucemos sobre a temática a partir deste ponto.
+Because that's how many understand to this day. So it's mister
+that we look at the theme from this point.
 
-A proposição do Mestre ia muito além da dieta alimentar.
+The Master's proposition went far beyond the diet.
 
-Ele trazia a idéia da abstinência moral, de abster-se de tudo aquilo que nos
-conduz aos excessos.
+He brought the idea of moral abstinence, to refrain from all that we
+leads to excesses.
 
-Fala Ele, assim, de um jejum do comportamento doentio. Este é o único caminho
-para a libertação das influências deletérias dos obsessores espirituais.
+He thus speaks of a fast of sick behavior. This is the only way
+for the liberation of the deleterious influences of spiritual obsessives.
 
-A oração é primordial, pois nos liga ao Criador, nos purifica os pensamentos e
-eleva a sintonia mental.
+Prayer is paramount, for it binds us to the Creator, purifies our thoughts and
+elevates mental tuning.
 
-Junto dela, a mudança de comportamento, de direção nos propósitos de vida é
+Together with it, the change of behavior, direction in the purposes of life is
 fundamental.
 
-Os Espíritos infelizes se ligam a nós através da sintonia com nossas misérias
-íntimas.
+Unhappy spirits bind to us through harmony with our miseries
+Intimate.
 
-Se deixarmos de cultivar tais misérias, se alterarmos a faixa mental, não
-haverá mais compatibilidade nesse plug psíquico.
+If we stop cultivating such miseries, if we change the mental range, do not
+there will be more compatibility in this psychic plug.
 
-A privação das ações negativas, dos desejos malsãos deve ser o jejum para a
-alma que deseja se libertar de qualquer influência espiritual inferior.
+The deprivation of negative actions, evil desires should be fasting for
+soul that desires to free itself from any inferior spiritual influence.
 
-A fé raciocinada e a ação no bem nos protegem de tudo.
+Reasoned faith and action in good protect us from everything.
 
-Não há o que temer, quando as mãos estão perfumadas pelas flores do bem que
-deixamos pelo caminho.
+There is nothing to fear when the hands are scented by the flowers of good that
+we leave by the way.
 
-Não há o que temer, quando o coração está aquecido pela certeza de que as leis
-de Deus são perfeitas, e que a presença Divina é constante em nossas vidas.
+There is nothing to fear when the heart is heated by the certainty that the laws
+of God are perfect, and that divine presence is constant in our lives.
 
-Perante qualquer dificuldade que venhamos a enfrentar, lembremos da lição do
-jejum e da oração. Lembremos deste medicamento poderoso de que todos nós
-dispomos.
+Faced with any difficulty we will face, let us remember the lesson of the
+fasting and prayer. Let us remember this powerful medicine that we all
+we have it.
 
 ## Source
 Redação do Momento Espírita.  

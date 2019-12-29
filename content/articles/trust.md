@@ -20,113 +20,113 @@ topics:
 - wisdom
 ---
 
-A confiança nas próprias forças enche o homem de coragem e disposição para
-lutar.
+Trust in one's own forces fills man with courage and willingness to
+Fight.
 
-Quem não acredita em si mesmo assume uma postura derrotista.
+Those who do not believe in themselves assume a defeatist stance.
 
-Antes mesmo de tentar, já admite a derrota.
+Before you even try, you admit defeat.
 
-Todo empreendimento pressupõe planejamento, estratégia e trabalho a ser
-realizado.
+Every enterprise presupposes planning, strategy and work to be
+Made.
 
-Mas a confiança da possibilidade da vitória é imprescindível para que ela
-ocorra.
+But the confidence of the possibility of victory is indispensable for it to
+Occur.
 
-Alguns percalços sempre surgem na realização de uma obra de vulto.
+Some mishaps always arise in the realization of a work of great.
 
-O pessimista vê neles uma confirmação de sua incompetência.
+The pessimist sees in them a confirmation of his incompetence.
 
-O otimista procura aprender com o malogro, faz ajustes na rota, mas persiste no
-propósito.
+The optimist seeks to learn from the malogre, makes adjustments on the route, but persists in the
+Purpose.
 
-A confiança não é necessária apenas em relação a aspectos materiais da
-existência humana.
+Trust is not necessary only in relation to material aspects of the
+human existence.
 
-Ela também é imprescindível em questões morais e espirituais.
+It is also indispensable in moral and spiritual matters.
 
-­Muitas pessoas não se dedicam ao burilamento de seu caráter porque acham isso
-impossível.
+Many people are not dedicated to the fraud of their character because they think so
+Impossible.
 
-Acreditam que seus vícios são herança genética e se conformam com eles.
+They believe their addictions are genetic inheritance and conform to them.
 
-Assumem que a gula, o egoísmo, a preguiça e a maledicência são características
-suas.
+They assume that gluttony, selfishness, laziness and malevolence are characteristics
+Your.
 
-Imaginam que defeitos morais são imutáveis como a cor dos olhos e a altura.
+They imagine that moral defects are immutable as eye color and height.
 
-Entretanto, estão errados.
+In the meantime, they're wrong.
 
-O corpo não dá defeitos e virtudes a ninguém.
+The body gives no defects and virtues to anyone.
 
-Se fosse assim, a santidade seria apenas um acidente da natureza e não
-representaria nenhum mérito.
+If so, holiness would be just an accident of nature and not
+would represent no merit.
 
-Do mesmo modo, a crueldade e a violência seriam mera decorrência da organização
-física.
+Similarly, cruelty and violence would be mere result of the organization
+Physical.
 
-O Espiritismo ensina que todos os Espíritos são anjos em potencial.
+Spiritism teaches that all Spirits are potential angels.
 
-Possuem em germe todas as virtudes, mas cada um deve trabalhar para desenvolver
-seus talentos e habilidades.
+They have in germ all virtues, but each must work to develop
+talents and abilities.
 
-A transição da ignorância para a angelitude constitui um caminho muito longo.
+The transition from ignorance to angelitude is a very long path.
 
-Ele pressupõe inumeráveis encarnações para completar-se.
+It presupposes countless incarnations to complete itself.
 
-No processo evolutivo, o Espírito, às vezes, erra e, às vezes, acerta.
+In the evolutionary process, the Spirit sometimes errs and sometimes hits.
 
-Gradualmente, vai ganhando lucidez e tornando-se mais assertivo.
+Gradually, it gains lucidity and becoming more assertive.
 
-Sempre é necessário reparar os estragos causados nas experiências infelizes.
+It is always necessary to repair the damage done in unhappy experiences.
 
-Entretanto, a cada nova experiência o Espírito acumula aprendizado e amplia as
-possibilidades de agir corretamente.
+However, with each new experience the Spirit accumulates learning and expands the
+possibilities to act correctly.
 
-Habilidades intelectuais e artísticas, virtudes e afinidades constituem a
-herança do que se viveu.
+Intellectual and artistic skills, virtues and affinities constitute the
+inheritance of what was lived.
 
-Mas também velhos hábitos equivocados deixam sua marca.
+But also old misguided habits leave their mark.
 
-Assim, as tendências atuais, boas ou más, são o resultado de experiências do
-passado.
+Thus, current trends, good or bad, are the result of experiences of the
+Past.
 
-Se um homem é violento, a violência não decorre de seu físico, mas de seu
-Espírito.
+If a man is violent, violence is not stems from his physique, but from his
+Spirit.
 
-Um Espírito pacífico e equilibrado não será violento, mesmo se animar um corpo
-de aparência extremamente rude.
+A peaceful and balanced Spirit will not be violent, even if you enliven a body
+extremely rude-looking.
 
-Assim, é importante assumir a integral responsabilidade pelo que se é.
+Thus, it is important to take full responsibility for what is.
 
-Quaisquer que sejam suas características, você se construiu assim.
+Whatever your characteristics, you've built yourself like this.
 
-Mas está inteiramente em suas mãos modificar-se.
+But it's entirely in your hands to change.
 
-Seu destino é a angelitude.
+Your destiny is angelitude.
 
-Todas as virtudes dos anjos encontram-se latentes em você.
+All the virtues of angels are latent in you.
 
-Compenetre-se dessa verdade e assuma que se tornar alguém  maravilhoso depende
-apenas de sua vontade, de seu esforço.
+Get rid of this truth and assume that becoming someone wonderful depends
+only of his will, of his effort.
 
-Certamente não é fácil romper com velhos hábitos.
+It's certainly not easy to break up with old habits.
 
-Calar a maledicência, cessar o julgamento leviano do próximo, domar a gula,
-disciplinar a sexualidade, tudo isso exige uma boa dose de esforço.
+Shut up the malevolence, cease the next's frivolous trial, tame the gluttony,
+sexuality, all this requires a good deal of effort.
 
-O mesmo se dá com o desenvolvimento da compaixão, do gosto por leituras sérias
-e por conversas construtivas.
+The same is true with the development of compassion, the taste for serious readings
+and constructive conversations.
 
-Entretanto, é possível.
+However, it is possible.
 
-Você foi criado para ser um anjo pleno de amor e sabedoria.
+You were created to be an angel full of love and wisdom.
 
-Tenha confiança em seu luminoso destino e lute bravamente para atingi-lo.
+Have confidence in your luminous destiny and fight bravely to achieve it.
 
-Só depende de você.
+It's up to you.
 
-                                                                               
+
 
 ## Source
 Redação do Momento Espírita.

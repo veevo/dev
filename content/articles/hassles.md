@@ -10,72 +10,72 @@ topics:
 - effort
 ---
 
-Nada mais comum, nas atividades terrenas, do que o hábito enraizado das
-querelas, dos desentendimentos, das chateações.
+Nothing more common in terrenaactivities than the rooted habit of
+disagreements, annoying.
 
-Nada mais corriqueiro entre os indivíduos humanos.
+Nothing more common among human individuals.
 
-Como um campo de meninos, em que cada gesto, cada nota, cada menção se torna um
-bom motivo para contendas e mal-entendidos, também na sociedade dos adultos o
-mesmo fenômeno ocorre.
+Like a field of boys, in which each gesture, each note, each mention becomes a
+good reason for strife and misunderstandings, also in the society of adults the
+same phenomenon occurs.
 
-Mais do que compreensível é que você, semelhante a um menino de pavio curto,
-libere adrenalina nos episódios cotidianos que desafiem a sua estabilidade
-emocional.
+More than understandable is that you, similar to a boy of short wick,
+release adrenaline in everyday episodes that challenge your stability
+Emotional.
 
-Compreensível que se agite, que se irrite, que alteie a voz, que afivele ao
-rosto expressões feias de diversos matizes.
+Understandable that one is enforced, that he is angry, that he praises the voice, which buckles the
+ugly expressions of various hues.
 
-Em virtude do nível do seu mundo íntimo, tudo isso é possível de acontecer.
+By virtue of the level of your inner world, all this is possible to happen.
 
-Contudo, você não veio à Terra para fixar deficiências, mas para tratá-las,
-cultivando a saúde.
+However, you did not come to Earth to fix deficiencies, but to treat them,
+cultivating health.
 
-Você não se acha no mundo para submeter-se aos impulsos irracionais, mas para
-fazê-los amadurecer para os campos da razão lúcida.
+You don't think in the world to submit to irrational impulses, but to
+make them mature into the fields of lucid reason.
 
-Você não nasceu para se deixar levar pelo destempero, pela irritação que
-desarticula o equilíbrio, mas tem o dever de educar-se, porque tem na pauta da
-sua vida o compromisso de cooperar com Deus, à medida que cresça, que
-amadureça, que se enobreça.
+You were not born to get carried away by the detempero, by the irritation that
+disarticulates balance, but has a duty to educate yourself, because it has on the agenda of
+his life the commitment to cooperate with God as he grows, who
+mature, to be ennobled.
 
-Desse modo, os seus aborrecimentos diários, embora sejam admissíveis em almas
-infantis e destemperadas, já começam a provocar ruídos infelizes,
-desconcertantes e indesejáveis, nas almas que se encontram no mundo para dar
-conta de compromissos abençoados com Jesus Cristo e com Seus prepostos.
+Thus, their daily annoyances, although they are permissible in souls
+children's and detemperate, are already beginning to cause unfortunate noises,
+disconcerting and undesirable, in the souls in the world to give
+counts of blessed commitments with Jesus Christ and His prepositions.
 
-Assim, observe-se. Conheça-se no aprendizado do bem, um pouco mais. Esforce-se
-por melhorar-se.
+So, be sure, get to know yourself in the learning of good, a little more. Strive
+for improving.
 
-Resista um pouco mais aos impulsos da fera que ainda ronda as suas experiências
-íntimas.
+Resist a little more the impulses of the beast that still rounds his experiences
+Intimate.
 
-Aproxime-se um pouco mais dos Benfeitores Espirituais que o amparam.
+Get a little closer to the Spiritual Benefactors who supported him.
 
-Perante as perturbações alheias, aprenda a analisar e não repetir.
+In the face of other people's disorders, learn to analyze and not repeat.
 
-Diante da rebeldia de alguém, analise e retire a lição para que não faça o
-mesmo.
+Faced with someone's rebellion, analyze and remove the lesson so that it does not
+Same.
 
-Notando a explosão violenta de alguém, reflita nas consequências danosas, a fim
-de não fazer o mesmo.
+Noting someone's violent explosion, reflect on the damaging consequences in order to
+not to do the same.
 
-Cada esforço que você fizer por melhorar-se, por educar-se, será secundado pela
-ajuda de luminosos Imortais que estão, em todo tempo, investindo no seu
-progresso, para que, pouco a pouco, mas sempre, você cresça e se ilumine,
-fazendo-se vitorioso cooperador com Deus, tendo superado a si mesmo,
-transformando suas noites morais em radiosas manhãs de perene formosura.
+Every effort you make to improve yourself, by educating yourself, will be seconded by the
+help from immortal luminous people who are, at all times, investing in their
+progress, so that, little by little, but always, you grow and light up,
+making himself victorious co-worker with God, having overcome himself,
+turning their moral nights into radiose evenings of perennial beauty.
 
 *   *   *
 
-Quando você for visitado por uma causa de sofrimento ou de contrariedade,
-sobreponha-se a ela.
+When you are visited for a cause of suffering or setback,
+overlap with her.
 
-E, quando houver conseguido dominar os ímpetos da impaciência, da cólera, ou do
-desespero, diga, de si para consigo, cheio de justa satisfação: Fui o mais
-forte.
+And when he has succeeded in dominating the urges of impatience, anger, or
+despair, say, from self to you, full of just satisfaction: I was the most
+Strong.
 
- 
+
 
 ## Source
 Redação do Momento Espírita com base no cap. 13 do livro

@@ -9,80 +9,80 @@ topics:
 ---
  
 
-A piedade é a virtude que mais nos aproxima dos anjos.
+Piety is the virtue that brings us closer to angels.
 
-Mas como entendê-la em profundidade e como colocá-la em prática?
+But how to understand it in depth and how to put it into practice?
 
-Segundo o conhecimento superficial que se tem sobre ela, a piedade, ou a
-compaixão, significa sofrer com alguém, ou algo.
+According to the superficial knowledge that one has about it, piety, or the
+compassion means suffering with someone, or something.
 
-E como naturalmente fugimos do sofrimento, a piedade pode nos parecer incômoda
-muitas vezes.
+And since we naturally run away from suffering, piety may seem uncomfortable to us
+Often.
 
-Somemos isso à indiferença ainda reinante nos corações humanos, quanto ao que
-se passa com o outro, e teremos o homem distante da piedade.
+We add this to the still reigning indifference in human hearts, as to what
+one goes through with the other, and we will have the man far from piety.
 
-Porém, ao compreender melhor essa virtude, veremos que nos é extremamente
-benéfica, e não significa que com ela traremos mais dor para nossos dias.
+However, by better understanding this virtue, we will see that it is extremely
+and it does not mean that with it we will bring more pain to our day.
 
-Compartilhar o sofrimento do outro não é aprová-lo, nem compartilhar suas
-razões, boas ou más, para sofrer.
+Sharing the suffering of the other is not approving it, nor sharing your
+good or bad reasons, to suffer.
 
-É recusar-se a considerar um sofrimento, qualquer que seja, como um fato
-indiferente e um ser vivo, qualquer que seja, como coisa.
+It is refusing to consider suffering, whatever, as a fact
+indifferent and a living being, whatever, as a thing.
 
-A compaixão ou piedade é o contrário da crueldade, que se regozija com o
-sofrimento do outro, e do egoísmo, que não se preocupa com ele.
+Compassion or piety is the opposite of cruelty, which rejoices in the
+suffering of the other, and selfishness, who does not care about him.
 
-É uma atitude mental baseada no desejo de que os outros se livrem do seu
-sofrimento. Está associada a uma sensação de compromisso, responsabilidade para
-com o outro.
+It is a mental attitude based on the desire for others to get rid of their
+Suffering. It is associated with a sense of commitment, responsibility for
+with each other.
 
-A verdadeira compaixão tem por base o raciocínio de que todo ser humano tem o
-desejo inato de ser feliz e de superar o sofrimento, exatamente como nós.
+True compassion is based on the reasoning that every human being has the
+innate desire to be happy and overcome suffering, just like us.
 
-E exatamente como nós, ele tem o direito de realizar essa aspiração
+And just like us, he has the right to realize this aspiration
 fundamental.
 
-No processo de conquista dessa virtude vamos encontrar a prática da empatia,
-que é o instrumento fundamental para se chegar à piedade.
+In the process of conquering this virtue we will find the practice of empathy,
+which is the fundamental instrument for reaching piety.
 
-A empatia é a condição psicológica que permite a uma pessoa sentir o que
-sentiria caso estivesse na situação e circunstância experimentada por outra
-pessoa.
+Empathy is the psychological condition that allows a person to feel what
+would feel if he was in the situation and circumstance experienced by another
+Person.
 
-Essa técnica envolve a capacidade de suspender, provisoriamente, a insistência
-no próprio ponto de vista mas, também, encarar a situação a partir da
-perspectiva do outro.
+This technique involves the ability to provisionally suspend the insistence of
+from the very point of view but also face the situation from the
+perspective of the other.
 
-Ela é benéfica em todas as situações da vida e, em especial, no desenvolvimento
-da piedade.
+It is beneficial in all situations of life and, in particular, in the development of
+of piety.
 
-Tendo em mãos tal habilidade, poderemos nos deixar envolver pelo sofrimento
-alheio.
+With such skill at hand, we can get involved by suffering
+Oblivious.
 
-E como tal virtude é filha do amor, e na companhia dele sempre estaremos, esse
-sofrer junto não será desagradável para o compadecido.
+And as such virtue is the daughter of love, and in his company we will always be, this
+suffer together will not be unpleasant for the compadecido.
 
-Nesse instante estaremos operando como mensageiros de Deus, consolando aflições
-e praticando a caridade em uma de suas belíssimas formas.
+At this moment we will be operating as messengers of God, consoling afflictions
+and practicing charity in one of its beautiful forms.
 
 *   *   *
 
- 
 
-Deixai que o vosso coração se enterneça ante o espetáculo das misérias e dos
-sofrimentos dos vossos semelhantes.
 
-Vossas lágrimas são um bálsamo que lhes derramais nas feridas e, quando, por
-bondosa simpatia, chegais a lhes proporcionar a esperança e a resignação, que
-encanto não experimentais!
+Let your heart be buried in the face of the spectacle of miseries and
+sufferings of your fellow men.
 
-A piedade bem sentida é amor.
+Your tears are a balm that pours into your wounds, and when, by
+kind sympathy, you are even to provide them with hope and resignation, which
+unexperimental charm!
 
-Amor é devotamento. Devotamento é o olvido de si mesmo e esse olvido, essa
-abnegação em favor dos desgraçados, é a virtude por excelência, a que em toda a
-sua vida praticou o Divino Messias e ensinou na Sua doutrina tão santa e tão
+The well-felt pity is love.
+
+Love is devout. Devotement is the olvido of oneself and this olvido, this
+selflessness in favor of the wretched, is virtue par excellence, which in all
+his life practiced the Divine Messiah and taught in His doctrine so holy and so
 sublime.
 
 ## Source

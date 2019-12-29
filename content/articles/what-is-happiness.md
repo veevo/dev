@@ -10,55 +10,55 @@ topics:
 ---
 
 
-Se questionarmos um grupo de pessoas acerca do que significa ser feliz, obteremos respostas as mais diversas.
+If we question a group of people about what it means to be happy, we'll get the most diverse answers.
 
-Alguns dirão que ser feliz significa ter uma vida confortável, sem preocupações financeiras. Outros dirão que a presença dos familiares e amigos já é suficiente para nos trazer felicidade.
+Some will say that being happy means having a comfortable life with no financial concerns. Others will say that the presence of family and friends is enough to bring us happiness.
 
-Outros, ainda, poderão dizer que ser feliz é encontrar um grande amor, alguém com quem possa dividir os momentos de alegria e os de tristeza. E outros mais dirão que uma saúde perfeita é o que basta para a felicidade.
+Others, still, may say that being happy is to find great love, someone with whom they can share moments of joy and those of sadness. And others will say that perfect health is enough for happiness.
 
-Outras respostas poderíamos enumerar, sem podermos afirmar qual delas é a mais correta ou a menos errada, pois que não há uma resposta em definitivo.
+Other answers could be enumerated, without being able to state which one is the most correct or the least wrong, because there is no definitive answer.
 
-O Evangelho segundo o Espiritismo, em seu capítulo quinto, nos apresenta a máxima A felicidade não é deste mundo.
+The Gospel according to Spiritism, in its fifth chapter, presents us the maximum Happiness is not of this world.
 
-Alguns poderiam pensar que tal ensinamento é uma barreira às esperanças que todos temos de encontrar a felicidade verdadeira. Porém, não é esse o propósito da sentença.
+Some might think that such a teaching is a barrier to hopes that we all have to find true happiness. However, that is not the purpose of the sentence.
 
-Essa verdade traz luz à grande diferença que há entre buscar uma felicidade, por vezes, utópica e ser feliz de verdade.
+This truth brings light to the great difference that there is between seeking happiness, sometimes utopian and being truly happy.
 
-Há tantos que depositam suas esperanças de felicidade nas ilusões que o dinheiro e as posses materiais podem oferecer.
+There are so many who place their hopes of happiness in illusions that money and material possessions can offer.
 
-Passam a vida trabalhando para conquistar um império financeiro e mal percebem o quanto são escravos.
+They spend their lives working to conquer a financial empire and barely realize how slaves are.
 
-De repente, quando se dão conta, os filhos já cresceram, os pais já partiram, as amizades já se desfizeram e, nesse momento, nem toda a riqueza acumulada é suficiente para lhes trazer a tão sonhada felicidade.
+Suddenly, when they realize, the children have grown up, their parents have already left, friendships have already broken down and, at that moment, not all accumulated wealth is enough to bring them much dreamed happiness.
 
-Esquecem-se de que muitas pessoas são verdadeiramente felizes morando em casas singelas, com vidas financeiras limitadas.
+They forget that many people are truly happy living in simple homes, with limited financial lives.
 
-A felicidade, portanto, não pode estar nos bens materiais.
+Happiness, therefore, cannot be in material goods.
 
-Há outros que buscam a felicidade em um grande amor: Quando eu encontrar aquela pessoa especial, serei feliz, dizem eles.
+There are others who seek happiness in a great love: When I find that special person, I will be happy, they say.
 
-Mas quantas pessoas têm um companheiro ou companheira ao lado e não são felizes? E quantos mais há que, mesmo estando solteiros, possuem sempre uma alegria nos olhos?
+But how many people have a mate or companion next door and aren't happy? And how many more are there that even if they are single, they always have a joy in their eyes?
 
-Assim, a felicidade não pode estar no outro.
+So happiness can't be in the other.
 
-Então, onde encontrar a felicidade? Como ser feliz?
+So where to find happiness? How to be happy?
 
-A máxima do Evangelho nos ensina que a felicidade verdadeira é uma conquista do Espírito, pois que todos nós fomos criados para a felicidade eterna.
+The maxim of the Gospel teaches us that true happiness is an achievement of the Spirit, for we have all been created for eternal happiness.
 
-Tudo o que necessitamos para sermos felizes está em nossos corações.
+Everything we need to be happy is in our hearts.
 
 *   *   *
 
-Se hoje você se decidir por ser feliz, não há nada que possa impedi-lo, a não ser você mesmo.
+If today you decide to be happy, there is nothing that can stop you except yourself.
 
-Então não deixe para amanhã: brinque, sorria, valorize as coisas simples. Acompanhe o crescimento dos filhos, abrace, aperte a mão de quem lhe quer bem.
+So don't let it go tomorrow: play, smile, value simple things. Follow the growth of your children, embrace, shake hands with those who want you well.
 
-Não guarde mágoas e deixe no passado qualquer sentimento de culpa. Não se entregue à autopiedade.
+Do not keep sorrows and leave in the past any feeling of guilt. Don't give yourself to self-pity.
 
-Seja otimista. Vibre com as conquistas. Valorize o presente. Planeje o futuro.
+Be optimistic. Vibrate with achievements. Value the present. Plan for the future.
 
-Organize-se. Reserve um tempo para você. Reserve um tempo para a família. Reserve um tempo para obras sociais.
+Get organized. Take some time for the family. Take time for social works.
 
-E lembre-se: Não existe um caminho para a felicidade. A felicidade é o caminho.
+And remember, there is no path to happiness. Happiness is the way.
 
 ## Source
 Redação do Momento Espírita, com base no 

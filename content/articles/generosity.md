@@ -9,69 +9,69 @@ topics:
 ---
  
 
-Não raro, encontramos pessoas gentis no trato social. São aquelas que se
-preocupam em respeitar os direitos do próximo, em desenvolver seu espírito de
-cidadania, em buscar palavras e gestos amáveis para com os demais.
+Not often, we find kind people in the social tract. They are the ones that
+concern about respecting the rights of others, in developing their spirit of
+citizenship, in seeking kind words and gestures towards others.
 
-Também, com felicidade, encontramos pessoas educadas nas nossas relações
-sociais. São os companheiros que se fazem atenciosos, que se preocupam com
-pequenos gestos, como o saudar aos mais velhos, ceder o espaço para a senhora
-grávida ou apenas dar um telefonema para o conhecido para ter notícias.
+Also, with happiness, we find educated people in our relationships
+Social. It is the companions who make themselves attentive, who care about
+small gestures, such as greeting the elders, cede the space to the lady
+pregnant or just make a phone call to the acquaintance to have news.
 
-Porém, quantas pessoas conseguem ser generosas? Se a gentileza e a educação
-nascem do respeito ao próximo, se desenvolvem no espírito de cidadania e
-convivência, a generosidade nasce no coração de quem está pronto para amar
-fraternalmente.
+But how many people can be generous? If kindness and education
+are born of respect for others, develop in the spirit of citizenship and
+coexistence, generosity is born in the hearts of those who are ready to love
+Fraternally.
 
-Vamos encontrar a generosidade no amigo que consegue compreender nossa falta
-quando esquecemos seu aniversário, e, ao encontrá-lo mais tarde, ao invés de
-nos cobrar o esquecimento, simplesmente nos oferece o coração aberto e
-espontâneo de sempre.
+Let's find generosity in the friend who can understand our lack
+when we forgot his birthday, and, upon finding him later, rather than
+charge us for oblivion, simply offers us the open heart and
+spontaneous ever.
 
-Será fruto da generosidade da alma quando não necessitamos, nem esperamos por
-um agradecimento, após ter feito um favor a alguém, pois o simples fato de
-poder ajudar a quem nos pediu nos é suficiente para preencher o coração com
-satisfação, sem aguardarmos nenhum tipo de reconhecimento.
+It will be the fruit of the generosity of the soul when we do not need it, nor do we wait for
+a thank you, after having done someone a favor, for the mere fact that
+to be able to help those who asked us is enough to fill the heart with
+without waiting for any kind of recognition.
 
-E estaremos prontos para que a generosidade seja nossa companhia quando, tendo
-razão frente a uma contenda de grande importância ou a uma disputa por nonadas,
-sejamos capazes de abrir mão de reivindicar nossos direitos, em nome da paz e
-da boa convivência.
+And we will be ready for generosity to be our company when, having
+reason in the face of a dispute of great importance or a dispute over nodes,
+we are able to give up claiming our rights in the name of peace and
+of good coexistence.
 
-Jesus nos aconselha a cultivar a generosidade no coração quando afirma que se
-alguém nos convidar a dar mil passos, caminhemos dois mil se necessário. E, se
-outro nos pedir a capa, que também ofereçamos a túnica.
+Jesus advises us to cultivate generosity in our hearts when he says that
+someone invite us to take a thousand steps, walk two thousand if necessary. And if
+another ask us for the cover, which we also offer the tunic.
 
-Muitas vezes, pensamos que generoso é aquele capaz de abrir os cofres e
-distribuir o muito que tem, quando, não raro, esse muito nem falta lhe fará.
+We often think that generous is the one capable of opening the safes and
+distribute the much you have, when, not infrequently, this much does not even fail will do so.
 
-A verdadeira generosidade nasce no coração que é capaz de olhar o próximo e o
-mundo com complacência e compreensão, sabendo que todos estamos sujeitos a
-erros, tropeços e enganos.
+True generosity is born in the heart that is able to look at the next and
+world with complacency and understanding, knowing that we are all subject to
+errors, stumbles and deceptions.
 
-Seremos generosos quando estivermos despreocupados em conjugar o verbo ter...
-Ter algo, ter razão, ter alguém, pois nossas preocupações serão as de
-oferecer... a gentileza, a amizade, a companhia, a compreensão.
+We will be generous when we are unconcerned in conjugating the verb to have...
+To have something, to be right, to have someone, for our concerns will be those of
+Offer... kindness, friendship, companionship, understanding.
 
-Claro que poderemos ensaiar os primeiros passos de generosidade tocando o
-bolso, para oferecer aquilo que nos sobra aos que têm tão pouco.
+Of course we can rehearse the first steps of generosity by touching the
+pocket, to offer what we have left to those who have so little.
 
-Porém, poderemos sempre investir mais e permitir que a generosidade ganhe
-espaço em nosso mundo íntimo, quando formos capazes de esquecer um tanto de
-nossas vontades, nossas razões, nossos anseios, para simplesmente semearmos,
-nos caminhos alheios, as flores perfumadas com a brisa da fraternidade.
+However, we can always invest more and allow generosity to gain
+space in our intimate world, when we are able to forget a little bit of
+our wills, our reasons, our longings, to simply sow,
+in the ways of others, the flowers scented with the breeze of fraternity.
 
                                    *   *   *
 
-Todos os que estendem mãos invisíveis para sustentar vidas, instituições
-nobres, são semeadores dos tempos novos.
+All who extend invisible hands to sustain lives, institutions
+noble, are seeders of new times.
 
-Graças a eles muitos vivem, outros sobrevivem. Alguns despertam da tristeza,
-inúmeros os imitam, seguindo-lhes as pegadas.
+Thanks to them many live, others survive. Some awaken from sadness,
+countless imitate them, following in their footsteps.
 
-Semeadores generosos, anônimos, perseverantes. Servidores de Jesus.
+Generous, anonymous, persevering sowers. Servants of Jesus.
 
-Que tal aderirmos à generosidade nós também? 
+How about we adhere to generosity too? 
 
 ## Source
 Redação do Momento Espírita.  

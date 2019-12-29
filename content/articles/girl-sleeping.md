@@ -18,87 +18,87 @@ topics:
 ---
 
 
-Segundo consta do Evangelho, em certa ocasião Jesus foi chamado a intervir em
-favor da filha de um homem chamado Jairo.
+According to the Gospel, on one occasion Jesus was called to intervene in
+favor of the daughter of a man named Jairus.
 
-Entretanto, antes que chegassem à casa onde estava a enferma, foi recebida a
-notícia de que ela já havia morrido.
+However, before they arrived at the house where the sick was, the
+news that she had already died.
 
-Jesus consolou o pai aflito e lhe disse que nada deveria temer.
+Jesus comforted the afflicted father and told him that nothing should fear.
 
-Ao chegarem ao destino, havia muito choro e alvoroço.
+When they reached their destination, there was a lot of crying and uproar.
 
-Entrando na residência, Jesus afirmou não haver razão para pranto, pois a
-menina apenas dormia.
+Entering the residence, Jesus said there was no reason to weeping, for the
+girl just slept.
 
-Tomando a mão da filha de Jairo, disse: Menina, levante e ande, sendo
-imediatamente obedecido.
+Taking the hand of Jairus's daughter, said: Girl, get up and walk, being
+immediately obeyed.
 
                                    *   *   *
 
-Essa bela passagem evangélica enseja várias linhas de reflexão.
+This beautiful Gospel passage is several lines of reflection.
 
-O sono espiritual por vezes se assemelha à morte.
+Spiritual sleep sometimes resembles death.
 
-Os que observam quem dorme não raro o acreditam morto para as questões
-espirituais.
+Those who observe those who sleep do not rarely believe him dead for the issues
+Spiritual.
 
-A crueldade e a indiferença são identificadas como estados terminais.
+Cruelty and indifference are identified as terminal states.
 
-O homem cruel não suscita simpatia e surge a ideia de que ele jamais se
-recuperará, em termos morais.
+The cruel man does not raise sympathy and the idea arises that he never
+will recover in moral terms.
 
-Do mesmo modo, a criatura egoísta parece jazer em um esquife de indiferença.
+Likewise, the selfish creature seems to jazer in a skiff of indifference.
 
-Justamente por isso, os que se consideram despertos e ativos abdicam de
-esforços em favor deles.
+Precisely for this, those who consider themselves awake and active give up
+efforts in favor of them.
 
-Como na passagem evangélica, entendem que resta apenas lamentar a morte moral
-dessas criaturas.
+As in the Gospel passage, they understand that there is only regret for moral death
+of these creatures.
 
-Contudo, a vida é inesgotável e ninguém jamais se transvia em definitivo.
+However, life is inexhaustible and no one has ever been definitively transrouted.
 
-Muitos se comprazem em culposo sono, longe das responsabilidades que lhes cabem
-na sociedade em que vivem.
+Many are bought in manslaughter, away from the responsibilities that fit them
+in the society in which they live.
 
-Outros até dão mostras de putrefação moral, ao se permitirem grandes baixezas.
+Others even show moral putrefaction, allowing themselves great rascalities.
 
-Para não se darem ao esforço da renovação íntima, optam pelo sono da
-negligência.
+In order not to give themselves to the effort of intimate renewal, they opt for the sleep of the
+Negligence.
 
-Esse sono pode durar milênios, a denotar rebeldia com os propósitos superiores
-da existência imortal.
+This sleep can last millennia, denote rebellion with the higher purposes
+of immortal existence.
 
-Os que dormem ficam até irritadiços com quem lhes sinaliza a necessidade de
-levantar.
+Those who sleep are even cranky with whom it signals the need to
+Lift.
 
-Apegam-se a variadas espécies de anestesia da alma.
+They cling to various species of anesthesia of the soul.
 
-Entregam-se ao gozo de sensações efêmeras, à busca de poder, até se justificam
-com a adesão a correntes de pensamento focadas no egoísmo.
+They give themselves to the enjoyment of ephemeral sensations, to the search for power, even justified
+adherence to currents of thought focused on selfishness.
 
-Mas sempre chega o momento de despertar.
+But there's always time to wake up.
 
-O crescimento íntimo constitui um desígnio divino e ninguém se furta dele.
+Intimate growth is a divine design and no one gets rid of it.
 
-Seja mediante um grande amor, uma profunda dor ou mesmo pelo amargor que as
-ilusões do mundo produzem.
+Whether through great love, a deep pain or even for the bitterness that the
+illusions of the world produce.
 
-Cedo ou tarde, a realidade da vida se impõe e a necessidade de se tornar
-fraterno e puro aparece.
+Sooner or later, the reality of life is imposed and the need to become
+fraternal and pure appears.
 
-Gradualmente, o apetite pelas coisas mundanas cessa e um desolador vazio se
-instala na alma.
+Gradually, the appetite for worldly things ceases and an empty bleak
+installs in the soul.
 
-Esse vazio apenas pode ser preenchido pelo atendimento ao amoroso convite do
-Messias Divino: Levante e ande!
+This void can only be filled by the fulfillment of the loving invitation of the
+Divine Messiah: Lift up and walk!
 
-Ciente disso, agilize seu despertar pela reflexão a respeito das mensagens
-cristãs.
+Aware of this, speed up your awakening by reflection on messages
+Christian.
 
-E também nunca se permita considerar seus semelhantes como perdidos!
+And also never allow yourself to consider your fellowmen as lost!
 
-Um a um, todos despertarão para a sublime beleza do amor pujante e imortal.
+One by one, everyone will awaken to the sublime beauty of the thriving and immortal love.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 2 do livro

@@ -110,7 +110,7 @@ material as in the perispirit. Such consequences can cause animalisation
 of the spirit due to the myasmes acquired by thoughts and companies
 that the use of hallucinogens and vices created.
 
-    713. Do the jouissances have limits drawn by nature?
+    713. Do the enjoyments have limits drawn by nature?
     "Yes, to indicate to you the limit of what is necessary; however, by your
     excesses, come to satiety and punish yourselves."
 

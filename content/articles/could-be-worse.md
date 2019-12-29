@@ -13,80 +13,80 @@ topics:
 - prayer
 ---
 
-O dia apenas amanhecera e Jorge já se achava a meio caminho da empresa em que
-trabalhava.
+The day had only dawned and Jorge was already halfway to the company in which
+Worked.
 
-Os passos lentos e o olhar voltado para o chão demonstravam a tristeza e o
-desalento de que estava possuído.
+The slow steps and the ground-facing gaze demonstrated the sadness and
+discouraged that he was possessed.
 
-Adentrou o local de trabalho alguns minutos antes do horário e cumprimentou o
-colega, um tanto desanimado.
+He entered the workplace a few minutes before the schedule and greeted the
+colleague, somewhat discouraged.
 
-Ao perceber a tristeza de Jorge, o companheiro lhe perguntou, interessado:
+Upon realizing Jorge's sadness, the companion asked him, interested:
 
-O que aconteceu com você? Seu olhar denuncia sentimentos amargos...
+What happened to you? Your gaze denounces bitter feelings...
 
-É verdade. Trago nos ombros o peso da desesperança...
+That's true. I bring on my shoulders the weight of hopelessness...
 
-À minha volta só acontecem desgraças e mais desgraças... Sinto-me impotente, e
-penso que sou o homem mais infeliz da face da Terra.
+All about me are just misfortunes and more misfortunes... I feel powerless, and
+I think I'm the most unhappy man on the face of the earth.
 
-Mas, afinal de contas, o que aconteceu? - Indagou o colega.
+But, after all, what happened? - You've infiltrated your colleague.
 
-Ora, meu irmão mais novo contraiu grande dívida e fugiu sem deixar o endereço.
-Meu cunhado envolveu-se com assaltantes e está atrás das grades.
+Now, my younger brother contracted great debt and ran away without leaving the address.
+My brother-in-law got involved with robbers and is behind bars.
 
-O companheiro que ouvia atento, observou: Mas poderia ser pior...
+The companion who listened attentively, observed: But it could be worse...
 
-Jorge continuou:
+Jorge continued:
 
-Minha esposa, levianamente, envolveu-se com um rapaz bem mais novo que ela, e
-abandonou o lar...
+My wife, frivolously, became involved with a much younger boy than her, and
+abandoned the home...
 
-Mas poderia ser pior... - Retrucou o colega.
+But it could be worse... - Retorted his colleague.
 
-Meu melhor amigo me traiu, espalhando calúnias a meu respeito...
+My best friend betrayed me, spreading slander about me...
 
-No entanto, poderia ser pior... - Falou novamente o companheiro.
+However, it could be worse... - Spoke again the companion.
 
-Jorge não suportou mais ouvir aquela afirmativa e perguntou, um tanto irritado:
+Jorge could no longer bear to hear that statement and asked, somewhat angry:
 
-Ora, eu já lhe contei tantas desgraças e você só sabe dizer que poderia ser
-pior? O que poderia acontecer que fosse pior?
+Well, I've told you so many misfortunes and you just know how to say it could be
+Worse? What could happen that was worse?
 
-O amigo respondeu serenamente:
+The friend answered serenely:
 
-Você falou que o seu irmão tomou um empréstimo e não honrou o compromisso...
-Que seu cunhado envolveu-se em assaltos... Que sua esposa o traiu... Que seu
-melhor amigo o caluniou... E eu posso afirmar, com segurança, que poderia ser
-pior, se fosse você o autor de tantos desatinos...
+You said your brother took a loan and didn't honor the commitment...
+That your brother-in-law got involved in robberies... That your wife betrayed you... What yours
+best friend slandered him... And I can safely state that it could be
+worse, if you were the author of so many unsatines...
 
-Jorge, um tanto chocado, olhou longamente para o colega e respondeu meio
-reticente:
+Jorge, somewhat shocked, looked at his colleague at length and answered half
+Reluctant:
 
-É... poderia mesmo ser pior...
+Right... could even be worse...
 
-Às vezes, nos deparamos com situações que nos deixam tristes porque sentimos o
-coração dilacerado pela traição, pela calúnia ou pelos equívocos dos entes
-queridos.
+Sometimes we come across situations that make us sad because we feel the
+heart torn apart by betrayal, slander or misunderstandings of the
+Dear.
 
-Todavia, se já conseguimos permanecer fiéis à nossa própria consciência,
-poderemos oferecer apoio aos que ainda se debatem nas águas turbulentas dos
-vícios morais.
+However, if we have already been able to remain faithful to our own conscience,
+we can offer support to those who are still struggling in the turbulent waters of
+moral vices.
 
                                    *   *   *
 
-Ainda que a navalha da ingratidão nos dilacere o coração...
+Even though the razor of ingratitude delaces our hearts...
 
-Ainda que a desgraça dos seres amados comprima nosso coração afetuoso...
+Although the misfortune of loved beings compresses our affectionate heart...
 
-Ainda que tenhamos que sorver a taça da calúnia, lembremos o exemplo maior de
-Jesus, diante da traição do amigo que com Ele convivera por quase três anos...
+Even if we have to sorify the cup of slander, let us remember the greatest example of
+Jesus, in the face of the betrayal of his friend who had lived with Him for almost three years...
 
-Lembremos as lágrimas do Sublime Galileu diante do sofrimento alheio...
+Let us remember the tears of sublime Galileo before the suffering of others...
 
-E, por fim, lembremos a derradeira frase que proferiu do alto da cruz
-infamante: Pai, perdoa-lhes, porque não sabem o que fazem. 
+And finally, let us remember the last sentence you uttered from the top of the cross
+infamante: Father, forgive them, for they do not know what they do. 
 
 
 ## Source

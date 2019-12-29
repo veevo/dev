@@ -11,83 +11,83 @@ topics:
 - authenticity
 ---
 
-O brasileiro Rui Barbosa, grande jurista e diplomata, notável escritor,
-além de extraordinário orador, deixou um escrito que nos faz refletir sobre a
-atual situação da nossa sociedade.
+Brazilian Rui Barbosa, great jurist and diplomat, noted writer,
+besides extraordinary speaker, left a writing that makes us reflect on the
+current situation of our society.
 
-Escreveu ele: "de tanto ver triunfar as nulidades, de tanto ver
-prosperar a desonra, de tanto ver crescer a injustiça, de tanto ver
-agigantarem-se os poderes nas mãos dos maus, o homem chega a desanimar da
-virtude, a rir-se da honra, a ter vergonha de ser honesto..."
+He wrote: "to see the nulities triumph, of so much seeing
+prosper the dishonor, from seeing so much injustice grow, of seeing so much
+the powers at the hands of the wicked are stirled, man comes to discourage from the
+virtue, laughing at honor, to be ashamed of being honest..."
 
-A indignação de Rui Barbosa, ainda que tenha sido há muito tempo, faz
-sentido e é digna de nossas reflexões.
+The indignation of Rui Barbosa, even though it was a long time ago,
+sense and is worthy of our reflections.
 
-Pessoas que se deixam levar pela opinião da maioria, facilmente se
-enredam na desonestidade com a justificativa de que “todo mundo faz”.
+People who get carried away by the opinion of the majority, easily
+entangle dwell in dishonesty with the justification that "everyone does".
 
-Esse é um lamentável equívoco, fácil de perceber com algumas
-reflexões.
+This is a pitiful misconception, easy to understand with some
+Reflections.
 
-Considere que você é um espírito livre e independente, que sobrevive à
-morte do corpo físico, e que receberá das leis da vida, conforme suas obras.
+Consider that you are a free and independent spirit that survives the
+death of the physical body, and which will receive from the laws of life, according to his works.
 
-Considere, ainda, que você chegou ao mundo só, e só retornará, quando
-chegar a sua hora.
+Consider, still, that you have come into the world only, and will only return, when
+reach your time.
 
-Você, e somente você, responderá por suas ações, ninguém mais.
+You, and only you, will answer for your actions, no one else.
 
-Mesmo que “todo mundo faça”, cada um será responsabilizado,
-individualmente, diante da própria consciência.
+Even if "everyone does", each will be held accountable,
+individually, in the face of one's own consciousness.
 
-Dessa forma, não permita que essa onda de desonestidade e corrupção,
-que assola grande parte da população, arraste você também para o lodaçal.
+Thus, do not allow this wave of dishonesty and corruption,
+that plagues much of the population, drag you to the sludge as well.
 
-Lembre-se de que diante da sua consciência você estará sempre só, sem
-testemunha de defesa, a não ser seus atos nobres.
+Remember that before your consciousness you will always be alone, without
+witness of defense, except his noble acts.
 
-Não vale a pena abrir mão do único patrimônio que realmente lhe
-pertence, que é a honradez, por algum dinheiro ou benefício escuso, que terá
-que deixar na aduana do túmulo.
+It's not worth giving up the only asset that really gives you
+belongs, which is honor, for some money or shady benefit, which will have
+that leave in the customs of the tomb.
 
-A dignidade é o patrimônio mais valioso que alguém pode ter. Não o
-desperdice com coisas efêmeras que pertencem à terra.
+Dignity is the most valuable heritage anyone can have.
+waste with ephemeral things that belong to the earth.
 
-E o que é mais interessante, é que até as pessoas desonestas preferem
-contar com pessoas dignas, em quem possam confiar... Estranho paradoxo!
+And what's more interesting is that even dishonest people prefer
+rely on worthy people, whom they can trust... Strange paradox!
 
-Por mais que se diga que a desonestidade está em alta, temos visto
-verdadeiros impérios desabando por causa da falta de ética.
+As much as it is said that dishonesty is on the rise, we have seen
+true empires collapse because of the lack of ethics.
 
-Temos visto empresas e instituições de prestígio, bancos sólidos,
-vindo abaixo por forjar resultados, fraudar documentos, enganar, extorquir...
+We have seen prestigious companies and institutions, solid banks,
+coming down for forging results, defrauding documents, cheating, extorting...
 
-Empresas que não trabalham com transparência estão perdendo seus
-investidores, que preferem apostar numa relação de confiança.
+Companies that do not work with transparency are losing their
+investors, who prefer to bet on a relationship of trust.
 
-Pode-se perceber que no meio econômico a confiança ainda é o capital
-que mais atrai e multiplica o dinheiro.
+It can be realized that in the economic environment trust is still the capital
+that attracts the most and multiplies the money.
 
-Ninguém, em sã consciência, investe em instituições ou empresas nas
-quais não confia.
+No one, in good conscience, invests in institutions or companies in the
+which you don't trust.
 
-E é importante lembrar que as empresas são dirigidas por pessoas. E
-são as pessoas que dão confiabilidade ou não aos negócios.
+And it's important to remember that companies are run by people. And
+are the people who give reliability or not to business.
 
-Portanto, é sempre o indivíduo o portador dos valores morais capazes
-de gerar confiança, a única base capaz de sustentar tanto os negócios quanto as
-amizades.
+Therefore, the individual is always the bearer of moral values capable of
+to build confidence, the only basis capable of sustaining both business and
+Friendships.
 
-Sem dúvida essas reflexões são oportunas e devem nos fazer pensar a
-respeito.
+Undoubtedly these reflections are timely and should make us think of the
+Respect.
 
-Afinal, se a desonestidade se tornar regra geral de conduta, o que
-será da nossa sociedade?
+After all, if dishonesty becomes a general rule of conduct, which
+will it be from our society?
 
-Portanto, vergonha de ser honesto: jamais!
+So be ashamed of being honest: never!
 
-Pense nisso, e não contribua para turvar o lago da esperança com os
-detritos da desonestidade.
+Think about it, and don't contribute to muddying the lake of hope with the
+debris from dishonesty.
 
 
 ## Source

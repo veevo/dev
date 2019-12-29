@@ -14,70 +14,70 @@ topics:
 - family
 --- 
 
-Vivemos em um mundo que valoriza extremamente os bens materiais. Em sua
-maioria, as pessoas valorizam ou não o próximo, a partir do que o outro possui
-e aparenta, e não pela essência de seu ser.
+We live in a world that greatly values material goods. In his
+majority, people value or not the next, from what the other has
+and appears, not by the essence of his being.
 
-Em um mundo dominado por nações materialistas e ainda sem ter alcançado
-suficiente desenvolvimento espiritual, grande parte das pessoas dedica sua vida
-a acumular dinheiro e bens materiais.
+In a world dominated by materialistic nations and still unreached
+sufficient spiritual development, most people dedicate their lives
+to accumulate money and material goods.
 
-Desde cedo as crianças se acostumam a ter o que querem. E passam a valorizar
-seus amigos por suas aparências.
+From an early age, the kids get used to having what they want. And they start to value
+your friends for their appearances.
 
-O que ocorre é que, sem reservas morais suficientes, muitos se tornam
-verdadeiros escravos da posse material e, muitas vezes, escravizam outros para
-atingir seus objetivos.
+What happens is that, without sufficient moral reserves, many become
+true slaves of material possession and often enslave others to
+achieve their goals.
 
-Sem dúvida que as posses materiais são uma conquista sócioeconômica do ser
-humano, ao longo de suas inúmeras jornadas na Terra.
+Undoubtedly, material possessions are a socio-economic achievement of being
+throughout his numerous journeys on Earth.
 
-O desenvolvimento material das sociedades é importante, pois gera melhorias na
-qualidade de vida, incentiva o desenvolvimento da indústria, do comércio, das
-ciências, das artes.
+The material development of societies is important because it generates improvements in
+quality of life, encourages the development of industry, trade,
+sciences, the arts.
 
-Todas essas conquistas permitem à Humanidade superar obstáculos de
-sobrevivência básica e, com isso, a possibilidade de desenvolver seu lado
-espiritual e moral.
+All these achievements allow humanity to overcome obstacles of
+basic survival and, with this, the possibility of developing its side
+spiritual and moral.
 
-A conquista do ter é dever de todos. A família depende dos recursos materiais
-para seu desenvolvimento, bem como a sociedade.
+The achievement of having is everyone's duty. The family depends on the material resources
+development, as well as society.
 
-A conquista do ter, contudo, jamais deve ser mais importante que a do ser, que
-é a conquista dos valores morais e leva o indivíduo a elevar-se como Espírito.
+The achievement of having, however, should never be more important than that of being, which
+it is the conquest of moral values and leads the individual to rise as a Spirit.
 
-O risco da posse ou da aquisição da propriedade não está no fato em si, mas da
-maneira como isto se dá e no que representa emocionalmente.
+The risk of ownership or ownership is not in the fact itself, but of the
+way this is and what it represents emotionally.
 
-A aquisição de bens materiais não deve ter como base a avareza, e como objetivo
-a conquista de posição social passível de inveja ou de submissão de outrem.
+The acquisition of material goods should not be based on avarice, and as an objective
+the conquest of a social position that can be envied or submitted by others.
 
-A conquista material deve ser resultado do trabalho digno e constante,
-frequentemente oriundo de uma profissão baseada em estudo e preparo.
+Material conquest must be the result of decent and constant work,
+often from a profession based on study and preparation.
 
-A conquista material deve prover conforto e equilíbrio àqueles que a possuem,
-mas jamais levar ao desequilíbrio das posses supérfluas e do modo de vida de
-ostentação e prazeres intermináveis.
+Material conquest must provide comfort and balance to those who have it,
+but never lead to the imbalance of superfluous possessions and the way of life of
+endless ostentation and pleasures.
 
-Quem acumula bens materiais em quantidade superior àquela necessária à sua
-dignidade bem como de sua família, tem uma obrigação moral: dividir seus bens
-de uma maneira inteligente e sensata.
+Who accumulates material goods in a quantity greater than that required than their
+dignity as well as his family, has a moral obligation: to share his assets
+in an intelligent and sensible way.
 
-Obviamente que a doação àqueles que necessitam é necessária e nobre, mas a
-verdadeira divisão é baseada na geração de empregos e desenvolvimento.
+Obviously the donation to those who need is necessary and noble, but the
+real division is based on job creation and development.
 
-Para ter tal lucidez é preciso que o indivíduo já tenha maior evolução
-espiritual a fim de que possa perceber que de nada serve uma fortuna acumulada
-em instituições financeiras e transformada apenas em bens de uso próprio.
+To have such lucidity it is necessary that the individual already has greater evolution
+spiritual so that you can realize that it serves a cumulative fortune
+financial institutions and transformed only into goods of their own use.
 
-É preciso ter equilíbrio, é preciso pensar no próximo, é preciso ser mais do
-que ter.
+It is necessary to have balance, we need to think about the next, it is necessary to be more of the
+that have.
 
-A felicidade, na Terra, independe do que se tem, mas se constitui naquilo que o
-ser cultiva interiormente em termos de amor sincero, ilimitado e em
-simplicidade.
+Happiness on earth depends on what is being had, but is what the
+be cultivates inwardly in terms of sincere, unlimited love and in
+Simplicity.
 
- 
+
 
 ## Source
 Redação do Momento Espírita com base no cap.

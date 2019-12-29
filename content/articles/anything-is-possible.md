@@ -8,77 +8,77 @@ topics:
 - mark
 ---
 
-Você é uma pessoa otimista? Acredita que tudo pode se resolver com
-esforço, calma e perseverança?
+Are you an optimistic person? He believes that everything can be solved with
+effort, calm and perseverance?
 
-Ou você já desacredita de muitas coisas? Acha que existem muitas
-situações contra as quais não adianta lutar?
+Or do you already discredit many things? You think there are many
+situations you're not going to fight against?
 
-O Apóstolo Marcos registrou em seu Evangelho que tudo é possível ao que
-crê. Será mesmo?
+The Apostle Mark recorded in his Gospel that anything is possible to what
+Believe. Is that right?
 
-Narra uma antiga lenda que, na Idade Média, havia um homem extremamente
-religioso. Pois aconteceu que um crime bárbaro agitou a cidade. Uma mulher fora
-brutalmente assassinada.
+It narrates an ancient legend that, in the Middle Ages, there was an extremely
+Religious. Because it happened that a barbaric crime shook the city. A woman out
+brutally murdered.
 
-O autor era uma pessoa influente do reino. Por isso mesmo, logo se
-tratou de procurar alguém em quem pudesse ser colocada a culpa.
+The author was an influential person of the kingdom. That's why, soon if
+tried to look for someone who could be blamed.
 
-O homem religioso foi o escolhido e levado a julgamento. Ao ser preso,
-ele pressentiu que não poderia se salvar. Seu destino seria a forca. Tudo
-conspirava contra ele.
+The religious man was chosen and brought to trial. When he was arrested,
+he sensed he could not save himself. Your fate would be the gallows. All
+conspired against him.
 
-Sabia que o desejavam culpar. O próprio juiz estava com tudo acertado
-para simular um julgamento e o condenar.
+I knew you wanted to blame him. The judge himself was all right
+to simulate a judgment and condemn it.
 
-Resolveu orar, rogando socorro e inspiração para enfrentar o
-interrogatório e sair-se bem.
+He decided to pray, begging for help and inspiration to face the
+interrogation and do well.
 
-Em certo momento, o juiz lhe propôs o seguinte: Por ser um homem de
-profunda religiosidade, vou deixar que o Senhor Deus decida o seu destino.
+At one point, the judge proposed to him the following: Because he is a man of
+deep religiosity, I will let the Lord God decide his destiny.
 
-Vou escrever em um pedaço de papel a palavra “culpado” e em outro a
-palavra “inocente”. Você sorteará um dos papéis. O que você escolher, será o
-seu veredito. Deus decidirá a sua sorte.
+I'll write on one piece of paper the word "guilty" and in another the
+word "innocent". You'll draw one of the papers. What you choose, will be the
+your verdict. God will decide your luck.
 
-O pobre homem suou frio. De imediato ele percebeu que uma armadilha lhe
-estava sendo preparada. Naturalmente, o juiz, que o desejava condenar,
-prepararia os dois papéis com a mesma e única palavra: culpado.
+The poor man sweated cold. Immediately he realized that a trap to him
+was being prepared. Of course, the judge, who wished to convict him,
+i would prepare both roles with the same and only word: guilty.
 
-Como ele  poderia se salvar? Não havia alternativa. Nenhuma saída.
+How could he save himself? There was no alternative. No way out.
 
-O juiz, finalmente, colocou os dois papéis sobre a mesa e mandou o
-acusado escolher um deles. Um enorme silêncio se fez na sala.
+The judge finally put both papers on the table and sent the
+accused choose one of them. A huge silence was made in the room.
 
-Podia-se ouvir a respiração acelerada do acusado. Todas as cabeças
-presentes se voltavam para ele, à espera da sua escolha. Sua decisão.
+You could hear the defendant's accelerated breath. All heads
+gifts turned to him, waiting for his choice. Your decision.
 
-O homem pensou alguns segundos. Depois, aproximou-se confiante da mesa,
-estendeu a mão e pegou um dos papéis. Rapidamente o colocou na boca e o
-engoliu.
+The man thought a few seconds. Then he approached the table confidently,
+reached out and took one of the papers. He quickly put it in his mouth and the
+Swallowed.
 
-Os presentes ao julgamento reagiram indignados com a atitude dele.
+Those present at the trial reacted indignantly at his attitude.
 
-Como saber agora qual o seu veredito?
+How do You know now what your verdict is?
 
-Simples, respondeu ele. Basta olhar o outro pedaço de papel. O que
-sobrou em cima da mesa. Naturalmente, aquele que eu engoli é o contrário.
+Simple, he answered. Just look at the other piece of paper. What
+left on the table. Of course, the one I swallowed is the other way around.
 
-Imediatamente, o homem foi libertado.
+Immediately, the man was released.
 
                                    *   *   *
 
-A esperança sempre acalma o desespero e contorna a dificuldade. A sua
-voz nunca pára de cantar. A sua música abençoada luariza a noite do sofrimento,
-acalmando o infortúnio.
+Hope always calms despair and skirts difficulty. Your
+voice never stops singing. His blessed music luariza the night of suffering,
+calming the misfortune.
 
-Ninguém consegue avançar, nos caminhos rudes da vida, sem a sua
-presença.
+No one can move forward, in the rude ways of life, without their
+Presence.
 
-Ninguém a pode dispensar.
+No one can spare her.
 
-Onde quer que apareça, a esperança altera a paisagem, inspirando
-coragem, tudo embelezando com cor, perfume e beleza.
+Wherever it appears, hope alters the landscape, inspiring
+courage, all embellishing with color, perfume and beauty.
 
 ## Source
 Redação do Momento Espírita com base em história de autoria ignorada e no cap.

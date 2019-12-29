@@ -8,81 +8,81 @@ topics:
 - mother
 ---
 
-O garoto era encarregado de chegar mais cedo, todos os dias, e acender o
-antiquado fogão, a fim de aquecer a sala, antes da chegada da professora e dos
-colegas.
+The boy was in charge of arriving early every day, and lighting the
+old-fashioned stove, in order to warm the room, before the arrival of the teacher and the
+Colleagues.
 
-Era uma escola rural e todos os dias, o menino atendia à sua obrigação.
+It was a rural school and every day, the boy met his obligation.
 
-Certa manhã, quando chegaram a professora e os meninos, a escola estava em
-chamas. O garoto foi retirado inconsciente do prédio. Mais morto do que vivo.
+One morning, when the teacher and the boys arrived, the school was in
+Flames. The boy was removed unconscious from the building. He liveser than Alive.
 
-De sua cama, ele pôde ouvir o médico dizendo para sua mãe que ele não tinha
-chances de viver. Morrer seria uma bênção para ele, pois o fogo tinha arrasado
-toda a parte inferior do seu corpo.
+From his bed, he could hear the doctor telling his mother that he had not
+chances of living. Dying would be a blessing to him, for the fire had razed
+the entire bottom of your body.
 
-Mas o corajoso menino decidiu que iria viver. Tanto lutou que sobreviveu.
+But the brave boy decided he would live. So much fought that he survived.
 
-Então, outra vez, ele ouviu o mesmo médico dizendo para sua mãe que ele estava
-condenado a viver como um inválido. Seus membros inferiores estavam
-inutilizados.
+Then again he heard the same doctor telling his mother that he was
+condemned to live as an invalid. Its lower limbs were
+Unused.
 
-De novo, o garoto tomou uma decisão: ele voltaria a andar, não importa o que
-custasse.
+Again, the boy made a decision: he would walk again, no matter what
+Cost.
 
-Infelizmente, da cintura para baixo, ele não tinha controle motor. As suas
-pernas finas estavam ali penduradas, inúteis.
+Unfortunately, from the waist down, he had no motor control. Your
+thin legs were hanging there, useless.
 
-Quando recebeu alta do hospital, sua mãe o levou para casa. Todos os dias, ela
-massageava as suas pernas. Mas ele não sentia nada.
+When he was discharged from the hospital, his mother took him home. Every day, she
+massaged his legs. But he didn't feel anything.
 
-Nem sensação, nem controle, nada. Contudo, não desistia. Ele queria voltar a
-andar.
+No sensation, no control, nothing. However, he did not give up. He wanted to go back to
+Walk.
 
-Certo dia, a mãe o colocou na cadeira de rodas, e o levou para o quintal, para
-tomar sol.
+One day, his mother put him in the wheelchair, and took him to the yard, so
+sunbathing.
 
-Ele ficou ali, olhando a cerca, a poucos metros. Então, se jogou no chão e se
-arrastou pela grama, até a cerca.
+He stood there, looking at the fence, a few meters away. So if you threw yourself to the ground and
+dragged by the grass, to the fence.
 
-Com um esforço imenso, agarrou-se a ela, se levantou e começou a se arrastar,
-estaca após estaca.
+With an immense effort, he clung to her, got up and began to drag himself,
+stake after stake.
 
-Estava decidido a andar. Fez isso em todos os outros dias, até ter aplainado um
-caminho, em volta do quintal, junto à cerca.
+I was determined to walk. You did it every other day until you've flattened a
+way, around the yard, by the fence.
 
-Ele queria andar. E andaria. Ele daria vida outra vez àquelas pernas.
+He wanted to walk. And I'd walk. He'd give life back to those legs.
 
-Por fim, depois de massagens diárias e muita determinação, ele conseguiu a
-habilidade de ficar de pé, dar uns passos, embora vacilantes.
+Finally, after daily massages and a lot of determination, he achieved the
+ability to stand, take a few steps, though faltering.
 
-Finalmente, caminhar. Ele começou andando até a escola. Logo, decidiu que
-chegaria correndo. Pelo simples prazer de correr.
+Finally, walk. He started walking to school. Soon, he decided that
+would come running. For the simple pleasure of running.
 
-Muitos anos depois, na faculdade, ele entrou para a equipe de atletismo.
+Many years later, in college, he joined the track and field team.
 
-Mais tarde, esse jovem que ninguém esperava que sobrevivesse, que diziam jamais
-voltaria a andar, muito menos correr, bateu o recorde mundial de velocidade em
-uma corrida de uma milha, no Madison Square Garden.
+Later, this young man who no one expected him to survive, who they said never
+would walk again, let alone run, broke the world speed record in
+a mile race at Madison Square Garden.
 
-Seu nome: Doutor Glenn Cunningham.
+His name: Doctor Glenn Cunningham.
 
                                    *   *   *
 
-Determinação tem a ver com vontade. E vontade acionada é certeza de objetivo
-alcançado.
+Determination has to do with will. And triggered will is sure of goal
+Achieved.
 
-Para isso, no entanto, se fazem necessários alguns fatores como o real desejo
-de querer, a persistência na execução do programa que seja estabelecido e o
-objetivo a alcançar.
+For this, however, some factors such as real desire are needed
+of wanting, the persistence in the implementation of the programme that is established and the
+objective to be achieved.
 
-Dessa forma, se temos um objetivo nobre, persigamo-lo sem cansaço, guardando a
-certeza de que haveremos de atingi-lo, em algum momento.
+Thus, if we have a noble goal, let us pursue it without tiredness, guarding the
+sure we will achieve it at some point.
 
-Importante: esqueçamos frases como Não posso. Ou Não tenho grande força de
-vontade quanto gostaria.
+Important: let's forget phrases like I can't. Or I don't have much strength to
+will as much as you would like.
 
-Trata-se de querer, trabalhar pela conquista, perseverando até o fim.
+It's about wanting to, working for conquest, persevering to the end.
 
 ## Source
 Redação do Momento Espírita, com base no cap.

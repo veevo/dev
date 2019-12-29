@@ -17,70 +17,70 @@ topics:
 - family
 ---
 
-Você saberia definir, com exatidão, o que é coragem?
+Would you know how to define exactly what courage is?
 
-Muitos, talvez, respondam a esta pergunta fazendo referência a atos impulsivos,
-impensados, e até mesmo violentos que, não raramente, colocam a vida de alguém
-em risco.
+Many perhaps answer this question by referencing impulsive acts,
+thoughtless, and even violent who, not rarely, put someone's life
+at risk.
 
-Quase sempre esta palavra está associada à impetuosidade e à agressividade nos
-atos, o que leva os indivíduos a resvalarem na precipitação, incapazes de
-conter ímpetos de violência sob a desculpa de serem corajosos.   
+Almost always this word is associated with impetuousness and aggressiveness in the
+acts, which leads individuals to slip into precipitation, unable to
+contain the urges of violence under the excuse of being courageous.   
 
-Mas, então, qual o real significado desta palavra?
+But then what is the real meaning of this word?
 
-Um dicionário renomado da língua brasileira define coragem como a energia moral
-perante situações difíceis.
+A renowned dictionary of the Brazilian language defines courage as moral energy
+difficult situations.
 
-A coragem verdadeira traz, em si, o equilíbrio como base de todas as decisões,
-de todos os sentimentos, de todas as atitudes.
+True courage brings balance in itself as the basis of all decisions,
+of all feelings, of all attitudes.
 
-Dá forças para suportar todas as dificuldades sem derrotismo; mas com o
-entendimento do que está acontecendo, e, consequentemente, com a possibilidade
-de buscar a melhor maneira de enfrentar qualquer situação.
+It gives strength to endure all difficulties without defeatism; but with the
+understanding of what is happening, and consequently with the possibility
+to seek the best way to face any situation.
 
-Quem é corajoso traz em si a serena confiança nas próprias resistências, não se
-expondo indevidamente, nem se permitindo os sentimentos inferiores de raiva, ou
-o desejo de vingança.
+Who is brave brings in themselves the serene confidence in the resistances themselves, not
+exposing unduly, nor if allowing inferior feelings of anger, or
+the desire for revenge.
 
-Ter autodisciplina exige coragem. A autodisciplina desenvolve verdadeiros
-tesouros morais que enriquecem o ser humano.
+Having self-discipline requires courage. Self-discipline develops true
+moral treasures that enrich the human being.
 
-Coragem é conquista conseguida na sucessão das experiências evolutivas, entre
-variadas dificuldades e sofrimentos, mediante os quais se adquire resistência
-moral e calma.
+Courage is achieved in the succession of evolutionary experiences, between
+difficulties and sufferings, through which resistance is acquired
+moral and calm.
 
-É a força moral daqueles que, sendo pobres de haveres materiais, perseveram
-diante das dificuldades com resignação, sem desistir.
+It is the moral strength of those who, being poor of material possessions, persevere
+in the face of difficulties with resignation, without giving up.
 
-É a força que impele os idealistas que, com convicção defendem aquilo em que
-acreditam, e não forçam outros a neles acreditar.
+It is the force that impels idealists who, with conviction, defend what
+believe, and do not force others to believe in them.
 
-É necessário coragem para que o indivíduo mantenha-se humano, comporte-se de
-maneira adequada, sofra com dignidade, alegre-se sem exageros.
+It is necessary courage for the individual to remain human, behave with
+appropriate manner, suffer with dignity, rejoice without exaggeration.
 
-Pais corajosos educam seus filhos com base em valores morais e éticos.
+Courageous parents educate their children based on moral and ethical values.
 
-Filhos corajosos respeitam e amam seus pais, e não se deixam guiar por modismos
-ou frivolidades.
+Courageous children respect and love their parents, and do not allow themselves to be guided by fads
+frivolidades.
 
-Famílias corajosas mantêm-se unidas, e seus membros apoiam-se mutuamente nas
-dificuldades, alegrando-se todos com os sucessos de cada um.
+Courageous families remain united, and their members support each other in the
+difficulties, all of which are met with the successes of each one.
 
-O estudante corajoso valoriza o aprendizado; o mestre corajoso não desiste
-jamais.
+The courageous student values learning; the brave master doesn't give up
+Never.
 
-O cidadão corajoso ama sua pátria e respeita as leis vigentes.
+The courageous citizen loves his homeland and respects the laws in force.
 
-O ser humano verdadeiramente corajoso não tem medo de amar. Sim, amar a todos
-como nosso querido Mestre Jesus a todos recomendou.
+The truly brave human being is not afraid to love. Yes, love everyone
+as our dear Master Jesus to all recommended.
 
-Nada igual à coragem de Jesus que nunca abandonou Suas convicções, mas que, em
-nenhum momento usou de violência moral ou física para fazer com que nEle
-acreditassem ou que O seguissem!
+Nothing like the courage of Jesus who never abandoned His convictions, but who, in
+no time used moral or physical violence to make him
+believe or follow Him!
 
-Nada igual à coragem de Jesus que a todos amou, entendeu e perdoou, mesmo nos
-momentos de maior sofrimento!
+Nothing like the courage of Jesus who loved, understood and forgiven, even in the
+moments of greater suffering!
 
 
 ## Source

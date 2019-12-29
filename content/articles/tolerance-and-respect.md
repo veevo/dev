@@ -12,87 +12,87 @@ topics:
 - family
 ---
 
-A tecnologia vem permitindo que nos comuniquemos cada vez mais, com uma
-quantidade sempre maior de pessoas.
+Technology has been allowing us to communicate more and more, with a
+always higher number of people.
 
-As redes sociais, os telefones móveis, são alguns dos mecanismos que nos mantêm
-em contato uns com os outros.
+Social networks, mobile phones, are some of the mechanisms that keep us
+contact each other.
 
-Outrora, para conversarmos com alguém, necessário era estar junto a essa
-pessoa.
+Once, to talk to someone, it was necessary to be with this
+Person.
 
-Para conhecer seu posicionamento sobre algum assunto, teríamos que esperar um
-encontro para a troca de ideias.
+To know your position on some subject, we would have to wait for a
+meeting for the exchange of ideas.
 
-Assim se reduziam as possibilidades e a quantidade das colheitas de pareceres.
+Thus, the possibilities and quantity of the draft opinions were reduced.
 
-Poucas eram as chances de trocar experiências, ou de analisar outros pontos de
-vista.
+Few were the chances of exchanging experiences, or analyzing other points of
+View.
 
-Não é a realidade atual.
+It's not the current reality.
 
-Conseguimos nos expressar de inúmeras maneiras, em um raio de ação antes
-impensável.
+We were able to express ourselves in countless ways, in a radius of action before
+Unthinkable.
 
-As redes sociais fazem ecoar nossas opiniões muito além do que imaginamos.
+Social networks echo our opinions far beyond what we think.
 
-De igual forma, somos alcançados pelas opiniões de tantos, próximos ou não de
-nosso círculo de amizade.
+Similarly, we are achieved by the opinions of so many, close or not to
+our circle of friendship.
 
-É natural que nem sempre concordemos com a opinião alheia.
+It is natural that we do not always agree with the opinion of others.
 
-Algumas vezes são as posições políticas, ou a visão sobre sistemas de governo.
+Sometimes it's political positions, or the view on government systems.
 
-Em outro momento, nos vemos à frente de posturas que acreditamos serem
-insensatas, ou mesmo tolas.
+At another time, we find ourselves ahead of postures that we believe are
+foolish, or even foolish.
 
-Muitos expressam opiniões que julgamos despropositadas, inadequadas.
+Many express opinions that we deem unreasonable, inadequate.
 
-Nesses momentos, nasce a oportunidade de desenvolvermos em nós a tolerância.
+In these moments, the opportunity is born to develop tolerance in us.
 
-No século XVIII, Voltaire, célebre filósofo humanista, afirmou que poderia não
-concordar com nenhuma das palavras que alguém dissesse, mas defenderia até a
-morte o direito desse alguém de pronunciá-las.
+In the 18th century, Voltaire, a celebrated humanist philosopher, said he could not
+agree with none of the words anyone said, but would defend even the
+death the right of this one to pronounce them.
 
-E assim o fazia porque tinha clara a plena percepção de que todos têm o direito
-de expressar as suas ideias.
+And so i did it because it had clear the full perception that everyone has the right
+to express their ideas.
 
-Na medida em que a tolerância e o respeito pela expressão do pensamento alheio
-se faz, ganhamos o igual direito de nos expressarmos.
+To the extent that tolerance and respect for the expression of other people's thinking
+if it does, we gain the same right to express ourselves.
 
-Ser tolerante com o pensar do outro não nos obriga a aceitar o que ele pensa.
+Being tolerant of each other's thinking doesn't force us to accept what he thinks.
 
-Ser tolerante é ter o entendimento que ninguém é obrigado a pensar e agir como
-fazemos.
+To be tolerant is to have the understanding that no one is obliged to think and act as
+Do.
 
-Cada um de nós traz os seus valores, seus conceitos, sua visão de mundo.
+Each of us brings its values, its concepts, its worldview.
 
-Assim escolhemos nossa postura política, nossa religião, nossos valores.
+So we choose our political posture, our religion, our values.
 
-E nascerá sempre da tolerância nossa capacidade de bem conviver com a
-diversidade, sem gerar divergência.
+And will always be born of tolerance our ability to well live with the
+diversity, without generating divergence.
 
-O amadurecimento perante a vida nos fará conviver com o diferente, sem precisar
-impor nossas diferenças.
+Maturing before life will make us live with the different, without needing
+impose our differences.
 
-A cada um suas crenças, seus valores.
+To each one his beliefs, his values.
 
-A todos nós, o respeito uns com os outros, oferecendo a liberdade de pensar e
-agir que desejamos para nós mesmos.
+To all of us, respect for each other, offering the freedom to think and
+act we desire for ourselves.
 
-Se alguém nos pede a opinião, que nos posicionemos, de maneira clara, honesta e
-respeitosa.
+If someone asks us for the opinion, that we position ourselves, clearly, honestly and
+Respectful.
 
-No mais, iremos nos envolver em discussões, que serão sempre o exercício da
-imposição de nosso ponto de vista sobre o alheio.
+In the mores, we will be involved in discussions, which will always be the exercise of
+imposition of our point of view on the unrelated.
 
-Esses dias de convívio de ideias cada vez mais intenso e frequente, são também
-dias de convite a fomentarmos a tolerância.
+These days of conviviality of ideas increasingly intense and frequent, are also
+days of invitation to foster tolerance.
 
-Sem ela, a guerra se faz, as disputas se acirram, as famílias se dividem, as
-amizades se desfazem.
+Without it, the war takes, the disputes are fierce, the families divide, the
+friendships fall apart.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita.

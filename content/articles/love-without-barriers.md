@@ -10,83 +10,83 @@ topics:
 - family
 ---
 
-De um modo geral, ficamos atentos às notícias, o que nos leva a sintonizarmos,
- muitas vezes,  com vibrações desagradáveis e até perturbadoras.
+In general, we are aware of the news, which leads us to tune in,
+ often with unpleasant and even disturbing vibrations.
 
-As descrições detalhadas de atos de violência, a constante visualização de
-crimes bárbaros, assaltos, agressões, nos levam a pensar que o mundo está muito
-ruim.
+Detailed descriptions of acts of violence, the constant visualization of
+barbaric crimes, assaults, assaults, lead us to think that the world is very
+Bad.
 
-Bastaria, no entanto, evitarmos determinados noticiários para percebermos
-quanta luz existe, quanto bem sendo realizado.
+It would be enough, however, to avoid certain news reports in order to understand
+how much light there is, how well it is accomplished.
 
-Se pudéssemos colocar em uma balança todas as notícias que ouvimos,
-possivelmente iríamos constatar que é bastante expressivo o número de pessoas
-dedicadas ao bem e ao próximo.
+If we could put all the news we've heard on a scale,
+possibly we would see that the number of people is quite expressive
+dedicated to good and others.
 
-Um exemplo disso, é o casal Mike e Camille Gerardi que, nas últimas quatro
-décadas, adotou oitenta e oito crianças.
+An example of this is the couple Mike and Camille Gerardi who, in the last four
+adopted eighty-eight children.
 
-O pediatra e a enfermeira se conheceram em mil novecentos e setenta e três, no
-Hospital da Criança de Miami, na Flórida.
+The pediatrician and nurse met in a thousand nine hundred and seventy-three, in the
+Miami Children's Hospital, Florida.
 
-Durante todos esses anos, eles viram muitos pais deixarem no hospital filhos
-que nasceram com doenças ou algum tipo de deficiência.
+All these years, they've seen many parents leave their children in the hospital.
+who were born with diseases or some kind of disability.
 
-Preocupados com o destino delas, decidiram adotá-las.
+Concerned about their fate, they decided to adopt them.
 
-Camille conta que quando Mike a pediu em casamento, ela lhe disse que sonhava
-ter uma casa para crianças. De imediato, ele afirmou: Eu quero seguir seu sonho
+Camille says that when Mike proposed to her, she told her she dreamed
+have a children's home. Immediately, he stated: I want to follow his dream
 .
 
-A primeira adoção aconteceu em mil novecentos e oitenta e seis.
+The first adoption took place in 1,900 and eighty-six.
 
-Desde então, acolheram crianças diagnosticadas com síndromes de Down e de
-Zellweger, com má formação craniana, autismo, deficiências motoras, lesões e
-outros distúrbios.
+Since then, they have welcomed children diagnosed with Down and
+Zellweger, with cranial malformation, autism, motor deficiencies, injuries and
+other disturbances.
 
-Várias dessas crianças estavam desenganadas, mas muitas sobreviveram.
+Several of these children were deceived, but many survived.
 
-Mike desencarnou aos setenta e três anos, vitimado por um câncer agressivo.
+Mike incarnated at age seventy-three, victimized by aggressive cancer.
 
-Contudo, Camille continua firme e forte na tarefa que assumiu.
+However, Camille remains firm and strong in the task she took on.
 
-Em sua casa na Geórgia, ainda moram vinte filhos.
+Twenty children are still living in his georgia home.
 
-Os adultos trabalham e constituíram suas famílias.
+Adults work and constituted their families.
 
-Ela se sente realizada.
+She feels fulfilled.
 
                                    *   *   *
 
-Possivelmente, em algum momento, tenhamos pensado em adotar uma criança.
-Entretanto, nos deixamos vencer por dúvidas e incertezas, medos e preconceitos.
+Maybe at some point, we thought about adopting a child.
+However, we let ourselves be overcome by doubts and uncertainties, fears and prejudices.
 
-E, com isso, não nos permitimos um exercício mais profundo do amor.
+And with that, we do not allow ourselves a deeper exercise of love.
 
-A adoção é uma maternidade especial: não geramos o corpo mas acolhemos em nossa
-família e oferecemos amor a um filho da carne alheia.
+Adoption is a special motherhood: we do not generate the body but we welcome in our
+family and offer love to a son of other people's flesh.
 
-Um filho cujos pais, por uma razão ou outra, não quiseram ou não puderam
-assumir a responsabilidade pela sua criação e educação.
+A son whose parents, for one reason or another, did not want or could not
+responsibility for its creation and education.
 
-Pode ser um parente próximo ou distante. Ou não ter conosco nenhum traço de
+It could be a close or distant relative. Or have no trace of
 parentesco.
 
-De toda forma, sabemos que nada acontece ao acaso em nossas vidas.
+Anyway, we know nothing happens randomly in our lives.
 
-A criança que nos chega, pedindo abrigo, pode ser alguém com quem, de alguma
-forma, em passado recente ou remoto, nos vinculamos.
+The child who comes to us, asking for shelter, can be someone with whom, from some
+in the recent or remote past, we bind ourselves.
 
-Ou simplesmente, alguém que, como nós, necessita de amparo e Deus, na Sua
-bondade, o direciona aos nossos braços, oferecendo-nos a oportunidade de
-exercitarmos doação e aconchego.
+Or simply, someone who, like us, needs support and God, in His
+goodness, directs him to our arms, offering us the opportunity to
+exercise donation and warmth.
 
-Isso porque o amor de Deus, na face da Terra, se expressa através dos corações
-dos Seus filhos. E todo aquele que ama, exercendo o bem, angaria bênçãos para
-si próprio.
+This is because God's love, on the face of the earth, is expressed through hearts
+of His children. And whoever loves, exercising good, gathers blessings to
+Himself.
 
-Em síntese, o bem faz bem a quem o pratica.
+In short, good is good for those who practice it.
 
 ## Source
 Redação do Momento Espírita, com base em dados colhidos

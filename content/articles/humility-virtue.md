@@ -11,90 +11,90 @@ topics:
 - prayer
 ---
 
-Um homem pode ser humilde sem se tornar alvo de humilhações? A humildade deixa
-as criaturas sem autoestima?
+Can a man be humble without becoming the target of humiliation? Humility leaves
+creatures without self-esteem?
 
-Por vezes, quando exaltamos a humildade, há pessoas que duvidam da excelência
-dessa virtude e acreditam que ser humilde é o caminho mais rápido para ser
-pisoteado pelos orgulhosos e poderosos. Não é exatamente assim.
+Sometimes when we exalt humility, there are people who doubt excellence
+of this virtue and believe that being humble is the fastest way to be
+trampled by the proud and powerful. It's not exactly like that.
 
-Quando Jesus nos ensinou sobre a humildade, disse que os pobres de espírito são
-bem-aventurados porque teriam o Reino dos Céus.
+When Jesus taught us about humility, he said that the poor of spirit are
+blessed because they would have the Kingdom of Heaven.
 
-Mas atenção: pobre de espírito não significa, em hipótese alguma, ser pequeno
-de ideias ou uma pessoa de espírito inferior.
+But attention: poor spirit does not mean, under any circumstances, being small
+ideas or a lower-spirited person.
 
-Ao contrário, ser pobre de espírito significa simplesmente ser humilde,
-carregar dentro do peito um coração capaz de não se envaidecer facilmente.
+On the contrary, being poor in spirit simply means being humble,
+carry inside the chest a heart capable of not fading easily.
 
-Ser pobre de espírito representa a conquista de um estado espiritual que não
-cede espaço para manifestações de egoísmo.
+Being poor in spirit represents the conquest of a spiritual state that does not
+gives way to manifestations of selfishness.
 
-Ser pobre de espírito é buscar um estado espiritual sem orgulho, sem soberba,
-sem vaidade.
+Being poor in spirit is to seek a spiritual state without pride, without pride,
+no vanity.
 
-Você já notou que há pessoas que se acham superiores às demais?
+Have you ever noticed that there are people who think they are superior to others?
 
-Essas acreditam que Deus deveria lhes conceder privilégios e condições
-especiais.
+They believe that God should grant them privileges and conditions
+Special.
 
-Esquecem que Deus é Pai de todas as criaturas, que faz nascer o sol sobre bons
-e maus, e faz cair Sua chuva sobre justos e injustos.
+Forget that God is the Father of all creatures, which gives rise to the sun on good
+and evil, and makes His rain fall upon righteous and unjust.
 
-Somos todos Seus filhos queridos e nenhum de nós se perderá.
+We are all His dear children and none of us will be lost.
 
-O pobre de espírito é aquele que é capaz de olhar para todos os seres humanos
-como seus irmãos.
+The poor-minded is one who is able to look at all human beings
+like his brothers.
 
-É um homem de bem,  asserenado pela certeza de que todas as pessoas são
-profundamente interessantes e dignas de respeito.
+He's a good man, beested by the certainty that all people are
+deeply interesting and worthy of respect.
 
-A pessoa verdadeiramente humilde não se considera superior, nem inferior a
-ninguém, pois vê em todos um universo de inteligência e de beleza.
+The truly humble person does not consider himself superior, nor less than
+no one, for he sees in all a universe of intelligence and beauty.
 
-Por isso, o humilde não discrimina, nem maltrata qualquer pessoa. Para ele,
-ricos e pobres, inteligentes e obtusos, bons e maus são, antes de tudo, filhos
-de Deus.
+Therefore, the humble does not discriminate, nor mistreat anyone. For him,
+rich and poor, intelligent and obtuse, good and evil are, first of all, children
+of God.
 
-As diferenças são decorrentes apenas de seu estágio intelectual e moral.
+The differences are only due to his intellectual and moral stage.
 
-Um homem assim é sábio e, certamente, vive tranquilo.
+A man like this is wise and certainly lives peacefully.
 
-O homem verdadeiramente humilde não se orgulha de seus bens, de sua riqueza, de
-seu patrimônio intelectual ou de sua boa aparência.
+The truly humble man is not proud of his goods, of his wealth, of
+intellectual heritage or good looks.
 
-E age assim porque sabe que tudo é passageiro na vida terrena.
+And you act like that because you know everything is a passenger in your inner life.
 
-Ao deixarmos esse mundo, ficarão para trás todos os bens materiais, o corpo
-físico.
+As we leave this world, all material goods will be left behind, the body
+Physical.
 
-Além disso, bem antes da morte, a vida já vai nos mostrando que estamos em um
-mundo onde as coisas são profundamente transitórias.
+Also, long before death, life is already showing us that we are in a
+world where things are deeply transitory.
 
-Para quem é belo e jovem, vale lembrar que o corpo envelhece.
+For those who are beautiful and young, it is worth remembering that the body ages.
 
-Para os que têm saúde, é sábio recordar que as doenças podem vir a qualquer
-momento.
+For those who are healthy, it is wise to remember that diseases can come to any
+Moment.
 
-Os que se orgulham de riquezas e de uma boa posição social devem observar que
-tudo isso lhes pode ser retirado a qualquer momento.
+Those who pride themselves on wealth and a good social position should note that
+all this can be taken from them at any time.
 
-Os que têm trabalho ou ocupam altas funções também devem ter em mente que podem
-perder tais cargos a qualquer momento.
+Those who have work or occupy high roles should also keep in mind that they can
+lose such positions at any time.
 
-Por isso, vale a pena, em qualquer situação, oferecer o melhor de si a todos,
+Therefore, it is worth, in any situation, offer the best of you all,
 indiscriminadamente.
 
-O homem humilde é o mesmo em todas as ocasiões. Se está em situação
-desfavorável, conserva-se tranquilo e não se sente inferiorizado, pois conhece
-suas potencialidades.
+The humble man is the same on every occasion. If you are in a situation
+unfavorable, remains calm and does not feel inferiorized, because he knows
+their potential.
 
-Se vive em condições confortáveis, busca vivenciar a solidariedade, a alegria,
-o bom humor e a tolerância.
+If you live in comfortable conditions, you seek to experience solidarity, joy,
+good mood and tolerance.
 
-É assim que se constrói um futuro de alegria e realização.
+This is how a future of joy and fulfillment is built.
 
- 
+
 
 ## Source
 Redação do Momento Espírita.

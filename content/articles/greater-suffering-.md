@@ -19,66 +19,66 @@ topics:
 - child
 ---
 
-Conta-se que quando Inácio de Antioquia foi preso, foi levado a Roma e colocado
-em um subterrâneo, onde encontrou amigos de fé.
+It is said that when Ignatius of Antioch was arrested, he was taken to Rome and placed
+in an underground, where he met friends of faith.
 
-Ali ele se recordou de Jesus e, por várias horas, falou-lhes a respeito das
-bem-aventuranças do reino de Deus.
+There he remembered Jesus and, for several hours, spoke to them about the
+beatitudes of the kingdom of God.
 
-Uma semana depois, milhares de espectadores lotaram o circo e a arena se encheu
-de feras vindas de várias partes do mundo.
+A week later, thousands of spectators crowded the circus and the arena filled up
+of beasts coming from various parts of the world.
 
-Elas não tinham sido alimentadas por uma semana. Para lhes aguçar o paladar,
-pedaços de carne ensanguentados lhes foram atirados.
+They hadn't been fed for a week. To sharpen their taste buds,
+bloody pieces of flesh were thrown at them.
 
-Naquela arena, os cristãos foram lançados e os animais, de forma rápida,
-despedaçaram os corpos frágeis de anciãos, homens, mulheres e crianças, que não
-se intimidavam diante da morte.
+In that arena, Christians were cast and the animals quickly
+shattered the fragile bodies of elders, men, women and children, who did not
+intimidated themselves in the face of death.
 
-Contudo, de uma forma estranha, Inácio, que se encontrava entre eles, não foi
-tocado. Esperou que uma patada no tórax lhe despedaçasse os ossos e os
-músculos. Entretanto, nenhuma fera lhe arrebentou o corpo.
+However, in a strange way, Ignatius, who was among them, was not
+Touched. He waited for a paw in his chest to tear his bones apart and the
+Muscles. However, no beast broke his body.
 
-Vendo que os cadáveres dos seus companheiros já estavam sendo rejeitados pelas
-feras saciadas, ele se ajoelhou na arena ensanguentada e orou a Jesus: Por quê?
-Por que fui poupado? Por que não tive a honra de morrer?
+Seeing that the corpses of his companions were already being rejected by the
+sated beasts, he knelt in the bloodied arena and prayed to Jesus: Why?
+Why was I spared? Why didn't I have the honor of dying?
 
-Então, um ser espiritual se apresentou à visão psíquica e lhe respondeu:
-Inácio, morrer é muito fácil. Perder o corpo numa só vez é um testemunho
-pequeno para ti. Tu, que amas tanto Jesus, mereces algo mais penoso. Tu
-viverás. Viverás entre pessoas que não te compreendem, que desconfiarão de ti.
+Then a spiritual being presented himself to psychic vision and answered him:
+Ignatius, dying is very easy. Losing the body at once is a testimony
+small for you. You, who love Jesus so much, deserve something more painful. You
+Live. You will live among people who don't understand you, who will be suspicious of you.
 
-Estar firme no ideal, Inácio, no momento das dificuldades, este é o sacrifício
-maior. O Mestre deseja que vivas, para que a Sua mensagem saia da tua boca e
-experimentes a perseguição continuada, sem desanimar. A morte na arena é uma
-morte muito rápida para os que são bons e fiéis.
+Being firm in the ideal, Ignatius, at the time of difficulties, this is the sacrifice
+Greater. The Master wishes you to live, that His message will come out of your mouth and
+experience continued persecution without discouragement. Death in the arena is a
+death very quickly for those who are good and faithful.
 
-Inácio teve sua vida poupada. Os cristãos supuseram que ele houvesse negado o
-Cristo e prestado sacrifício aos deuses de Roma, para se salvar.
+Ignatius had his life spared. Christians assumed that he had denied the
+Christ and sacrifice to the gods of Rome to save himself.
 
-A calúnia, a maledicência e a intriga semearam na comunidade cristã toda sorte
-de desconfianças.
+Slander, malevolence and intrigue sowed in the Christian community all sorts
+of mistrust.
 
-Ele jamais se defendeu, porque quem ama Jesus não tem tempo a perder com
-defesas improdutivas.
+He has never defended himself, because those who love Jesus have no time to waste with
+unproductive defenses.
 
-Jamais se justificou, porque ele deveria prestar contas ao seu rei, Jesus, e
-não aos seus pares, súditos como ele.
+He never justified himself, because he should be accountable to his king, Jesus, and
+not to his peers, subjects like him.
 
-Não disse uma palavra. Os anos demonstraram a sua grandeza. Ele passaria a ser
-o modelo do cristão verdadeiro, o modelo daquele servidor primitivo de Jesus,
-elevado à categoria de bem-aventurado, por seu testemunho de amor.
+I didn't say a word. The years have shown their greatness. He would become
+the model of the true Christian, the model of that primitive servant of Jesus,
+elevated to the category of blessed, by his witness of love.
 
                                    *  *  * 
 
-Se servimos a Jesus, não nos perturbemos com as querelas que nos circundam as
-ações.
+If we serve Jesus, let us not be disturbed by the quarrels that surround us with the
+Actions.
 
-Atendamos sempre com amor. Sirvamos sem cansaço. Trabalhemos e, como o Apóstolo
-de Antioquia, demos conta dos nossos atos a Jesus, nosso Mestre e Senhor.
+We always answer with love. We served without tiredness. Let us work and, as the Apostle
+of Antioch, we have given account of our acts to Jesus, our Master and Lord.
 
-Vivamos cada dia no bem, aplicando a caridade plena que é benevolência para com
-todos, indulgência para as imperfeições dos outros e perdão das ofensas.
+We live every day in good, applying full charity which is benevolence towards
+all, indulgence for the imperfections of others and forgiveness of offenses.
 
 
 ## Source

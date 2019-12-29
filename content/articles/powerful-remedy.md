@@ -15,87 +15,87 @@ topics:
 - family
 ---
 
-> "A fé é um remédio poderoso."
+> "Faith is a powerful remedy."
 
-Esse é o título de um artigo publicado na revista seleções de março de 2000,
-escrito por Phyllis Mcintosh.
+This is the title of an article published in the March 2000 selections magazine,
+written by Phyllis Mcintosh.
 
-A constatação de que a fé é um poderoso remédio, surgiu depois de vários
-estudos feitos com pessoas de várias faixas etárias e diferentes crenças
-religiosas.
+The realization that faith is a powerful remedy, arose after several
+studies done with people of various age groups and different beliefs
+Religious.
 
-Os especialistas não estudaram somente pessoas enfermas. Observaram também
-pessoas saudáveis e encontraram uma explicação possível para a ausência de
-doenças: a fé.
+Experts have not only studied sick people. They also observed
+healthy people and found a possible explanation for the absence of
+diseases: faith.
 
-Mais de 30 estudos detectaram uma ligação entre o compromisso espiritual ou
-religioso e uma vida mais longa, ou seja, quem se dedica aos valores nobres,
-vive mais.
+More than 30 studies have detected a link between spiritual commitment or
+religious and a longer life, that is, those who dedicate themselves to noble values,
+lives more.
 
-Uma pesquisa com 5.286 habitantes da Califórnia constatou que a taxa de
-mortalidade entre as pessoas que freqüentavam um templo religioso era menor.
+A survey of 5,286 California residents found that the rate of
+mortality among people attending a religious temple was lower.
 
-Pessoas religiosas parecem ter menos tendência a depressão, suicídio,
-alcoolismo e outros vícios, segundo pesquisas.
+Religious people seem to have less tendency to depression, suicide,
+alcoholism and other addictions, according to research.
 
-A fé gera a esperança e um tipo de controle que combate o estresse.
+Faith generates hope and a kind of control that fights stress.
 
-Por essa razão, as pessoas que têm fé enfrentam melhor as doenças traumáticas,
-o sofrimento e a perda.
+For this reason, people who have faith face traumatic diseases better,
+suffering and loss.
 
-Estudos constataram, ainda, que a oração influencia o crescimento de bactérias
-e a cicatrização de feridas em camundongos.
+Studies have also found that prayer influences the growth of bacteria
+and wound healing in mice.
 
-Em uma pesquisa com 269 médicos, no encontro de 1996 da academia americana de
-médicos de família, 99% disseram acreditar que a fé religiosa pode contribuir
-para a cura.
+In a survey of 269 physicians at the 1996 meeting of the American Academy of
+family doctors, 99% said they believe religious faith can contribute
+for healing.
 
-Quando interrogados sobre suas experiências pessoais, 63% dos médicos afirmaram
-que a intervenção divina melhorou suas próprias condições de saúde.
+When asked about their personal experiences, 63% of physicians said
+divine intervention has improved its own health conditions.
 
-Pesquisas realizadas pela revista Time/CNN e pela USA-Weekend demonstraram que
-cerca de 80% dos norte-americanos acreditam que a fé espiritual ou as orações
-são capazes de ajudar as pessoas a se recuperar de doenças ou ferimentos.
+Research conducted by Time/CNN magazine and USA-Weekend showed that
+about 80% of Americans believe that spiritual faith or prayers
+are able to help people recover from illness or injury.
 
-Além disso, mais de 60% acham que os médicos devem conversar com os pacientes
-sobre fé e até mesmo orar com aqueles que pedirem.
+In addition, more than 60% think doctors should talk to patients
+about faith and even pray with those who ask.
 
-Talvez essa necessidade de unir a religião à medicina seja, em parte, uma
-reação a um sistema de saúde cada vez mais apressado e impessoal.
+Perhaps this need to unite religion to medicine is, in part, a
+reaction to an increasingly hasty and impersonal health system.
 
-Diz o Dr. Larry Dossey, autor do livro "Rezar é um santo remédio": que na
-medicina, o pêndulo oscilou tanto para o lado físico que quase excluiu o
-elemento espiritual.
+Says Dr. Larry Dossey, author of the book "Praying is a holy remedy": that in
+medicine, the pendulum swung so much to the physical side that almost excluded the
+spiritual element.
 
-Os pacientes e muitos médicos não concordam com isso e o pêndulo começa a
-oscilar no sentido contrário.
+Patients and many doctors do not agree with this and the pendulum begins to
+oscillate in the opposite direction.
 
-Todas essas considerações feitas por médicos e especialistas dos estados
-unidos, vêm comprovar o que Jesus já ensinava há quase dois milênios, quando
-promovia alguma cura e dizia: "a tua fé te curou".
+All these considerations made by physicians and experts from the states
+united, come to prove what Jesus had taught for almost two millennia, when
+promoted some healing and said, "Your faith healed you."
 
-De um modo geral, o ser humano desconhece as potencialidades que traz na
-intimidade, em germem.
+In general, the human being is unaware of the potential it brings in the
+intimacy, in germem.
 
-Jesus falou que a fé é capaz de remover montanhas. E, figuradamente, estava se
-referindo às dificuldades e obstáculos que as criaturas enfrentam em sua
-existência terrena.
+Jesus said that faith is capable of removing mountains. And figuratively, it was
+referring to the difficulties and obstacles that creatures face in their
+earthly existence.
 
-Quem tem fé consegue remover as montanhas das enfermidades ou suportá-las com
-coragem e resignação.
+Those who have faith can remove the mountains from illnessor bear them with
+courage and resignation.
 
-A pessoa que tem fé remove os obstáculos mais ameaçadores, porque a sua
-confiança em Deus a faz forte o bastante para agir com coragem e a certeza de
-que triunfará.
+The person who has faith removes the most threatening obstacles, because his
+trust in God makes her strong enough to act with courage and the certainty of
+that will triumph.
 
                                       ***
 
-Se todos os homens se achassem convencidos da força que em si trazem, e se
-quisessem pôr a vontade a serviço dessa força, seriam capazes de realizar tudo
-o que, até hoje, eles chamaram prodígios e que, no entanto, não passa de um
-desenvolvimento das faculdades humanas.
+If all men found themselves convinced of the strength they bring in themselves, and if
+wanted to put the will at the service of this force, they would be able to accomplish everything
+what, to this day, they called wonders and that, however, is nothing more than a
+development of human faculties.
 
- 
+
 
 ## Source
 Fonte:  

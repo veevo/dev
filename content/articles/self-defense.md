@@ -17,80 +17,80 @@ topics:
 - child
 ---
 
-Defesa pessoal
+Personal defense
 
-É comum, na atualidade, face ao aumento da violência reinante, que as criaturas
-cogitem portar armas ou tê-las em casa, para uma eventualidade.
+It is common, at present, in the face of the increase in the reigning violence, that creatures
+consider carrying weapons or having them at home for eventuality.
 
-Não se apercebem tais pessoas da inocuidade do fato. Mais do que isso, quando
-alguém passa a portar arma, está se condicionando, predispondo-se a utilizá-la.
-E nunca mostrou a violência tenha sanado a violência.
+You don't realize such people of the safety of the fact. More than that, when
+someone comes to carry a gun, is conditioning itself, predisposing to use it.
+And it never showed violence that he had snamised violence.
 
-Armas em casa têm trazido até agora maior soma de dores e transtornos.
+Guns at home have so far brought greater sum of pain and inconvenience.
 
-São inúmeros os casos de crianças que, curiosas, acionam armas dos pais ou
-irmãos maiores, ferindo-se ou ferindo a outros. Às vezes, mortalmente.
+There are numerous cases of children who, curious, trigger their parents' weapons or
+brothers, injuring or injuring others. Sometimes mortally.
 
-Vários são também os casos de pais que acionaram gatilhos contra os próprios
-filhos, retornando ao lar altas horas da noite, pensando se tratar de
-assaltantes.
+There are also cases of parents who triggered triggers against their own
+children, returning home late at night, thinking it is about
+Robbers.
 
-Ao abordar a questão, Allan Kardec recebeu dos Espíritos a resposta de que só a
-necessidade pode desculpar o assassinato.
+In addressing the issue, Allan Kardec received from the Spirits the answer that only the
+need can excuse the murder.
 
-Se pudermos, dizem, preservar a nossa vida sem atentar contra a do agressor, é
-o que devemos fazer.
+If we can, they say, preserve our lives without paying attention to that of the aggressor, it is
+what we should do.
 
-Ora, quando alguém alimenta a ideia de ferir a outrem, se agredido, desce ao
-nível do criminoso. Além do que, sintonizando com faixas de agressão, passa a
-ser alvo muito fácil de agressores de toda sorte.
+Now, when someone feeds the idea of hurting others, if assaulted, descends to the
+criminal level. In addition, by tuning in with tracks of aggression, it begins to
+be very easy target of aggressors of all sorts.
 
-Os adeptos do bateu, levou dizem que agem com agressividade porque já
-aguardavam a agressão do outro.
+The fans of the hit, led say they act aggressively because already
+they were waiting for each other's aggression.
 
-Explicam que preferem desferir o primeiro golpe, antes de que o outro o faça.
+They explain that they prefer to take the first blow before the other does.
 
-O que ocorre é que a violência sempre gera maior carga de violência.
+What happens is that violence always generates a greater burden of violence.
 
-Os outros agridem porque também agrediríamos se nossa fosse a chance. Magoam
-porque faríamos o mesmo se tivéssemos a oportunidade.
+The others are going to get along because we'd also assault if ours were the chance. Hurt
+because we'd do the same if we had the chance.
 
-É importante que não sejamos nós o violador, o agente do mal.
+It's important that we're not the rapist, the evil agent.
 
-Divaldo Franco nos narra uma experiência pessoal. O assaltante lhe coloca uma
-faca ao pescoço, em plena rua, e tenta agredi-lo.
+Divaldo Franco tells us a personal experience. The assailant puts you in a
+knife to the neck, in the middle of the street, and tries to assault him.
 
-Ante a calma que busca aparentar, explicando nada ter para dar, nem o relógio,
-que esquecera sobre a mesa, em casa, o criminoso cede e é convencido a ir até o
-apartamento onde se hospedava Divaldo. De pernas bambas, dado o susto que
-tomara, Divaldo é amparado pelo quase assaltante.
+Before the calm that seeks to appear, explaining nothing to have to give, nor the clock,
+who had forgotten on the table, at home, the criminal gives in and is convinced to go to the
+apartment where Divaldo was staying. With tight legs, given the fright that
+hopefully, Divaldo is supported by the almost assailant.
 
-Um longo papo, um café, um telefonema que aciona companheiros espíritas, um
-confrade que se oferece para empregar o rapaz em desespero e eis um amigo
-conquistado. Um bandido a menos nas ruas.
+A long chat, a café, a phone call that triggers spiritist companions, a
+confrere who offers to employ the boy in despair and behold a friend
+Conquered. One less bandit on the streets.
 
-A melhor técnica, portanto, de defesa pessoal é a confiança em Deus, a vida
-nobre, o desarmamento íntimo.
+The best technique, therefore, of personal defense is trust in God, life
+noble, intimate disarmament.
 
-Revidar mal por mal é tornar-se igual ao mau.
+To fight back badly for evil is to become the same as bad.
 
-Desarmar-se interiormente - eis uma grande decisão. Afinal, vivemos prevenidos
-uns contra os outros, sempre com a palavra ferina e o gesto de revide.
+Disarming yourself inwardly - here's a big decision. After all, we live forewarned
+against each other, always with the word ferina and the gesture of vevide.
 
-  Gandhi e Jesus foram grandes defensores do não revide, da não violência, num
-mundo de homens violentos em que viveram.
+  Gandhi and Jesus were great advocates of non-violence, in a
+world of violent men in which they lived.
 
-Deixaram-se imolar em nome desse ideal.
+They let themselves be immolar in the name of this ideal.
 
                                    *   *   *
 
-Não esqueça de que o agressor está perturbado e uma reação violenta, por parte
-da vítima, somente agravará a situação, que poderá acabar em tragédia.
+Don't forget that the aggressor is distraught and a violent reaction, on the part
+of the victim, will only aggravate the situation, which could end in tragedy.
 
-A tranquilidade do agredido infunde paz no violento, que se desarma do ódio e
-se dá conta da sua hostilidade sem justificativa.
+The tranquility of the assaulted instills peace in the violent, who disarms himself from hatred and
+realizes his hostility without justification.
 
- 
+
 ## Source
 Redação do Momento Espírita, com base no cap. 17, do livro Pelos
 caminhos de Jesus, pelo Espírito Amélia Rodrigues, psicografia de Divaldo

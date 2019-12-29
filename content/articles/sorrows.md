@@ -17,80 +17,80 @@ topics:
 ---
 
 
-A vida nos oferece, com frequência, oportunidades de burilamento das nossas
-emoções.
+Life often offers us opportunities to circumvent our
+Emotions.
 
-Para tanto, coloca em nosso caminho excelentes professores.
+To do so, it puts in our way excellent teachers.
 
-Alguns são capazes de oferecer seus valores pelo exemplo. São aqueles mais
-maduros, que nos ensinam através do seu comportamento.
+Some are able to offer their values by example. They are the most
+who teach us through their behavior.
 
-Esses exemplificam o exercício da paciência, da compreensão, sem necessidade de
-discursos ou conceitos. Apenas vivenciam, de forma simples e descontraída.
+These exemplify the exercise of patience, understanding, without the need to
+speeches or concepts. They only experience, in a simple and relaxed way.
 
-Entretanto, há os que nos ensinam de forma diversa. Como ainda trazem
-limitações emocionais semelhantes às nossas, o que apresentam são embates, em
-que se misturam incompreensões mútuas, discussões e intolerância sobre
-determinados pontos de vista.
+However, there are those who teach us differently. How they still bring
+emotional limitations similar to ours, what they present are clashes, in
+that mix mutual misunderstandings, discussions and intolerance about
+certain views.
 
-Não raro, o resultado nos machuca, fere. Sentimo-nos violentados, enquanto, ao
-mesmo tempo, também reagimos, ferindo.
+Not often, the result hurts us, hurts us. We feel raped, while at the
+at the same time, we also react, hurting.
 
-Como ainda nos falta a conquista da compreensão e o estofo emocional da
-tolerância, conflitos surgem, ganhando panoramas de complexa envergadura, donde
-nascem as mágoas.
+As we still lack the conquest of understanding and the emotional upholstery of
+tolerance, conflicts arise, gaining panoramas of complex wingspan, from which
+sorrows are born.
 
-Assim é que, muitas vezes, sentimentos positivos, alegres, amorosos, ainda não
-enraizados em nós, acabam substituídos pelo ressentimento.
+So often positive, cheerful, loving feelings have not yet been
+rooted in us, end up replaced by resentment.
 
-Porém, todo conflito oferece oportunidade de autoconhecimento e de aprendizado.
+However, every conflict offers an opportunity for self-knowledge and learning.
 
-Se nos encontramos na situação do magoado, cabe-nos estender a lição do perdão.
+If we find ourselves in the situation of the hurt, it is up to us to extend the lesson of forgiveness.
 
-Se o outro nos magoou, é porque ainda tem suas limitações, suas dificuldades
-internas.
+If the other hurt us, it is because it still has its limitations, its difficulties
+Internal.
 
-Devemos buscar transformar lentamente a mágoa em compreensão, o que nos
-permitirá cicatrizar a ferida emocional que carregamos.
+We must seek to slowly transform sorrow into understanding, which
+will allow us to heal the emotional wound we carry.
 
-Para isso, analisemos com profundidade as verdadeiras causas da nossa mágoa,
-pois a dificuldade em perdoar reside em nosso próprio íntimo.
+To do this, let us thoroughly analyze the true causes of our sorrow,
+for the difficulty in forgiving lies in our own hearts.
 
-Identificada a causa, esforcemo-nos por adquirir tolerância, compreensão e
-capacidade de perdão.
+Once the cause is identified, let us strive to acquire tolerance, understanding and
+capacity for forgiveness.
 
-No entanto, se fomos o causador de tal sentimento em outrem, cabe-nos a busca
-pelas desculpas, pelo perdão e ressarcimento.
+However, if we were the cause of such feeling in others, it is up to us to seek
+for apologies, forgiveness and compensation.
 
-Primeiramente, necessitamos identificar o equívoco em nós, e acionar o
-autoperdão, pois para conseguirmos perdoar o outro é necessário nos sentirmos
-em paz, o que o autoperdão nos proporcionará.
+First, we need to identify the misunderstanding in us, and trigger the
+self-forgiveness, for in order to forgive the other it is necessary to feel
+peace, which self-forgiveness will provide us.
 
-Sem acomodação com a situação ou a busca de razões que nos justifiquem, mas
-compreendendo que somos passíveis de erro.
+No accommodation with the situation or the search for reasons that justify us, but
+understanding that we are errorable.
 
-O passo seguinte é a busca do perdão do outro, reconhecendo nosso equívoco,
-manifestando sincero arrependimento.
+The next step is the search for the forgiveness of the other, recognizing our misunderstanding,
+expressing sincere repentance.
 
-Se ele não nos deseja perdoar, é um direito dele. De nossa parte, deixemos a
-porta aberta à reconciliação, enquanto seguimos em frente, sem carregar
-complexos de culpa, nem nos sentindo vítimas.
+If he doesn't want to forgive us, it's his right. For our part, let's leave the
+door open to reconciliation, as we move forward, without carrying
+complex fault, nor feeling victims.
 
-Nessas horas, o melhor caminho é investir esforços para modificar o próprio
-comportamento, alterando nossas atitudes.
+In these hours, the best way is to invest efforts to modify the
+behavior, altering our attitudes.
 
-Isso é aprender com os erros. Reconhecer nossos enganos, nossos próprios
-limites para, a partir de então, conquistar virtudes e ampliar nossas
-fronteiras emocionais.
+That's learning from mistakes. Recognize our mistakes, our own
+limits to, from then on, conquer virtues and expand our
+emotional boundaries.
 
-Assim, de uma forma ou de outra, a lição é para a vida, para o crescimento
-pessoal, para o engrandecimento do Espírito.
+Thus, one way or another, the lesson is for life, for growth
+for the aggrandizement of the Spirit.
 
-Magoando, buscar o perdão. Magoado, oferecer a compreensão, sem albergar na
-alma qualquer sentimento de ordem inferior.
+Hurting, seeking forgiveness. Hurt, offer understanding, without harboring in the
+soul any feeling of inferior order.
 
-Pensemos nisso e procuremos agir no sentido de não guardarmos o que nos possa
-fazer mal ou albergarmos na alma sentimentos menos nobres.
+Let us think about it and try to act to keep what can us
+do evil or harbor in the soul less noble feelings.
 
 ## Source
 Redação do Momento Espírita.

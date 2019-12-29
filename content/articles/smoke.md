@@ -10,77 +10,78 @@ topics:
 - tolerancia
 ---
 
-As pesquisas vêm alertando, de algum tempo, acerca do número crescente de
-fumantes. E o mais delicado: entre adolescentes e jovens.
+Research has been warning for some time about the increasing number of
+Smokers. And the most delicate: between teenagers and young people.
 
-O ato de fumar implica a autoexposição deliberada e repetida que leva à
-inalação de uma mistura de ar e fumaça. Mistura que contém mais de quatro mil
-componentes químicos diferentes. Desses, pelo menos trinta são reconhecidamente
-lesivos para a saúde.
+Smoking involves deliberate and repeated self-exposure that leads to
+inhalation of a mixture of air and smoke. Mixture containing more than 4,000
+different chemical components. Of these, at least thirty are admittedly
+harmful to health.
 
-Essa moderna forma de escravidão, socialmente aceita como costume distinto,
-inverte a escala de valores. Considera o tóxico como ingrediente principal da
-vida.
+This modern form of slavery, socially accepted as a distinct custom,
+reverses the scale of values. Considers toxic as the main ingredient of
+Life.
 
-O hábito de fumar conduz à doença e a morte prematura. É um problema especial
-de saúde, e, em boa parte, é autoagressão.
+Smoking tends to lead to illness and premature death. It's a special problem
+health, and, for the most part, is self-aggression.
 
-No entanto, a maioria dos fumantes adere ao vício antes de ter capacidade legal
-de decisão. São estimulados pela imitação, o acesso fácil e a tolerância
+However, most smokers adhere to addiction before having legal capacity
+decision. They are stimulated by imitation, easy access and tolerance
 social.
 
-Não são esclarecidos sobre os problemas relacionados a esse hábito.
+They are not informed about the problems related to this habit.
 
-Os fumantes têm muitas formas de expressar o direito a autodestruir-se, segundo
-seu agrado. Recentemente vimos estampas de uma camiseta a expressão: O fumo
-mata! E daí? Eu não tenho pressa mesmo.
+Smokers have many ways of expressing the right to self-destruct, according to
+your liking. We recently saw prints of a T-shirt expression: The smoke
+Kills! So what? I'm not in a hurry anyway.
 
-A fumaça do cigarro ajuda a diminuir a agucidade do processo cerebral. Complica
-e dificulta as manobras de condução de veículos. Favorece a produção de
-acidentes de trânsito.
+Cigarette smoke helps to decrease the sharpening of the brain process. Complicates
+and hinders vehicle driving maneuvers. It favors the production of
+traffic accidents.
 
-Às vezes, a brasa é responsável por incêndios florestais e pelo desaparecimento
-de fábricas, que são fontes de trabalho comunitário.
+Sometimes the ember is responsible for forest fires and the disappearance of
+which are sources of community work.
 
-O consumo do tabaco é uma das causas mais importantes de doença e morte, na
-sociedade contemporânea.
+Tobacco consumption is one of the most important causes of disease and death, in
+contemporary society.
 
-Reduz a vida média de um fumante em cinco a oito anos.
+Reduces a smoker's average life by five to eight years.
 
-O câncer de faringe e de esôfago é seis a dez vezes mais frequente em fumantes.
+Pharynx and esophageal cancer is six to ten times more frequent in smokers.
 
-Os fumantes são mais suscetíveis às infecções respiratórias, aos problemas
-alérgicos.
+Smokers are more susceptible to respiratory infections, problems
+Allergic.
 
-O tabaco é comprovadamente tóxico. Produz dependência. Não traz benefícios para
-a saúde. É fator de risco importante, na reprodução humana. O feto, esse
-pequeno e involuntário fumante passivo, pode ser morto pelo cigarro.
+Tobacco is proven toxic. Produces dependency. It does not bring benefits to
+health. It is an important risk factor in human reproduction. The fetus, this
+small and involuntary passive smoker, can be killed by cigarette.
 
-O risco de morte fetal ou neonatal aumenta, na exata medida em que a gestante
-utiliza o fumo. O alto consumo de cigarros na gravidez tem sido associado a
-abortos espontâneos, partos prematuros. Recém-nascidos de menor peso.
-Diminuição de quantidade e qualidade do leite materno.
+The risk of fetal or neonatal death increases, to the exact extent that pregnant women
+uses smoke. The high consumption of cigarettes in pregnancy has been associated with
+miscarriages, premature births. Lower births.
+Decrease in the quantity and quality of breast milk.
 
-No mundo, ainda persistem imagens confusas, pré-fabricadas por aqueles que
-desejam vender.
+[WARNING] Connection timed out. Retrying IPv4 connection.
+In the world, still persist confusing images, prefabricated by those who
+wish to sell.
 
-São destinadas a defender o uso do fumo como bandeira de igualdade e
-libertação, em especial entre as mulheres e adolescentes.
+They are intended to defend the use of smoking as a flag of equality and
+release, especially among women and adolescents.
 
-Não nos enganemos. O tabagismo é, na verdade, submissão, escravidão e doença.
+Let's not be fooled. Smoking is actually submission, slavery and disease.
 
-Você sabia?
+Did you know that?
 
-...que o fumante pode ser considerado um suicida indireto? Desde que joga fora
-horas e até dias preciosos de sua vida, agredindo a máquina física, virá a
-morrer antes do previsto.
+... that smokers can be considered an indirect suicide bomber? Since playing away
+precious hours and even days of his life, assaulting the physical machine, will come to
+die ahead of schedule.
 
-E que os filhos de fumantes tendem a apresentar menor crescimento, menos peso –
-altura, menor rendimento escolar e maiores possibilidades de terem doenças
-pulmonares?
+And that the children of smokers tend to have lower growth, less weight –
+height, lower school performance and greater chances of having diseases
+Pulmonary?
 
-E que os filhos de mulheres fumantes pesam, ao nascer, até quatrocentos e vinte
-gramas menos que os filhos de não fumantes? 
+And that the children of smoking women weigh, at birth, up to four hundred and twenty
+grams less than the children of nonsmokers? 
 
 ## Source
 Redação do Momento Espírita.

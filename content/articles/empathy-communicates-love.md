@@ -10,78 +10,78 @@ topics:
 - mother
 ---
 
-Todos nós, pais, amamos nossos filhos e queremos o melhor do mundo para eles.
+All of us parents love our children and want the best in the world for them.
 
-Temos essa certeza dentro de nós e só Deus sabe o que somos capazes de fazer,
-de passar, de suportar, por amor aos nossos pequenos.
+We have that certainty within us and God knows what we are capable of doing,
+to pass, to bear, out of love for our little ones.
 
-Mas será que estamos comunicando esse amor de forma correta? Ou melhor: será
-que nossos filhos sentem que os amamos tanto assim?
+But are we communicating this love correctly? Or rather: it will be
+that our children feel we love them so much?
 
-Ah, mas eu digo sempre!
+Oh, but I always say it!
 
-Entretanto, será essa forma, puramente verbal, suficiente e a única existente?
+However, is this form purely verbal, sufficient and the only one that exists?
 
-Vamos descobrir que não, e mais, que podemos amar nossos filhos, sim, mas que
-podemos não estar comunicando esse sentir de forma adequada a eles.
+Let's find that no, and more, that we can love our children, yes, but that
+we may not be communicating this feeling appropriately to them.
 
-São muitas as formas de demonstrá-lo, e uma delas, de suprema importância, é a
-empatia. A empatia comunica o amor.
+There are many ways of demonstrating it, and one of them, of supreme importance, is the
+Empathy. Empathy communicates love.
 
-A empatia estimula a proximidade terna, a intimidade e elimina a solidão.
+Empathy stimulates tender proximity, intimacy and eliminates loneliness.
 
-Assim como a empatia aproxima seu filho de você, também aproxima você dele.
-Quando nos colocamos no lugar de outra pessoa, quando realmente conseguimos
-captar o seu ponto de vista, repentinamente acontece algo: o comportamento
-dessa pessoa passa a ter sentido.
+Just as empathy brings your son closer to you, it brings you closer to him, too.
+When we put ourselves in someone else's shoes, when we really got it
+capture your point of view, suddenly something happens: the behavior
+of this person comes to make sense.
 
-Vejamos um exemplo simples, mas significativo:
+Let's look at a simple but meaningful example:
 
-Karen, uma menina de três anos, fica com medo do barulho supersônico de um
-avião e corre chorando para a mãe.
+Karen, a three-year-old girl, gets afraid of the supersonic noise of a
+plane and runs crying to his mother.
 
-Na reação típica, a mãe diz: Ora, minha filha, é apenas um barulho supersônico
-feito por um avião. Você não precisa ter medo.
+In the typical reaction, the mother says: Well, my daughter, it's just a supersonic noise
+made by an airplane. You don't have to be afraid.
 
-Essa tentativa de tranquilizar a criança diz, em essência: Não tenha esse
-sentimento de medo. Não há necessidade de ter medo do barulho de aviões.
+This attempt to reassure the child says, in essence: Do not have this
+feeling of fear. There's no need to be afraid of the noise of airplanes.
 
-Evidentemente, a mãe tenta acabar com o medo por meio de uma explicação lógica.
-Mas os barulhos muito fortes são realmente assustadores para crianças pequenas,
-qualquer que seja a sua causa.
+Evidently, the mother tries to end fear through a logical explanation.
+But the very loud noises are really scary for young children,
+whatever your cause is.
 
-A lógica acaba com a empatia, nesse caso. E Karen não se sente compreendida. As
-explicações são mais úteis depois de se ter lidado com os sentimentos.
+Logic ends empathy in this case. And Karen doesn't feel understood. The
+explanations are more useful after dealing with feelings.
 
-No momento dos sentimentos fortes, a primeira necessidade é de compreensão. As
-explicações podem ficar para depois.
+At the moment of strong feelings, the first need is understanding. The
+explanations can stay for later.
 
-Na reação empática, temos: a mãe de Karen abraça a filha e fala: Meu Deus, foi
-um barulhão. É terrível!
+In the empathic reaction, we have: Karen's mother hugs her daughter and says, My God, was
+a noise. It's terrible!
 
-Nesse breve momento, a mãe de Karen entra no mundo atemorizado da filha e
-mostra que a compreende.
+At this brief moment, Karen's mother enters the fearful world of her daughter and
+shows that you understand it.
 
-A resposta empática diz a Karen: Mamãe está comigo. Ela sabe como me sinto.
+The empathic answer tells Karen: Mom is with me. She knows how I feel.
 
-Quando a criança sabe que seu medo é compreendido, ela é mais capaz de ouvir a
-razão lógica para a causa do medo.
+When the child knows that her fear is understood, she is more able to hear the
+logical reason for the cause of fear.
 
-A empatia é ouvir com o coração e não com a cabeça. Se a resposta empática é
-dita em tom frio, neutro, a criança não se sente compreendida.
+Empathy is listening with the heart and not with your head. If the empathic response is
+spoken in cold, neutral tone, the child does not feel understood.
 
-Possivelmente, já devemos ter relatado uma experiência a outra pessoa, que nos
-respondeu assim: É... deve ter sido difícil para você...
+Possibly, we must have already reported an experience to another person, who
+answered like this: It is... must have been hard for you...
 
-Nós sabemos quando esse dizer é verdadeiro ou apenas pro forma. Quando ele é
-verdadeiro, nós nos sentimos compreendidos e não há nada melhor do que se
-sentir assim, não é?
+We know when that saying is true or just for form. When he is
+true, we feel understood and there is nothing better than if
+feel that way, doesn't it?
 
-Precisamos, como pais, mergulhar com mais frequência, no mundo dos sentimentos
-de nossos filhos. Só assim eles se sentirão amados. Só assim eles irão se
-sentir amparados.
+We need, as parents, to dive more often into the world of feelings
+of our children. Only then will they feel loved. Only then will they go if
+feeling overwhelmed.
 
-Isso é ser companheiro de uma vida! Isso é amar! a empatia comunica o amor.
+That's being a life-long companion! That's loving! empathy communicates love.
 
 
 ## Source

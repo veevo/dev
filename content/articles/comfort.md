@@ -15,80 +15,80 @@ topics:
 - responsibility
 ---
 
-Nos dias atuais, a ciência progride vertiginosamente no planeta.
+Nowadays, science progresses giddyly on the planet.
 
-No entanto, à medida que se suprimem os sofrimentos do corpo, multiplicam-se as
-aflições da alma.
+However, as the body's sufferings are suppressed, the
+afflictions of the soul.
 
-Nos países com padrão social mais elevado, impressiona o crescente número de
-suicídios.
+In countries with a higher social standard, the increasing number of
+Suicides.
 
-Os jornais estão cheios de notícias maravilhosas quanto ao progresso material.
+The newspapers are full of wonderful news about material progress.
 
-Segredos sublimes da natureza são surpreendidos nos domínios do mar, da terra e
-do ar.
+Sublime secrets of nature are surprised in the domains of the sea, of the earth and
+from the air.
 
-Contudo, a estatística dos crimes humanos segue espantosa.
+However, the statistics of human crimes remain astonishing.
 
-São frequentes as notícias sobre tragédias conjugais, traições e abandonos.
+There are frequent news about marital tragedies, betrayals and abandonments.
 
-Parece haver muita sede de liberdade sem responsabilidade.
+There seems to be a lot of thirst for freedom without responsibility.
 
-As criaturas se permitem tristes inquietações sexuais, sem atinar quanto a
-possíveis limites.
+Creatures allow themselves sad sexual unrest, without atsing as to
+possible limits.
 
-Ao muito se facultarem, no entanto, não se tornam mais pacíficas e felizes.
+In much they are very much available, however, they no longer become peaceful and happy.
 
-Ao contrário, sôfregas e inquietas, passam a imagem de uma imensa carência.
+On the contrary, sofregas and restless, pass the image of an immense need.
 
-Nessa onda de loucuras, surgem novas e intrigantes enfermidades, físicas e
-psíquicas.
+In this wave of follies, new and intriguing illnesses arise, physical and
+Psychic.
 
-A rigor, o homem moderno não se mostra preparado para viver com conforto.
+Strictly speaking, modern man is not prepared to live in comfort.
 
-Ele a cada dia mais domina a paisagem exterior, mas não conhece a si mesmo.
+He increasingly dominates the outer landscape, but does not know himself.
 
-Quando são atendidas as necessidades do corpo, surgem imperiosas as carências
-da alma.
+When the needs of the body are met, the needs of the body are imperative
+of the soul.
 
-O conforto humano tende a aumentar naturalmente.
+Human comfort tends to increase naturally.
 
-Pouco a pouco, o homem disporá de mais tempo para si.
+Little by little, man will have more time for himself.
 
-O trabalho se tornará cada vez mais intelectualizado e eficiente.
+Work will become increasingly intellectualized and efficient.
 
-A democratização das informações também viabilizará o questionamento de antigas
-crenças e valores.
+The democratization of information will also make it possible to question old
+beliefs and values.
 
-O problema reside em identificar o que convém, ante tal quadro, a um tempo
-perigoso e promissor.
+The problem is to identify what is appropriate, in the face of such a framework, at a time
+dangerous and promising.
 
-Ressurge oportuna a reflexão de Paulo de Tarso, no sentido de que tudo nos é
-possível, mas nem tudo nos convém fazer.
+Paul de Tarsus's reflection resurfaces in the sense that everything is to us
+possible, but not everything is appropriate for us to do.
 
-Com horas livres e acesso à Internet, surge um mundo de possibilidades.
+With free hours and internet access, a world of possibilities emerges.
 
-O homem pode se permitir as maiores baixezas nesse ambiente virtual.
+Man can allow himself the greatest rascalities in this virtual environment.
 
-Pode se viciar em pornografia, participar de conversas de baixo calão e
-incentivar o ódio.
+You can get addicted to pornography, participate in low-slang conversations, and
+encourage hatred.
 
-Contudo, na conformidade do que decidir viver, terá consequências inevitáveis.
+However, in compliance with what you decide to live, it will have inevitable consequences.
 
-Caso se conecte com as faixas infelizes da vida, a cada dia mais infeliz será.
+If you connect with the unfortunate tracks of life, the most unfortunate day it will be.
 
-Assim, no pleno uso da liberdade pessoal, é o momento de decidir o que se
-viverá.
+Thus, in the full use of personal freedom, it is time to decide what
+Live.
 
-Não mais movido por convenções sociais, medo ou falta de opções.
+No longer moved by social conventions, fear or lack of options.
 
-Tudo é possível, mas convém fazer escolhas felizes e construtivas.
+Anything is possible, but it is appropriate to make happy and constructive choices.
 
-Instruir-se, voltar os olhos para o que de belo e puro há no mundo.
+Educate yourself, turn your eyes to what is beautiful and pure in the world.
 
-Cuidar para que as horas de folga sejam momentos de paz e aprimoramento.
+Taking care that hours off are moments of peace and improvement.
 
-Pense nisso.
+Think about it.
 
 
 ## Source

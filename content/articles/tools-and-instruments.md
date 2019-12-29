@@ -14,72 +14,72 @@ topics:
 - tolerancia
 ---
 
-Desde eras primitivas, os seres humanos aprendemos a desenvolver ferramentas e
-instrumentos para facilitar o trabalho e tornar nossa existência menos árdua.
+Since early ages, human beings have learned to develop tools and
+instruments to facilitate work and make our existence less arduous.
 
-Das primeiras lascas de pedra, utilizadas para cortar, desbastar e raspar, até
-os aparatos tecnológicos mais modernos, que agilizam atividades e operações,
-vimos empregando nossa inteligência no desenvolvimento e na criação de soluções
-para problemas e desafios.
+Of the first stone chips, used to cut, chop and scrape, until
+the most modern technological apparatus, which speed up activities and operations,
+we have been employing our intelligence in the development and creation of solutions
+problems and challenges.
 
-Porém, da mesma forma que criamos essas ferramentas para alavancar o progresso,
-uma parcela de nós, movidos por ganância, orgulho e egoísmo, nos servimos delas
-para nos impor sobre os demais, para humilhar, destruir, roubar.
+However, just as we create these tools to leverage progress,
+a portion of us, driven by greed, pride and selfishness, serve ourselves on them
+to impose us on others, to humiliate, destroy, steal.
 
-Criamos o machado para cortar troncos e abrir picadas na mata, possibilitando
-nos deslocarmos com mais desenvoltura.
+We created the axe to cut logs and open bites in the forest, enabling
+move more resourcefulness.
 
-No entanto, alguns o utilizamos para agredir e matar companheiros de jornada, a
-fim de lhes roubar os frutos do seu trabalho e esforço.
+However, some use it to assault and kill fellow workers, the
+in order to steal the fruits of their work and effort.
 
-Criamos a escrita. Com ela escrevemos leis, cânticos, livros e poemas
-maravilhosos. Outros a utilizamos para assinar sentenças de morte e registrar
-ofensas e injúrias.
+We created the writing. With it we write laws, songs, books and poems
+Wonderful. Others use it to sign death sentences and register
+offenses and injuries.
 
-Com o avião vencemos os ares e encurtamos distâncias. Contudo, quando nos
-voltamos para a guerra, vimos nele a ferramenta perfeita para lançar bombas
-sobre cidades e povoados, matando milhões de pessoas.
+With the plane we've won the air and shortened distances. However, when we
+we went back to war, we saw in it the perfect tool to drop bombs
+about cities and villages, killing millions of people.
 
-Desenvolvemos medicamentos para aliviar dores, curar e diminuir o sofrimento
-humano.
+We develop medicines to relieve pain, cure and decrease suffering
+Human.
 
-Homens maliciosos nos utilizamos de algumas dessas substâncias para criar
-mecanismos de fuga da realidade, produzindo-as em larga escala, auxiliando a
-viciar milhões de seres que se perderam no consumo indiscriminado de drogas.
+Malicious men use some of these substances to create
+mechanisms of escape from reality, producing them on a large scale, helping to
+millions of beings who have been lost in indiscriminate drug use.
 
-A invenção da roda e, posteriormente, do automóvel, facilitou o nosso
-deslocamento, também o transporte de cargas, impulsionando o progresso.
+The invention of the wheel and, later, of the automobile, facilitated our
+displacement, also the transport of loads, driving progress.
 
-Alguns de nós, inebriados pela velocidade, perdemos a vida em corridas e rachas
-sem sentido, movidos pelo prazer ilusório que ela proporciona.
+Some of us, intoxicated by speed, lost our lives in races and cracks
+senseless, driven by the illusory pleasure it provides.
 
-A internet foi criada para resguardar pesquisas e importantes documentos de
-eventual destruição. Com o tempo, foi aberta ao público para que pudesse ser
-utilizada na troca e armazenagem de dados importantes.
+The internet was created to safeguard searches and important
+possible destruction. Over time, it was open to the public so that it could be
+used in the exchange and storage of important data.
 
-Hoje, vários de nós a transformamos em repositório de inutilidades e coisas sem
-sentido, que ocupam milhões e milhões de páginas virtuais.
+Today, several of us have turned it into a repository of uselessness and things without
+that occupy millions and millions of virtual pages.
 
-As redes sociais possibilitaram aproximar pessoas que se encontram fisicamente
-distantes. Mas, as usamos para veicular notícias falsas, ódio e agressões,
-frutos da intolerância, preconceitos e fanatismo de todo tipo, afastando
-familiares e amigos.
+Social networks have made it possible to bring people together who are physically
+Distant. But we use them to convey fake news, hatred and aggression,
+fruits of intolerance, prejudices and fanaticism of all kinds, distancing
+family and friends.
 
-Outras tantas ferramentas e instrumentos estão à disposição da Humanidade para
-fomentar o progresso. De que forma as utilizamos depende do nível evolutivo dos
-que delas fazemos uso.
+So many other tools and instruments are available to humanity to
+foster progress. How we use them depends on the evolutionary level of
+that we make use of them.
 
-Que possamos estar atentos à forma como nos servimos do que temos, das
-oportunidades que recebemos para fazer o bem e espalharmos exemplos de amor ao
-Pai e ao próximo.
+May we be aware of the way we serve what we have, of the
+opportunities we receive to do good and spread examples of love for
+Father and next.
 
-Exatamente como nos foi ensinado há milhares de anos pelo Mestre Jesus.
+Just as we were taught thousands of years ago by Master Jesus.
 
-Pensemos de que maneira estamos nos servindo desses talentos que a Divindade
-nos permitiu criar, inventar, obter.
+Let us think in what way we are serving these talents that divinity
+allowed us to create, invent, obtain.
 
-E busquemos deles nos servir somente para o bem, para coisas grandiosas,
-próprias dos que fomos criados por um Deus de amor e paz.
+And let us seek from them to serve us only for good, for great things,
+of those created by a God of love and peace.
 
 ## Source
 Redação do Momento Espírita, com base em

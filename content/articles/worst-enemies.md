@@ -23,74 +23,74 @@ Jesus havia proferido o maravilhoso Sermão da Montanha há apenas um dia. As
 frases ecoavam no ar, e aqueles que O ouviram ainda vivenciavam as vibrações
 especiais daquele momento.
 
-Em Cafarnaum, um homem nobre, chamado Bartolomeu acercou-se de Jesus. As belas
-palavras proferidas significaram para ele um verdadeiro estatuto de conduta, e
-ele  buscou o Mestre com uma grande dúvida.
+In Capernaum, a noble man named Bartholomew became an siege of Jesus. The beautiful
+words uttered meant to him a true status of conduct, and
+he sought the Master with great doubt.
 
-Queria saber quais os piores adversários do ser humano. Perguntou quando se
-travaria a batalha contra esses inimigos e quais as armas a serem usadas.
+I wanted to know what the worst opponents of the human being. Asked when if
+break the battle against these enemies and which weapons to be used.
 
-Jesus, cheio de compaixão, respondeu: Eu te direi que esses inimigos se
-encontram  dentro de cada um, e ali trabalham pela infelicidade do ser.
+Jesus, full of compassion, replied, I will tell you that these enemies
+find within each one, and there they work for the misfortune of being.
 
-Todos os indivíduos apontam esses inimigos fora deles mesmos, supondo que as
-aflições vêm de fora, de outras pessoas, e então, tornam-se rebeldes e
-vingativos.
+All individuals point these enemies out of themselves, assuming that the
+afflictions come from outside, from other people, and then become rebellious and
+Vengeful.
 
-O mais impiedoso de todos os inimigos é o egoísmo, devorador de alegrias
-alheias. Há também a avareza, a inveja, a maledicência, o ódio, o ciúme, a
-ambição desmedida, o ressentimento.
+The most merciless of all enemies is selfishness, devouring joys
+Others. There is also avarice, envy, malevolence, hatred, jealousy,
+unmeasured ambition, resentment.
 
-E concluiu: A luta para vencer esses inimigos deve ser travada no campo da
-consciência, transformando as tendências inferiores, adotando uma conduta rica
-em misericórdia , compaixão, fraternidade e caridade.
+And concluded: The fight to beat these enemies must be fought in the field of
+consciousness, transforming inferior trends, adopting a rich conduct
+in mercy, compassion, fraternity and charity.
 
-Nada mais precisava ser dito. Bartolomeu entendeu quais eram os grandes
-adversários do ser humano, e como poderiam ser combatidos.
+Nothing else needed to be said. Bartholomew understood what the great
+opponents of the human being, and how they could be fought.
 
 *   *   *
 
-Passados mais de dois mil anos, as palavras do Mestre continuam tão atuais como
-outrora.
+After more than two thousand years, the Master's words remain as current as
+Once.
 
-Muitos de nós ainda têm o hábito de responsabilizar o mundo externo por grande
-parte do que acontece de errado, consigo ou com outros, sem parar para analisar
-as reais causas.
+Many of us still have a habit of holding the outside world accountable for great
+part of what happens wrong, with you or others, without stopping to analyze
+the real causes.
 
-Julgamos os conflitos armados sob a ótica que nos parece mais adequada, tomando
-este ou aquele partido.
+We judge armed conflicts from the perspective that seems most appropriate to us, taking
+this or that party.
 
-No entanto, quase nunca paramos para pensar que o mesmo ódio, a mesma ganância,
-o mesmo ressentimento que originou esse conflito, muitas vezes vive em nós, com
-diferentes causas e consequências, mas com a mesma paixão.
+However, we hardly ever stopped to think that the same hatred, the same greed,
+the same resentment that led to this conflict often lives in us, with
+different causes and consequences, but with the same passion.
 
-Falamos sobre a violência urbana, e sempre temos uma solução para ela. Mas
-esquecemos que nossa indiferença gera a necessidade, e até o ódio daquele que
-rouba.
+We talk about urban violence, and we always have a solution for it. But
+we forget that our indifference generates the need, and even the hatred of the one who
+Steals.
 
-Falamos sobre a corrupção, como se ela fosse exclusiva daqueles que detêm o
-poder. Mas esquecemos que a ambição desmedida que a gera, muitas vezes vive
-dentro de nós, mesmo que em menores proporções.
+We talked about corruption, as if it were exclusive to those who hold the
+Power. But we forget that the unmeasured ambition that generates it often lives
+within us, even if in smaller proportions.
 
-Comentamos sobre famílias desfeitas por egoísmo, e achamos que o nosso próprio
-egoísmo é justificável pois, afinal, temos as nossas necessidades.
+We comment on families undone by selfishness, and we think that our own
+selfishness is justifiable because, after all, we have our needs.
 
-Adiamos, quase sempre, o início de um trabalho voluntário, com a desculpa de
-não termos tempo, e nos esquecemos de desenvolver em nós a caridade, a
-fraternidade, a compaixão, o real amor ao próximo.
+We almost always postpone the beginning of voluntary work, with the excuse of
+have no time, and we forget to develop charity in us, the
+fraternity, compassion, real love for others.
 
-Nossos piores inimigos estão em nós mesmos, como disse Jesus, e já é tempo de
-os reconhecermos. Somente assim poderemos travar nossa batalha pessoal contra
-eles, na qual a principal arma é o amor.
+Our worst enemies are in ourselves, as Jesus said, and it is time to
+let us recognize them. Only then can we fight our personal battle against
+them, in which the main weapon is love.
 
-O Sermão da Montanha é um verdadeiro chamamento feito por Jesus que, desde
-então, espera pacientemente que O escutemos.
+The Sermon on the Mountain is a true call made by Jesus who, since
+so he patiently expects us to listen to Him.
 
-E você? Já O escutou de verdade? Já leu com atenção aquelas belas palavras? Já
-abriu os ouvidos e o coração em busca da única vitória que realmente interessa:
-a vitória sobre nós mesmos e nossas imperfeições morais?
+What about you? Have you ever heard him? Have you read those beautiful words carefully? Already
+opened his ears and heart in search of the only victory that really matters:
+victory over ourselves and our moral imperfections?
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita com base no cap. 6, do livro A mensagem do

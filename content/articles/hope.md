@@ -10,101 +10,101 @@ topics:
 - prayer
 ---
 
-Há dias que temos a impressão de que chegamos no fim do caminho. Olhamos para
-frente e não vislumbramos mais saída. Não há uma luz no fim do túnel, e não há
-também nenhuma possibilidade de volta.
+We've had the impression for days that we've reached the end of the road. We look at
+front and we no longer see output. There is no light at the end of the tunnel, and there is no
+also no possibility back.
 
-Parece que todos os nossos projetos, nossos objetivos, foram levados para bem
-distante, e estamos sem possibilidade de alcançá-los.
+It seems that all our projects, our goals, have been taken for good
+distant, and we are unable to reach them.
 
-Parece mesmo que o outono da existência fez com que secassem as nossas
-esperanças e o vento forte do inverno varresse das nossas mãos todos os sonhos
+It even seems that the autumn of existence caused them to dry our
+hopes and the strong winter wind swept all dreams out of our hands
 acalentados.
 
-A morte vem e arrebata os afetos da nossa alma deixando-nos o coração
-dilacerado.
+Death comes and snatches the affections of our soul leaving us our hearts
+Torn apart.
 
-Sentimo-nos perdidos. Não sabemos que rumo tomar. Ficamos atônitos.
+We feel lost. We don't know what course to take. We were astonished.
 
-Sentimo-nos como uma árvore ressecada, sem folhas, sem brilho, sem motivo para
-viver. É a desesperança.
+We feel like a dry tree, no leaves, no glare, no reason for
+Live. It's hopelessness.
 
-De repente, como acontece com a natureza, a primavera muda toda a paisagem. As
-árvores secas enchem-se de brotos verdes, e logo estão cobertas de folhas e
-flores.
+Suddenly, as with nature, spring changes the entire landscape. The
+dry trees fill with green buds, and are soon covered with leaves and
+Flowers.
 
-O tom acinzentado cede lugar às cores verdes de tonalidades mil. É a esperança.
+The grayish tone gives way to the green colors of thousand shades. It's hope.
 
-Os entes caros, que nos antecederam na viagem de retorno à Pátria Espiritual,
-um dia estarão novamente junto aos nossos corações saudosos, num abraço de
-carinho e afeição.
+The expensive loved ones, who preceded us on the journey back to the Spiritual Homeland,
+one day they will be again with our late hearts, in a hug of
+affection and affection.
 
-Tudo em a natureza volta a sorrir. A relva verde fica bordada de flores de
-variados matizes, as borboletas bailam no ar, os pássaros brindam-nos com suas
-sinfonias harmoniosas. Tudo é vida.
+Everything in nature comes back to smile. The green grass is embroidered with flowers of
+varied hues, butterflies dance in the air, the birds toast them with their
+harmonious symphonies. Everything is life.
 
-Assim, quando a chama da esperança reacende em nosso íntimo, nossos sonhos
-desfeitos são substituídos por outros anseios. Nossos objetivos se modificam e
-o entusiasmo nos invade a alma.
+So when the flame of hope rekindles in our hearts, our dreams
+defects are replaced by other longings. Our goals change and
+enthusiasm invades our souls.
 
-Jesus, o Sublime Galileu, falou-nos da esperança no Sermão da Montanha, com o
-suave canto das bem-aventuranças.
+Jesus the Sublime Galileo spoke to us of hope in the Sermon on the Mountain, with the
+gentle corner of the beatitudes.
 
-Exemplificou-a nos Seus ditos e feitos. Enfim, toda Sua mensagem é de
-esperança.
+He exemplified her in His sayings and deeds. Anyway, all His message is
+Hope.
 
-Se formos visitados por qualquer dissabor e o desespero nos tomar de assalto,
-busquemos o nosso Amigo Maior, Jesus, através da oração.
+If we are visited by any distaste and despair take us in assault,
+let us seek our Greatest Friend, Jesus, through prayer.
 
-Predispondo-nos pela prece, a ajuda chegará certamente, como suave bálsamo a
-penetrar nas fibras mais íntimas do nosso ser, dando-nos alento e
-tranquilidade.
+Predisposing us by prayer, help will certainly come, as soft balm to
+penetrate into the most intimate fibers of our being, giving us encouragement and
+Tranquility.
 
-Se a desesperança acercar-se de nós, lembremos o Amigo Celeste a nos dizer: Meu
-fardo é leve, meu jugo é suave.
+If hopelessness comes to us, let us remember Heavenly Friend to say to us: My
+burden is light, my yoke is soft.
 
-Se Seu jugo é suave, por que não O aceitamos?
+If Your yoke is soft, why don't we accept Him?
 
-Se Seu fardo é leve por que não O conduzimos?
+If your burden is light, why don't we drive him?
 
-Consideremos que o rigor do inverno pode ser o resultado da nossa falta de
-cuidado, submetendo-nos ao jugo da mentira, da ambição desmedida, do
-pessimismo,das queixas sem fim...
+Let us consider that the rigor of winter may be the result of our lack of
+care, submitting us to the yoke of lying, the unmeasured ambition, the
+pessimism, of endless complaints...
 
-Ou talvez a desesperança resulte da nossa própria insensatez, carregando o
-pesado fardo dos prazeres inferiores, do orgulho, do egoísmo, da ganância, dos
-vícios de toda ordem, e de outros tantos fardos inúteis que nos sobrecarregam
-os ombros destroçando-nos as forças.
+Or perhaps hopelessness results from our own folly, carrying the
+heavy burden of inferior pleasures, pride, selfishness, greed,
+vices of every order, and of so many other useless burdens that burden us
+his shoulders tearing us down forces.
 
-Dessa forma, em qualquer circunstância, deixemos que a esperança nos invada a
-alma, confiantes em Deus, que sempre nos dá oportunidades novas para refazermos
-caminhos, buscando a nossa redenção.
+In this way, under any circumstances, let us let hope invading us to
+soul, confident in God, which always gives us new opportunities to remake
+paths, seeking our redemption.
 
-A esperança deve ser uma constante em nossas vidas.
+Hope must be a constant in our lives.
 
-Esperança de melhores dias;
+Hope of better days;
 
-esperança de realizações superiores;
+hope of superior achievements;
 
-esperança de paz.
+hope of peace.
 
                                                            *   *   *
 
-Narra-se que um monge que vivia da mendicância, sem abrigo, recolheu-se numa
-gruta para o repouso noturno em bela paisagem banhada de luar.
+It is narrated that a monk who lived from begging, homeless, gathered in a
+cave to the night ly rest in beautiful landscape bathed in moonlight.
 
-Adormeceu, veio um bandido e lhe furtou a capa de que se utilizava como
-agasalho.
+He fell asleep, a bandit came and stole his cape from which he used as
+Sweater.
 
-O frio da madrugada despertou-o e, dando-se conta do infortúnio, porém
-fascinado pela claridade da lua, aproximou-se da entrada da gruta e,
-emocionando-se com o que viu, exclamou:
+The cold of the dawn awakened him and, realizing the misfortune, but
+fascinated by the clarity of the moon, approached the entrance to the cave, and,
+thrilling himself with what he saw, he exclaimed:
 
-Que bom que o ladrão não me furtou a lua!
+I'm glad the thief didn't steal my moon!
 
-E sorrindo, pôs-se a meditar.
+And smiling, he meditated.
 
-Desesperar, nunca!
+Despair, never!
 
 ## Source
 Redação do Momento Espírita com base na introdução do

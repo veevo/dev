@@ -12,101 +12,101 @@ topics:
 ---
  
 
-Um viajante caminhava pelas margens de um grande lago de águas cristalinas e
-imaginava uma forma de chegar até o outro lado, onde era seu destino.
+A traveler walked along the shores of a large lake of crystal clear waters and
+imagined a way to get to the other side, where his destiny was.
 
-Suspirou profundamente enquanto tentava fixar o olhar no horizonte. A voz de um
-homem de cabelos brancos quebrou o silêncio momentâneo, oferecendo-se para
-transportá-lo. Era um barqueiro.
+He sighed deeply as he tried to fix his gaze on the horizon. The voice of a
+white-haired man broke momentary silence, offering himself to
+transport it. He was a boatman.
 
-O pequeno barco envelhecido, no qual a travessia seria realizada, era provido
-de dois remos de madeira de carvalho.
+The small aged boat, on which the crossing would be carried out, was provided
+of two oak wood oars.
 
-O viajante olhou detidamente e percebeu o que pareciam ser letras em cada remo.
-Ao colocar os pés empoeirados dentro do barco, observou que eram mesmo duas
-palavras.
+The traveler looked detained and realized what appeared to be letters in each row.
+By putting dusty feet inside the boat, he observed that they were even two
+Words.
 
-Num dos remos estava entalhada a palavra acreditar e no outro, agir.
+One of the oars was notched the word believe and the other, act.
 
-Não podendo conter a curiosidade, perguntou a razão daqueles nomes originais
-dados aos remos.
+Unable to contain curiosity, asked the reason for those original names
+given to the oars.
 
-O barqueiro pegou o remo, no qual estava escrito acreditar, e remou com toda
-força.
+The boatman took the paddle, in which it was written to believe, and paddled with all
+Force.
 
-O barco, então, começou a dar voltas, sem sair do lugar em que estava.
+The boat then started going around, leaving the place it was.
 
-Em seguida, pegou o remo em que estava escrito agir e remou com todo vigor.
+Then he took the paddle in which it was written to act and paddled with all vigor.
 
-Novamente o barco girou em sentido oposto, sem ir adiante.
+Again the boat spun in the opposite direction, without going ahead.
 
-Finalmente, o velho barqueiro, segurando os dois remos, movimentou-os ao mesmo
-tempo e o barco, impulsionado por ambos os lados, navegou através das águas do
-lago, chegando calmamente à outra margem.
+Finally, the old boatman, holding the two oars, moved them to the same
+time and the boat, driven by both sides, sailed through the waters of the
+lake, arriving calmly on the other shore.
 
-Então, o barqueiro disse ao viajante:
+Then the boatman told the traveler:
 
-Este barco pode ser chamado de autoconfiança. E a margem é a meta que desejamos
-atingir.
+This boat can be called self-confidence. And the margin is the goal we want
+Reach.
 
-Para que o barco da autoconfiança navegue seguro e alcance a meta pretendida, é
-preciso que utilizemos os dois remos, ao mesmo tempo, e com a mesma
-intensidade: agir e acreditar.
+In order for the self-confidence boat to navigate safely and reach the desired goal, it is
+I need us to use the two oars at the same time, and with the same
+intensity: act and believe.
 
-Não basta apenas acreditar, senão o barco ficará rodando em círculos. É preciso
-também agir, para movimentá-lo na direção que nos levará a alcançar a nossa
+It's not enough just to believe, otherwise the boat will be spinning in circles. It is necessary to
+also act, to move it in the direction that will lead us to reach our
 meta.
 
-Agir e acreditar. Impulsionar os remos com força e com vontade, superando as
-ondas e os vendavais e não esquecer que, por vezes, é preciso remar contra a
-maré.
+Act and believe. Boost the oars with force and will, overcoming the
+waves and the gales and do not forget that sometimes it is necessary to paddle against the
+Tide.
 
                                    *   *   *
 
-Gandhi tinha uma meta: libertar seu povo do jugo inglês. Tinha também uma
-estratégia: a não-violência.
+Gandhi had a goal: to free his people from the English yoke. There was also a
+strategy: nonviolence.
 
-Sua autoconfiança foi tanta que atingiu a sua meta sem derramamento de sangue.
-Ele não só acreditou que era possível, mas também agiu com segurança.
+His self-confidence was so much that he reached his bloodless goal.
+Not only did he believe it was possible, but he also acted safely.
 
-Madre Teresa também tinha uma meta: socorrer os pobres abandonados de Calcutá.
-Acreditou e agiu, superando a meta inicial, socorrendo pobres do mundo inteiro.
+Mother Teresa also had a goal: to help calcutta's abandoned poor.
+He believed and acted, overcoming the initial goal, helping poor people around the world.
 
-Albert Schweitzer traçou sua meta e chegou lá. Deixou o conforto da cidade
-grande e se embrenhou na selva da África francesa para atender aos nativos, no
-mais completo anonimato.
+Albert Schweitzer traced his goal and got there. Left the comfort of the city
+large and got caught up in the jungle of French Africa to meet the natives, in the
+more complete anonymity.
 
-Como estes, teríamos outros tantos exemplos de homens e mulheres que não só
-acreditaram, mas que tornaram realidade seus planos de felicidade e redenção
+Like these, we would have so many other examples of men and women that not only
+believed but that made their plans of happiness and redemption come true
 particular.
 
                                    *   *   *
 
-E você? Está remando com firmeza para atingir a meta a que se propôs?
+What about you? Are you firmly holding back to achieve the goal you've set?
 
-Se o barco da sua autoconfiança está parado no meio do caminho ou andando em
-círculos, é hora de tomar uma decisão e impulsioná-lo com força e com vontade.
+If the boat of your self-confidence is stopped in the middle of the road or walking in
+circles, it's time to make a decision and boost it with force and willingness.
 
-Lembre que só você poderá acioná-lo utilizando-se dos dois remos: agir e
-acreditar.
+Remember that only you can trigger it using the two oars: act and
+Believe.
 
                                    *   *   *
 
-Caso você ainda não tenha uma meta traçada ou deseje refazer a sua, considere
-alguns pontos:
+If you do not already have a goal set or wish to redo yours, consider
+some points:
 
-verifique se os caminhos que irá percorrer não estarão invadindo a propriedade
-de terceiros;
+make sure that the paths you will go through will not be invading the property
+third-party parties;
 
-se as águas que deseja navegar estão protegidas dos calhaus da inveja, do
-orgulho, do ódio;
+whether the waters you wish to navigate are protected from the gutters of envy, the
+pride, hatred;
 
-e, antes de movimentar o barco, verifique se os remos não estão corroídos pelo
-ácido do egoísmo.
+and, before moving the boat, make sure the oars are not corroded by the
+acid of selfishness.
 
-Depois de tomar todas estas precauções, siga em frente e boa viagem.
+After taking all these precautions, go ahead and have a good trip.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base em texto veiculado pela Internet,

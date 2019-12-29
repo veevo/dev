@@ -15,78 +15,78 @@ topics:
 - family
 ---
 
-Por um minuto, feche os olhos e pense no que lhe aprouver...
+For a minute, close your eyes and think about what you want...
 
-E se você descobrisse que o tempo que lhe resta é apenas mais um minuto? Exatos
-sessenta segundos: nem mais, nem menos.
+What if you found out that the time you have left is just another minute? Exact
+sixty seconds: no more, no less.
 
-Certo seria que, ao tomar conhecimento de tal fato, as coisas mudassem de
-dimensão.
+It would be certain that, when i became aware of this fact, things would change
+Dimension.
 
-O dinheiro, antes indispensável, nesse instante se tornaria insignificante. E
-nem toda a riqueza do mundo seria capaz de modificar esse quadro.
+The money, once indispensable, at that moment would become insignificant. And
+not all the wealth of the world would be able to change this picture.
 
-As velhas mágoas acumuladas, as frustrações, as decepções tantas, as
-reclamações diárias, diante dessa situação tão peculiar, se tornariam vazias,
-quase sem sentido.
+The accumulated old sorrows, frustrations, so many disappointments,
+daily complaints, in the face of such a peculiar situation, would become empty,
+almost meaningless.
 
-As brigas de família, a teimosia do marido, a impaciência da esposa, a
-desobediência dos filhos, nesse minuto final, ao invés de causarem irritação,
-trariam um sentimento de nostalgia e saudade.
+The family fights, the stubbornness of her husband, the impatience of his wife, the
+disobedience of the children in that final minute, rather than causing irritation,
+would bring a sense of nostalgia and longing.
 
-Por outro lado, as coisas simples, os pequenos gestos que demonstram
-afetividade, carinho, gentileza, seriam infinitamente engrandecidos, nesse
-derradeiro minuto.
+On the other hand, simple things, the small gestures that demonstrate
+affection, affection, kindness, would be infinitely magnied, in this
+last minute.
 
-Um beijo, um abraço apertado, uma declaração de amor, uma troca de olhares, um
-pedido de desculpas se tornariam aquilo que de mais precioso existe no mundo.
+A kiss, a tight hug, a declaration of love, an exchange of glances, a
+apology would become what is most precious in the world.
 
-Um toque, um sorriso, mãos que se encontram, um sincero eu te amo: os tesouros
-escondidos por trás da simplicidade.
-
-*   *   *
-
-Você já havia parado para pensar no quanto pode ser feito em um minuto? Ou
-melhor, você já parou um minuto para pensar?
-
-Sem dúvidas, não se pode fazer tudo o que se deseja em sessenta segundos. Mas
-um minuto é tempo suficiente para se mudar tudo para sempre.
-
-Um minuto é o tempo necessário para se optar entre a ofensa e o perdão, entre o
-ódio e o amor, entre a violência e a paz.
-
-É o necessário para declararmos nosso amor por alguém, para oferecermos pão a
-quem tem fome, consolo a quem perdeu as esperanças, para compartilharmos um
-sorriso.
-
-Em apenas um minuto podemos acalentar corações, levarmos alegria, escrevermos
-um bilhete de ternura a alguém especial.
-
-Um minuto é o suficiente para irradiarmos luz aos nossos familiares, aos nossos
-amigos, àqueles que partiram para a eternidade, àqueles que passam pelas provas
-da vida, através da oração.
-
-Um minuto é tempo mais do que suficiente para se ser feliz.
+A touch, a smile, hands that meet, a sincere I love you: the treasures
+hidden behind simplicity.
 
 *   *   *
 
-Você se permitiu ser feliz neste exato minuto?
+Have you ever stopped to think about how much can be done in a minute? Or
+better, have you ever stopped a minute to think?
 
-Deixe para lá os arrependimentos do passado. Foque-se no presente, pois é no
-presente que reajustamos as más escolhas do passado e construímos o futuro.
+Without a doubt, you can't do everything you want in sixty seconds. But
+one minute is enough time to move everything forever.
 
-Acredite na força do perdão. Lembre-se de que todos somos caminheiros da
-estrada do progresso e que ora acertamos, ora nos equivocamos em nossas
-escolhas. Tenha paciência com as faltas alheias como você tem com as suas
-próprias falhas.
+One minute is the time required to choose between the offense and forgiveness, between the
+hatred and love, between violence and peace.
 
-Tenha como norte a fé, a esperança e a caridade. Assim, por mais escura que se
-faça a noite, seus passos sempre o levarão em direção à felicidade, ao amor e à
-paz.
+It is necessary for us to declare our love for someone, to offer bread to
+who is hungry, comfort to those who have given up hope, to share a
+Smile.
 
-Permita-se renovar: é preciso um minuto, não mais do que um minuto.
+In just a minute we can cherish hearts, take joy, write
+a tenderness note to someone special.
 
-Pense nisso. Aproveite o próximo minuto.
+One minute is enough to radiate light to our family members, to our
+friends, to those who have gone into eternity, to those who go through the tests
+through prayer.
+
+One minute is more than enough time to be happy.
+
+*   *   *
+
+Did you allow yourself to be happy at this very minute?
+
+Let go of the regrets of the past. Focus on the present, as it is in the
+we readjust the bad choices of the past and build the future.
+
+Believe in the strength of forgiveness. Remember that we are all walkers of
+road of progress and that we now settle, sometimes we are wrong in our
+Choices. Be patient with the faults of those of the other people as you have with your
+failures themselves.
+
+Have faith, hope and charity as its north. So no matter how dark
+make the night, your steps will always lead you towards happiness, love and
+Peace.
+
+Allow yourself to renew: it takes a minute, no more than a minute.
+
+Think about it. Enjoy the next minute.
 
 ## Source
 Redação do Momento Espírita.

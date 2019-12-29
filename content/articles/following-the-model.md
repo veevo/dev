@@ -7,81 +7,81 @@ topics:
 - jesus
 ---
 
-Quando abraçamos a doutrina cristã, quando adentramos pelas reflexões dos
-Evangelhos, nos sentimos estimulados à mudança da nossa forma de ser.
+When we embrace Christian doctrine, when we dent by the reflections of the
+Gospels, we feel encouraged to change our way of being.
 
-O entusiasmo da primeira hora é grande. Ficamos empolgados com a perspectiva de
-nos tornarmos verdadeiros seguidores de quem é o Modelo e Guia da Humanidade,
+The excitement of the first hour is great. We were excited about the prospect of
+become true followers of who is the Model and Guide of Humanity,
 Jesus.
 
-Lemos a respeito dos desafios e das vitórias dos primitivos cristãos e nos
-propomos a ser, como eles, fiéis seguidores do Mestre de Nazaré.
+We read about the challenges and victories of the early Christians and
+we propose to be, like them, faithful followers of the Master of Nazareth.
 
-Na sequência dos dias, vamos nos dando conta de que os antigos hábitos, aquilo
-tudo que constitui em nós o homem velho, fala muito alto.
+Following the days, we realize that the old habits, that
+all that constitutes in us the old man, speaks very loudly.
 
-As dificuldades vão surgindo a cada passo. E, quase caímos no desânimo por
-constatarmos tão grande o abismo entre a teoria almejada e a prática eficiente.
+The difficulties are emerging at every step. And we almost fell into dismay at
+we have seen so great the gulf between the desired theory and efficient practice.
 
-Isso é algo que ocorre com todos os que ambicionamos mudanças de comportamento,
-tendo em vista os hábitos que temos enraizados.
+This is something that happens to all who aspire to behavioral changes,
+in view of the habits we have rooted.
 
-Embora nos digamos cristãos, não é tarefa fácil seguir o Mestre, único ser
-perfeito que transitou pela Terra.
+Although we say Christians, it is not an easy task to follow the Master, the only being
+perfect that passed the Earth.
 
-Conhecemos os ensinamentos dEle, queremos adotá-lo como Modelo de nossas vidas,
-mas parece que o espelho de que nos servimos está riscado e distorce a imagem.
+We know his teachings, we want to adopt him as a Model of our lives,
+but it seems that the mirror we serve is scratched and distorts the image.
 
-Queremos fazer as coisas certas nos momentos certos, mas justamente aí nos
-decepcionamos conosco mesmos.
+We want to do the right things at the right times, but just there in the
+we let ourselves down.
 
-Ficamos entristecidos por adotarmos, vez ou outra, comportamentos jamais
-imaginados por serem totalmente incoerentes com o ensino cristão.
+We are saddened to adopt, time or time, behaviors never
+imagined to be totally inconsistent with Christian teaching.
 
-Em momentos em que nos propomos a usar da bondade, nos surpreendemos em
-maledicência e maldade.
+At times when we propose to use goodness, we are surprised at
+malevolence and wickedness.
 
-Quando imaginamos ter compreendido a forma otimista de agir, no mundo em que
-nos movemos, apresentamos sinais de desespero por coisa alguma, um quase nada.
+When we imagine having understood the optimistic way of acting, in the world in which
+we move, show signs of despair for something, a little nothing.
 
-O amor fraternal do Mestre nos emociona, no entanto, nos surpreendemos
-incentivando a discórdia e a separação.
+The Master's brotherly love thrills us, however, we are surprised
+encouraging discord and separation.
 
-Elogiamos a simplicidade do Rabi, e complicamos nossas próprias vidas.
+We praise the simplicity of rabbi, and complicate our own lives.
 
-Em síntese: nos descobrimos muito mais tempo longe dos atos cristãos do que
-executando-os, em nosso cotidiano.
+In summary: we find ourselves much longer away from Christian acts than
+executing them, in our daily lives.
 
                                    *   *   *
 
-Importante estarmos atentos aos nossos passos e comportamentos para não nos
-decepcionarmos conosco mesmos.
+It is important to be aware of our steps and behaviors so as not to
+Let us let ourselves down.
 
-Não esperemos nos transformar em pessoas maravilhosas, de um momento para o
-outro. Toda mudança exige esforço, perseverança.
+Let's not hope to turn into wonderful people, from a moment to the
+Other. Every change requires effort, perseverance.
 
-Não basta expressarmos a vontade de mudar. É preciso nos trabalharmos, a cada
-momento, pensar e repensar cada atitude.
+It is not enough to express the will to change. We need to work each other
+moment, think and rethink every attitude.
 
-Se abraçamos Jesus como nosso Modelo de vida, cabe-nos seguir Seus exemplos
-marcantes, para que a construção do nosso novo ser se concretize.
+If we embrace Jesus as our Model of Life, it is up to us to follow His examples
+remarkable, so that the construction of our new being will materialize.
 
-Desejando seguir Suas pegadas, é preciso que andemos pelos caminhos da
-mansidão, do amor e do perdão que Ele exemplificou.
+Desiring to follow His footsteps, we must walk the paths of
+meekness, love and forgiveness which He exemplified.
 
-Se O elegemos como Guia, fiquemos atentos para não nos perdermos no traçado
-dessa rota bendita.
+If we choose him as a Guide, let's be careful not to get lost on the stroke
+of this blessed route.
 
-Ele afirmou ser o Caminho, a Verdade e a Vida, e que ninguém vai ao Pai senão
-por Ele.
+He claimed to be the Way, truth and life, and that no one goes to the Father but
+by Him.
 
-Dessa forma, dediquemo-nos a amá-lO, a segui-lO, passo a passo, reformulando
-cada atitude equivocada.
+In this way, we dedicate ourselves to amá-lO, to follow lO, step by step, reformulation
+every wrong attitude.
 
-Tenhamos paciência conosco mesmos e não abandonemos a trilha da renovação, que
-se fará, com constância e persistência.
+We have patience with ourselves and do not abandon the trail of renewal, which
+will be done, with constancy and persistence.
 
-Prossigamos para o Alto.
+Let's move on to the Top.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 167,

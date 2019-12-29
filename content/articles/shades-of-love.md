@@ -21,75 +21,75 @@ topics:
 ---
 
 
-Ekaterina vive na Rússia com seus pais. Desde cedo, revelou habilidades para a
-pintura.
+Ekaterina lives in Russia with her parents. From an early age, he revealed skills for the
+Painting.
 
-Correndo os pincéis pelas telas, despontam paisagens harmoniosas: o céu
-luminoso, os jardins convidativos, os animais de feição serena, o mar manso e
-pacífico.
+Running the brushes through the screens, landscapes emerge harmonious: the sky
+light, inviting gardens, serene-natured animals, meek sea and
+Pacific.
 
-Sem dúvidas, um talento notável, mas não excepcional, para uma menina de dez
-anos bastante disciplinada.
+Undoubtedly, a remarkable but not exceptional talent for a girl of ten
+years quite disciplined.
 
-Isso, não fosse o fato de padecer, desde os três meses de idade, de distrofia
-muscular, grupo raro de doenças degenerativas que atingem os músculos,
-impossibilitando-os de se desenvolverem corretamente, o que causa fraqueza e
-inúmeras deficiências.
+This, were it not for the fact that i have suffered, since the age of three months, dystrophy
+muscle, rare group of degenerative diseases that affect muscles,
+making them impossible to develop properly, which causes weakness and
+numerous deficiencies.
 
-Atualmente, a pequena Kate não pode mais falar, levantar os braços, respirar
-por conta própria e arcar com o peso da própria cabeça.
+Currently, little Kate can no longer talk, raise her arms, breathe
+on its own and bear the weight of one's own head.
 
-Ela utiliza uma cadeira de rodas para se locomover e, a fim de auxiliá-la a
-superar suas limitações, faz diversas sessões de terapia, o que lhe toma grande
-parte do tempo.
+She uses a wheelchair to get around and in order to help her
+overcome its limitations, does several therapy sessions, which takes you great
+part of the time.
 
-Todavia, embora os abundantes compromissos que sua frágil saúde exige, Kate não
-esquece seu amor pela arte.
+However, while the abundant commitments her fragile health demands, Kate did not
+forgets your love for art.
 
-Quando deitada, delicadamente seus pais a viram de lado. Uma tela e múltiplas
-tintas são posicionadas bem ao lado do seu diminuto corpo. Pincéis são postos
-em suas débeis mãos.
+When she lay down, her parents gently saw her aside. One screen and multiple
+paints are positioned right next to your tiny body. Brushes are put
+in his dereal hands.
 
-Silenciosa, por um instante, ela contempla a tela em branco, possivelmente
-dando asas à sua imaginação. Pouco a pouco, paisagens repletas de harmonia e
-tranquilidade vão surgindo.
+Silent, for an instant, she contemplates the blank canvas, possibly
+giving wings to your imagination. Little by little, landscapes full of harmony and
+tranquility are emerging.
 
-O talento de Kate é notável. Porém, sem lucrar com sua habilidade, seus pais
-decidiram doar suas obras a diferentes instituições, em especial àquelas que
-cuidam de crianças.
+Kate's talent is remarkable. However, without profiting from your ability, your parents
+decided to donate their works to different institutions, in particular those
+care for children.
 
-A luta da pequena e de sua família causa admiração de incontáveis pessoas.
-Diariamente, eles recebem inúmeras mensagens de apoio, que são lidas para Kate
-por sua mãe.
+The struggle of the little one and his family causes admiration from countless people.
+Daily, they receive numerous messages of support, which are read to Kate
+by your mother.
 
-A gentil menina pisca de leve os olhos e, com um doce sorriso no rosto, retorna
-às suas pinturas, retratando aquilo que se passa em seu mundo interior, tão
-cheio de mansidão e de paz.
-
-                                   *   *   *
-
-A verdade é que todos nós padecemos, moralmente, de deficiências as mais
-diversas. O orgulho, o egoísmo, a vaidade e tantas outras mazelas ainda se
-fazem presentes em nós, em maior ou menor grau.
-
-Partícipes que somos de nossa própria criação, é nosso dever ultrapassarmos os
-limites de nós mesmos, por meio do esforço pessoal, da reforma íntima, da
-prática do bem.
-
-Jesus, irmão, amigo e guia da Humanidade, legou-nos a aquarela com a qual
-podemos colorir nossas existências, acinzentadas pelas faltas morais.
-
-Para a vaidade e para o orgulho, a nobre tinta da humildade. Para o egoísmo, a
-delicada cor da caridade. Para a falta de perdão, para a impaciência, para a
-pressa em julgar o próximo, os tons multicoloridos do amor.
-
-Amando, renovamos as forças, burilamos a fé, exercemos a caridade, fazemo-nos
-sábios, fortificamos o Espírito em marcha, tornamo-nos irmãos.
+The gentle girl flashes with light eyes and, with a sweet smile on her face, returns
+to his paintings, portraying what is happening in his inner world, so
+full of meekness and peace.
 
                                    *   *   *
 
-O amor é tinta que nunca seca. Quanto mais praticado, mais colorida torna-se a
-nossa vida. Saiamos das sombras, do cinza, do monocromático: amemos!
+The truth is that we all suffer morally from the most
+Several. Pride, selfishness, vanity and so many other ills still
+make gifts in us to a greater or lesser extent.
+
+Participants that we are of our own creation, it is our duty to overcome the
+limits of ourselves, through personal effort, intimate reform,
+practice of good.
+
+Jesus, brother, friend and guide of humanity, bequeathed us the watercolor with which
+we can color our existences, grayed out by moral faults.
+
+For vanity and pride, the noble ink of humility. For selfishness, the
+delicate color of charity. For the lack of forgiveness, for impatience, for the
+hurry to judge the next, multicolored tones of love.
+
+Loving, we renew forces, we circumvent faith, exercise charity, make ourselves
+wise, we fortify the Spirit in motion, become brothers.
+
+                                   *   *   *
+
+Love is paint that never dries. The more practiced, the more colorful it becomes the
+our lives. Let's get out of the shadows, the gray, the monochrome: let's love it!
 
 ## Source
 Redação do Momento Espírita, com base na

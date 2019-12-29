@@ -14,82 +14,82 @@ topics:
 - prayer
 ---
 
-A liberdade de expressão é conquista recente na história da Humanidade.
+Freedom of expression is a recent achievement in the history of mankind.
 
-Não vão longe os tempos onde expressar o pensamento podia ter como consequência
-a condenação à morte.
+They don't go far the times where expressing thought could have as a consequence
+death sentence.
 
-Déspotas, tiranos, assim como religiões, doutrinas, oprimiram e cercearam a
-livre expressão do pensamento.
+Despots, tyrants, as well as religions, doctrines, oppressed and curtailed the
+free expression of thought.
 
-Hoje ainda insistem alguns a fomentar seus rincões de intolerância e de
-proibições.
+Today they still insist some to foment their intolerance and
+Bans.
 
-Porém, cada vez mais ganham espaço as conquistas da liberdade de refletir e de
-expor as ideias.
+However, the achievements of freedom to reflect and
+expose the ideas.
 
-Quando esse direito é respeitado por todos, temos a possibilidade de sermos
-coerentes entre pensar e falar, dando ao outro, da mesma forma, tal direito.
+When this right is respected by all, we have the possibility to be
+between thinking and speaking, giving the other, likewise, such a right.
 
-Cabe a cada um de nós entender que pensamos de maneira diferente porque temos
-valores, conceitos e visão de mundo muito próprios.
+It is up to each of us to understand that we think differently because we have
+values, concepts and worldview very own.
 
-E, na medida que respeitamos o próximo, podemos rogar para nós esse mesmo
-respeito.
+And as far as we respect others, we can gnaw for us that same
+Respect.
 
-Nesses termos, cabe-nos perguntar: Qual seria a melhor religião para alguém?
+In those terms, it is up to us to ask: What would be the best religion for anyone?
 
-Certamente, a resposta não é única.
+Certainly, the answer is not unique.
 
-Na diversidade de pensar e agir em que mergulha a Humanidade, poderíamos eleger
-uma religião como a melhor?
+In the diversity of thinking and acting in which humanity plunges, we could elect
+a religion like the best?
 
-Certamente, se nos fosse imposta uma religião com a qual não concordamos, que
-não aceitamos, não nos iríamos sentir confortáveis.
+Certainly, if we were imposed a religion with which we do not agree, that
+we didn't accept it, we wouldn't feel comfortable.
 
-Isso acontece com qualquer pessoa para a qual insistirmos em impor nossa
-crença.
+This happens to anyone to whom we insist on imposing our
+Belief.
 
-A melhor religião deve ser aquela que não nos torna hipócritas, que nos
-transforma em pessoas de bem, corretas, seres humanos melhores.
+The best religion must be one that does not make us hypocrites, which
+turns into good, correct people, better human beings.
 
-Portanto, a respeito desse assunto cabe a cada um optar, a mais ninguém.
+Therefore, on this subject it is up to each other to choose, no one else.
 
-Será somente nesse entendimento entre a criatura e Deus que se poderá escolher
-a melhor forma de chegar até Ele.
+It will be only in this understanding between the creature and God that one can choose
+the best way to get to Him.
 
-Toda doutrina ou religião que conduza o homem ao bem, deve ser digna de
-respeito.
+Every doctrine or religion that leads man to good must be worthy of
+Respect.
 
-Isso porque, quando se trata das coisas de Deus, o importante não é o caminho
-que tomamos, mas sim, a direção para a qual caminhamos.
+This is because when it comes to God's things, the important thing is not the way
+that we take, but rather the direction in which we walk.
 
-E são muitos os entendimentos e as expressões que nos conduzem ao Pai.
+And there are many understandings and expressions that lead us to the Father.
 
-Nesses termos, infrutífera, quando não desrespeitosa, qualquer imposição de
-crença a outrem.
+In such terms, fruitless, when not disrespectful, any imposition of
+belief to others.
 
-Para alguns, Deus está na natureza. Para outros, a convivência está dentro do
-Seu templo. E tantos O cultivam na intimidade do coração.
+For some, God is in nature. For others, coexistence is within the
+Your temple. And so many cultivate Him in the intimacy of the heart.
 
-Uns O têm como Pai amoroso. Outros, talvez O percebam mais como um Pai severo.
+Some have him as a loving father. Others may perceive him more as a stern Father.
 
-São estágios evolutivos.
+They are evolutionary stages.
 
-Alguns se atêm fervorosos às suas crenças religiosas. Outros preferem viver a
-seu modo a sua relação com Deus.
+Some adhere fervent to their religious beliefs. Others prefer to live the
+his way to his relationship with God.
 
-Para o Criador do Universo, o importante não é o que sai da boca, dos gestos,
-ou onde isso é feito.
+For the Creator of the Universe, the important thing is not what comes out of the mouth, gestures,
+or where it's done.
 
-Para o Pai Maior, o grande significado está naquilo que se passa no coração.
+For the Big Father, the great meaning lies in what goes on in the heart.
 
-Dessa forma, há que respeitar-se toda e qualquer crença, quando nos conduz e
-nos faz bem.
+In this way, all and all beliefmust be respected, when it leads us and
+it's good for us.
 
-    Afinal, Deus, acima disso tudo, entende que nós, Seus filhos, ainda estamos
-tateando, dando os primeiros passos, na busca de entender a Sua grandiosidade e
-                                                                       bondade.
+    After all, God, above all, understands that we, His children, are still
+groping, taking the first steps, in the search to understand His greatness and
+                                                                       Kindness.
 
 ## Source
 Redação do Momento Espírita.

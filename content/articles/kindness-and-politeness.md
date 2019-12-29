@@ -9,88 +9,88 @@ topics:
 ---
  
 
-Na língua portuguesa existem palavras com vários significados. Nem sempre
-sabemos o que realmente significam no contexto em que estão inseridas.
+In Portuguese there are words with various meanings. Not always
+we know what they really mean in the context in which they are inserted.
 
-A palavra gentil, por exemplo, segundo os dicionários, quer dizer: de boa
-linhagem; nobre, fidalgo; elegante, garboso; que agrada pela delicadeza de
-sentimentos ou fineza de maneiras; amável.
+The word kind, for example, according to dictionaries, means: of good
+lineage; noble, nobleman; elegant, garboso; that pleases the delicacy of
+feelings or finesse in ways; Kind.
 
-E a palavra polidez quer dizer: caráter ou qualidade do que é polido; atitude
-gentil; cortesia, civilidade.
+And the word politeness means: character or quality of what is polished; Attitude
+kind; courtesy, civility.
 
-Geralmente as pessoas gostam de ser consideradas gentis e polidas, pois esses
-termos pressupõem atitudes nobres.
+Generally people like to be considered kind and polished, because these
+terms presuppose noble attitudes.
 
-No entanto, a pessoa pode ser gentil e polida e não ser ética e nem moralmente
-correta.
+However, the person can be kind and polished and not be ethical or morally
+Correct.
 
-Uma pessoa que se comporta com gentileza e polidez não está, necessariamente,
-agindo com bondade, equidade, complacência e gratidão.
+A person who behaves with kindness and politeness is not necessarily
+acting with kindness, equity, complacency, and gratitude.
 
-O excesso de polidez e de gentileza pode até ser muito inconveniente.
+Excess politeness and kindness can even be very inconvenient.
 
-É por isso que o ditado popular: É polido demais para ser honesto tem sua razão
-de ser.
+That's why the popular saying: It's too polite to be honest has its reason
+of being.
 
-Aquele que é gentil e polido, em excesso, passa por pouco verdadeiro. Isso
-porque, às vezes, a honestidade, a seriedade e a verdade exigem que se
-desagrade alguém.
+He who is kind and polished, in excess, goes through a little true. Right
+because sometimes honesty, seriousness and truth require that
+displease someone.
 
-Levada muito a sério, a polidez é o contrário da autenticidade.
+Taken very seriously, politeness is the opposite of authenticity.
 
-Os muito polidos são como crianças grandes demasiadamente bem comportadas,
-prisioneiras de regras, iludidas pelos costumes e pelas conveniências.
+The very polished are like large children too well behaved,
+prisoners of rules, deluded by customs and conveniences.
 
-Assim, entende-se que uma pessoa polida não deve ser, só por esse fato,
-considerada virtuosa.
+Thus, it is understood that a polished person should not be, just by this fact,
+considered virtuous.
 
-A polidez pode ser uma atitude externa, como uma fina camada de verniz,
-adquirida pelas regras de etiqueta, e não ter ressonância no interior da alma.
+Politeness can be an external attitude, such as a thin layer of varnish,
+acquired by the rules of etiquette, and have no resonance inside the soul.
 
-Uma pessoa pode ser gentil e enérgica ao mesmo tempo, sem que isso a torne
-menos gentil.
+A person can be kind and energetic at the same time, without it turning it
+less kind.
 
-Pessoas que nunca contrariam ninguém não podem estar sendo honestas nem
-verdadeiras.
+People who never contradict anyone can't be honest or
+True.
 
-Uma pessoa gentil sabe usar a sua autenticidade com moderação, bom senso e
-firmeza, sem resvalar na pieguice ou na loucura.
+A kind person knows how to use his authenticity in moderation, common sense and
+firmness, without slipping into pieguice or madness.
 
-Já uma pessoa vil não deixa de ter mau caráter pelo fato de ser polida.
+A vile person, on the other hand, is still bad in character because he is polished.
 
-Geralmente, esse equívoco de interpretação confunde a análise e julga-se mais
-pela aparência do que pela essência.
+Generally, this misconception of interpretation confuses the analysis and is considered more
+by the appearance than by essence.
 
-É por isso que um gentil cavalheiro ou uma dama polida, quando provocados,
-podem tornar-se irreconhecíveis, pela grosseria de seus atos e gestos.
+That's why a gentle gentleman or a polished lady, when provoked,
+may become unrecognizable, by the rudeness of their acts and gestures.
 
-Isso porque a provocação não resiste à pedra de toque, as mazelas internas
-rompem o verniz e a criatura mostra-se tal qual é: uma fera.
+That's because the provocation does not resist the touch stone, the internal ills
+break the varnish and the creature is shown as it is: a beast.
 
-Nesses momentos usa todas as armas possíveis para agredir, sem mensurar se há
-justiça ou não em suas atitudes insanas.
+At these times uses all possible weapons to assault, without measuring whether there is
+justice or not in their insane attitudes.
 
-Quanto mais fina a camada de verniz, mais facilmente surgirão as intimidações
-dos oponentes mostrando-lhes, de alguma forma, que estão investidas de algum
-poder, atrás do qual se protegem.
+The thinner the varnish layer, the more easily the intimidations will arise
+of opponents showing them, somehow, that they are invested in some
+power, behind which they protect themselves.
 
-Quando não se tem argumentos lógicos, justos e coerentes, apela-se para o
-grito, a carteirada ou a força bruta.
+When there are no logical, fair and coherent arguments, it is called for the
+scream, wallet or brute force.
 
-Jesus, o grande Sábio de todos os tempos, disse: Ai de vós, escribas e fariseus
-hipócritas, que são semelhantes a sepulcros caiados, vistosos por fora mas
-cheios de podridão por dentro. Assim também vós, por fora pareceis justos aos
-outros, mas por dentro estais cheios de hipocrisia e maldade.
+Jesus, the great Sage of all times, said: Ai of you, scribes and Pharisees
+hypocrites, who are similar to fallen tombs, flashy on the outside but
+full of rot inside. So you too, on the outside you seem fair to the
+others, but inside you are full of hypocrisy and wickedness.
 
-É essa maldade que vai aparecer sempre que ficar exposto o verdadeiro caráter
-do indivíduo, que está escondido por trás da polidez ou da falsa gentileza.
+It is this evil that will appear whenever the true character is exposed
+of the individual, who is hidden behind politeness or false kindness.
 
-Por tudo isso vale construir um bom caráter de dentro para fora, pois ninguém
-poderá se manter por muito tempo sobre bases falsas.
+For all this it is worth building a good character from the inside out, for no one
+can remain on false bases for a long time.
 
-Seja essencialmente gentil e sua gentileza se exteriorizará naturalmente, tão
-natural como o ato de respirar.
+Be essentially kind and your kindness will be externalized naturally, so
+natural as the act of breathing.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 20 de

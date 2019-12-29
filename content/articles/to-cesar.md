@@ -11,65 +11,65 @@ topics:
 - effort
 ---
 
-O Apóstolo Mateus, no capítulo vinte e dois de seu Evangelho, relata o momento
-no qual os fariseus, juntamente com os herodianos, tentam indispor o Cristo com
-a autoridade romana.
+The Apostle Matthew, in chapter twenty-two of his Gospel, recounts the moment
+in which the Pharisees, together with the Herodians, try to disdispose Christ with
+roman authority.
 
-Numa época em que qualquer crítica às decisões do Imperador era severamente
-punida, os sacerdotes, de maneira engenhosa, perguntaram a Jesus se era lícito
-ou não pagar impostos a César.
+At a time when any criticism of the Emperor's decisions was severely
+punished, priests, ingeniously, asked Jesus if it was lawful
+or not pay taxes to Caesar.
 
-Jesus, sabendo de sua malícia, pediu a um deles que lhe mostrasse a moeda
-utilizada para o tributo e, mostrando-a, interrogou-os quanto à imagem e a
-inscrição nela contidas. São de César, responderam.
+Jesus, knowing his malice, asked one of them to show him the currency
+used for the tribute and, showing it, questioned them about the image and
+inscription contained therein. They're Caesar's, they answered.
 
-Sendo assim, Jesus sentenciou: Dai a César o que é de César e a Deus o que é
-Deus. Tal afirmativa, tão simples e tão sábia, foi suficiente para surpreender
-os fariseus e lhes calar os intentos.
+Thus, Jesus condemned: Let Caesar what is caesar and God what is
+god. Such an affirmative, so simple and so wise, was enough to surprise
+the Pharisees and silence their intentions.
 
 *   *   *
 
-Com esse ensino, Jesus nos deixa clara a legitimidade de nossos deveres civis,
-como é o caso dos impostos e de outras obrigações. Nos dias de hoje, nada mais
-atual.
+With this teaching, Jesus makes clear the legitimacy of our civil duties,
+such as taxes and other obligations. These days, nothing more
+Current.
 
-Com o advento da internet, o mundo passou por uma revolução. Há um enorme fluxo
-de informações. Torna-se cada vez mais tênue a linha que separa a vida real da
-chamada vida virtual.
+With the advent of the Internet, the world has undergone a revolution. There is a huge flow
+information. It becomes increasingly tenuous the line that separates real life from the
+scorched virtual life.
 
-Compartilham-se arquivos, ideias. Trocam-se mensagens em tempo real. Milhões de
-e-mails são enviados todos os dias. Vende-se e compra-se praticamente tudo.
-Pessoas se conhecem via internet e se casam.
+Files are shared, ideas. Real-time messages are exchanged. Millions of
+emails are sent every day. You sell and buy pretty much everything.
+People know each other via the internet and get married.
 
-Entretanto, nem tudo são flores. Um hábito comum de muitos usuários da rede
-mundial de computadores é o de fazer o download de músicas, vídeos e até mesmo
-livros inteiros, sem atentar aos direitos autorais e às taxas devidas.
+However, it's not all flowers. A common habit of many network users
+computer worldwide is to download music, videos and even
+books, without paying attention to copyright and fees due.
 
-Em outra esfera, sonegam-se impostos, os quais são necessários para garantir
-aos cidadãos direitos, como moradia, educação, saúde e lazer.
+In another sphere, taxes are snooze, which are necessary to ensure
+citizens' rights, such as housing, education, health and leisure.
 
-Há ainda outros hábitos que, por tão comuns, quase se tornam naturais, mas que
-estão longe de serem morais. Por exemplo, sairmos alguns minutos antes de se
-encerrar o expediente, apanhar um livro emprestado e não devolver.
+There are still other habits that, by such common ones, almost become natural, but that
+are far from moral. For example, let's leave a few minutes before
+end the office, borrow a book and not return.
 
-Outros ainda, como perceber que o troco veio a mais e não restituí-lo ao caixa;
-apropriar-se de um dinheiro encontrado, sem fazer o mínimo esforço para
-encontrar o dono.
+Still others, how to realize that change came to oo and did not restore it to the box;
+appropriate of a money found without making the slightest effort to
+find the owner.
 
-Os nossos deveres para com a sociedade são tão relevantes quanto os nossos
-deveres para com Deus. Afinal, se não procuramos nos ajustar às leis humanas,
-como poderemos fazê-lo com relação às Leis Divinas?
+Our duties to society are as relevant as our
+duties towards God. After all, if we do not seek to adjust to human laws,
+how can we do so with respect to divine laws?
 
-Pensemos nisso e percebamos o quanto nossas ações, por vezes, estão baseadas
-num automatismo cultural, no qual certas tendências, não moralmente corretas,
-são aceitas como se o fossem.
+Let's think about it and realize how often our actions are based
+cultural automatism, in which certain trends, not morally correct,
+are accepted as if they were.
 
-Entretanto, os que buscamos viver de acordo com os ensinamentos do Cristo,
-devemos nos lembrar da máxima evangélica: Seja o vosso falar sim, sim; não,
-não. Isto é, uma atitude está de acordo com a moral cristã ou não está. Não há
-meio termo.
+However, those who seek to live according to the teachings of Christ,
+we must remember the evangelical maxim: Be your speaking yes, yes; No
+No. That is, an attitude is in accordance with Christian morality or is not. There is no
+middle ground.
 
-Pensemos nisso.           
+Let's think about it.           
 
 ## Source
 Redação do Momento Espírita, com base no item 5,

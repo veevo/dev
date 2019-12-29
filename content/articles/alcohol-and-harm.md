@@ -9,89 +9,89 @@ topics:
 ---
  
 
-O mundo atual está muito preocupado com o uso de drogas pesadas como a cocaína,
-o crack e outras, e há várias e justas razões para isso. Tais drogas agridem e
-destroem o homem física e moralmente, em pouco tempo.
+The current world is very concerned about the use of heavy drugs like cocaine,
+crack and others, and there are several fair reasons for it. Such drugs harm and
+they destroy man physically and morally in no time.
 
-Mas existe, correndo por fora e ganhando o páreo, uma outra droga que é aceita
-pela sociedade: chama-se bebida alcoólica.
+But there is, running on the outside and winning the race, another drug that is accepted
+by society: it is called alcoholic beverage.
 
-As pesquisas realizadas mostram os índices alarmantes de jovens e adolescentes
-que ingerem bebida alcoólica frequentemente.
+The research shows the alarming rates of young people and adolescents
+drinking alcohol frequently.
 
-E a faixa etária de iniciação aos alcoólicos está caindo, ou seja, crianças já
-fazem uso deles.
+And the age group of initiation to alcoholics is falling, that is, children already
+make use of them.
 
-A tal ponto que essa droga socialmente aceita surge na vida dos indivíduos
-antes mesmo da festa de 15 anos.
+To the point that this socially accepted drug arises in the lives of individuals
+even before the 15th birthday party.
 
-Os motivos que levam os alcoólicos a serem tão procurados pela garotada são
-simples.
+The reasons that lead alcoholics to be so sought after by the kids are
+Simple.
 
-Eles se encontram em um período em que a aprovação e a admiração dos amigos, da
-turma, é muito importante.
+They find themselves in a period when the approval and admiration of friends, the
+class, it's very important.
 
-Bebem porque assim fica mais fácil chegar na garota, é mais fácil rir e ficar
-na onda.
+Drink because so it makes it easier to get to the girl, it's easier to laugh and stay
+in the wave.
 
-O mais preocupante é que nem os pais, nem os jovens estão se dando conta que o
-vício está rondando. Os jovens acreditam que poderão parar quando quiserem. Que
-não são, nem serão dependentes.
+The most worrying is that neither parents nor young people are realizing that the
+addiction is prowling. Young people believe they can stop whenever they want. That
+are not, nor will they be dependent.
 
-A Organização Mundial de Saúde calcula que 10% dos adolescentes que bebem se
-tornarão alcoólatras. E 30% terão problemas com a saúde, acidentes de trânsito
-e outras consequências mais ou menos graves.
+The World Health Organization estimates that 10% of adolescents who drink are
+will make alcoholics. And 30% will have problems with health, traffic accidents
+and other more or less serious consequences.
 
-Não se imagina que tudo começa no que parece ser a inocente cervejinha.
+You can't imagine that it all starts with what seems to be the innocent beer.
 
-É comum a cena no final de tarde: adolescentes, jovens e adultos ao redor de
-uma mesa, em animada conversa, regada a chopp ou cerveja.
+It is common to scene in the late afternoon: teenagers, young people and adults around
+a table, in lively conversation, watered with chopp or beer.
 
-As garrafas vão se acumulando sobre a mesa enquanto se joga conversa fora.
+The bottles accumulate on the table while throwing conversation away.
 
-Os próprios pais não veem, normalmente, perigo ou problema algum em oferecer ao
-filho a cerveja. Como assistir ao futebol sem ela?
+Parents themselves do not normally see any danger or problem in offering the
+son to beer. How to watch football without her?
 
-Como ir a uma pescaria sem a loira gelada?
+How to go fishing without the icy blonde?
 
-Contudo, o abuso dos alcoólicos na adolescência acarreta muitos problemas no
-desenvolvimento psicológico.
+However, alcohol abuse in adolescence causes many problems in the
+psychological development.
 
-Nessa época, o adolescente tem frustrações e angústias e, bebendo, perde a
-oportunidade de enfrentá-las. O que não lhe permite amadurecer. O alcoólico
-passa a ser uma bengala.
+At this time, the teenager has frustrations and anguish and, drinking, loses the
+opportunity to face them. Which doesn't allow you to mature. The alcoholic
+becomes a cane.
 
-Quantos homens necessitam de um trago, de uma birita antes de fechar um
-contrato importante, de ir para a reunião para a concretização de um grande
-negócio?
+How many men need a drink, a birita before closing a
+important contract, to go to the meeting for the realisation of a large
+Business?
 
-Importante que se conscientizem os pais acerca do problema e ao invés de aderir
-à moda de tudo permitir, em matéria de bebida, passar a exemplificar a
-abstenção.
+Important that parents become aware of the problem and rather than adhere to
+in the fashion of all allow, in the field of drink, to exemplify the
+Abstention.
 
-Primeiro, não bebendo. Segundo, não servindo. Terceiro, não adquirindo.
+First of all, not drinking. Second, not serving. Third, not acquiring.
 
-Algumas pessoas que não bebem nada que contenha álcool porque dizem não
-apreciar, mantêm em seu lar para servir aos amigos, variados licores e vinhos,
-uísque e cerveja. Ficam até num lugar todo especial, em local privilegiado da
-sala.
+Some people who don't drink anything that contains alcohol because they say no
+enjoy, keep in your home to serve friends, varied liqueurs and wines,
+whiskey and beer. They are even in an all special place, in a privileged place of
+Room.
 
-Não seria mais viável se oferecer ao amigo o que se tem de melhor e não aquilo
-que mais cedo ou mais tarde o poderá destruir?
+It would no longer be feasible to offer his friend what is best and not that
+that sooner or later can destroy it?
 
-Está na hora de pensar. E pensar firme. Pensar bem.
+It's time to think. And think hard. Think about it.
 
 *   *   *
 
-O álcool inibe a censura fazendo com que as pessoas percam o autocontrole e a
-autocrítica.
+Alcohol inhibits censorship by causing people to lose self-control and
+Self.
 
-A razão desse comportamento está justamente no etanol, álcool etílico usado nas
-bebidas, que é uma substância repressora do Sistema Nervoso Central.
+The reason for this behavior is precisely in ethanol, ethyl alcohol used in the
+beverages, which is a repressive substance of the Central Nervous System.
 
-A alteração do comportamento se dá, mesmo quando usado em pequenas doses.
+The behavior change occurs, even when used in small doses.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no artigo Alerta máximo

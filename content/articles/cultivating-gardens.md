@@ -16,83 +16,83 @@ topics:
 - child
 ---
 
-Todos os dias, antes das seis da manhã, Francisco Toda se encontra na lida
-diária.
+Every day, before 6 a.m., Francisco Toda finds himself in the lida
+Daily.
 
-De rastelo na mão, adotou um terreno baldio, próximo à sua casa, que ele
-próprio transformou em jardim, em uma metrópole brasileira.
+From rastelo in hand, adopted a wasteland near his house, which he
+itself transformed into a garden, in a Brazilian metropolis.
 
-O incansável idoso, de oitenta e dois anos, dedica em torno de três horas
-diárias de seu tempo, a fim de deixar o local cada dia mais florido. Zeloso,
-também mantém limpas as calçadas próximas.
+The tireless elderly, aged eighty-two, dedicates around three hours
+daily of his time in order to leave the place more flourished. Zealous
+also keeps the sidewalks nearby clean.
 
-Eu tenho um lema: viver, amar, ser amado, ser reconhecido e ser útil, afirma o
-gentil descendente de japoneses, de boa conversa e sempre bem disposto.
+I have a motto: living, loving, being loved, being recognized and being useful, affirms the
+gentle descendant of Japanese, good conversation and always well disposed.
 
-No jardim, ele plantou rosas, hortências e dálias, além de uma exuberante
-costela-de-adão. Há também uma horta com couve-manteiga, cheiro-verde e
-hortelã.
+In the garden, he planted roses, horences and dahlias, as well as a lush
+adam's rib. There is also a vegetable garden with butter cabbage, green smell and
+Mint.
 
-Dedicado, o jardineiro construiu uma pequena mesa e quatro cadeiras de madeira,
-além de um balanço para as crianças.
+Dedicated, the gardener built a small table and four wooden chairs,
+in addition to a balance sheet for children.
 
-­Quero também fazer um escorregador, afirma ele, que tem o costume de deixar
-suas ferramentas no próprio jardim.
+I also want to make a slide, he says, who has the habit of leaving
+your tools in the garden itself.
 
-Já comprei o terceiro rastelo. Os dois primeiros, levaram. Gosto de pensar que
-quem os levou está fazendo limpeza em outro lugar, revela, risonho.
+I already bought the third rastelo. The first two took it. I like to think that
+whoever took them is cleaning elsewhere, reveals, laughing.
 
                                 *      *      *
 
-Das mãos do Divino Jardineiro, as sementes da vida são dispersas, sempre e sem
-cessar.
+From the hands of the Divine Gardener, the seeds of life are scattered, always and without
+Cease.
 
-Ao nos criar, lançando-nos na terra fecunda de Sua obra, quis Ele nos
-oportunizar sermos jardineiros também.
+In creating us, casting us on the fruitful land of His work, he wanted us to
+to be gardeners too.
 
-A cada um de nós concedeu um terreno especial, na própria intimidade. Atentos,
-contemplemos o horto que há em nossa paisagem interior.
+To each of us he has granted special ground in our own intimacy. Attentive
+we contemplate the horto that is in our inner landscape.
 
-Estamos cuidando bem dele? O que estamos semeando?
+Are we taking good care of him? What are we sowing?
 
-As exuberantes flores e os saborosos frutos que nascem em nossos jardins e que
-hoje colhemos resultam das boas sementes que, no passado, optamos por plantar.
+The lush flowers and tasty fruits that are born in our gardens and that
+today we harvest the result of the good seeds that, in the past, we chose to plant.
 
-De igual forma, as ervas daninhas que neles despontam são consequência do nosso
-descuido, das nossas más escolhas.
+Similarly, the weeds that emerge in them are a consequence of our
+carelessness, of our bad choices.
 
-Um jardineiro atento continuamente observa a terra que cultiva. Colhe os bons
-frutos, inebria-se com o doce perfume das flores.
+An attentive gardener continually observes the land he grows. Harvest the good ones
+fruits, inebriates with the sweet scent of flowers.
 
-Não esquece, porém, de arrancar as ervas daninhas, os frutos amargos, lançando
-fora as sementes impróprias.
+But do not forget to pluck the weeds, the bitter fruits, casting
+outside the inappropriate seeds.
 
-Temos todas as sementes ao nosso dispor, de todas as qualidades e tipos.
+We have all the seeds at our disposal, of all qualities and types.
 
-Sementes de amor, de perdão, de gratidão, de fé, de gentileza.
+Seeds of love, forgiveness, of gratitude, of faith, of kindness.
 
-Também sementes de ira, de ódio, de vaidade, de egoísmo, de orgulho.
+Also seeds of anger, hatred, vanity, selfishness, pride.
 
-A terra de nossos corações é fértil e receptiva às sementes que nela plantamos.
-Plantando amor, teremos um jardim colorido, vivo, de uma paz sublime e
-duradoura.
+The land of our hearts is fertile and receptive to the seeds we plant in it.
+Planting love, we will have a colorful, living garden of a sublime peace and
+Lasting.
 
-Plantando ódio, orgulho, vaidade, nosso jardim interior será paisagem cinzenta,
-fria, desarmoniosa.
+Planting hate, pride, vanity, our inner garden will be gray landscape,
+cold, disharmony.
 
                                    *   *   *
 
-O Divino Jardineiro é infinitamente justo e bom.
+The Divine Gardener is infinitely fair and good.
 
-Por Sua justiça, outorga-nos a responsabilidade de colhermos os frutos que
-livremente decidimos semear.
+For His righteousness, he gives us the responsibility to reap the fruits
+freely we decided to sow.
 
-Por Sua bondade, concede-nos diariamente a oportunidade de lançarmos fora os
-frutos ruins, repensarmos as nossas escolhas e renovarmos nosso jardim.
+For His kindness, he grants us daily the opportunity to throw away the
+bad fruits, rethink our choices and renew our garden.
 
-Quais sementes desejamos lançar à terra? Quais frutos desejamos colher?
+What seeds do we want to cast on earth? What fruits do we want to harvest?
 
-Pensemos nisso e escolhamos sempre as melhores opções.
+Let's think about it and always choose the best options.
 
 ## Source
 Redação do Momento Espírita, com

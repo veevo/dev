@@ -12,105 +12,105 @@ topics:
 ---
  
 
-O egoísmo é a fonte da maioria absoluta dos males que assolam a Humanidade.
+Selfishness is the source of the absolute majority of evils that plague humanity.
 
-A exagerada preocupação com os próprios interesses faz com que qualquer coisa
-que os contrarie tome desmedida importância.
+The exaggerated concern for their own interests causes anything
+that the contrary takes unmeasure importance.
 
-Essa forma equivocada e rasteira de perceber a vida a todos prejudica.
+This misguided and creepy way of perceiving life harms everyone.
 
-Primeiro, tira a paz do próprio egoísta, que se angustia em suas tentativas de
-submeter o mundo aos seus interesses.
+First, it takes away the peace of the selfish one himself, who is distressed in his attempts to
+submit the world to their interests.
 
-Segundo, causa danos à sociedade, que não pode ser harmônica enquanto seus
-integrantes se digladiam.
+Second, it causes harm to society, which cannot be harmonic as long as its
+members digladiam.
 
-Já a solidariedade e a preocupação com o bem-estar coletivo disseminam a
-felicidade.
+Solidarity and concern for collective well-being disseminate the
+Happiness.
 
-Tome-se como exemplo a questão da segurança.
+Take the issue of security as an example.
 
-Os habitantes das grandes cidades vivem em estado de alerta, com medo de serem
-molestados.
+The inhabitants of large cities live on alert, afraid of being
+Disturbed.
 
-Quem pode contrata serviço de vigilância para sua residência.
+Who can hire surveillance service for their residence.
 
-Há preocupação constante com os filhos e os parentes em geral.
+There is constant concern for children and relatives in general.
 
-Teme-se um assalto, um seqüestro relâmpago, um golpe de qualquer ordem.
+There are fears of a robbery, a lightning kidnapping, a blow of any order.
 
-Tal situação é típica de uma sociedade egoísta.
+Such a situation is typical of a selfish society.
 
-Se a preocupação com os próprios interesses fosse menor, poderiam ser
-encontradas formas de resolver o problema.
+If concern for their own interests were less, they could be
+found ways to solve the problem.
 
-Mas, para isso, o objetivo das criaturas não poderia ser fazer crescer a
-qualquer custo o próprio patrimônio.
+But for this, the purpose of creatures could not be to make the
+any cost to own equity.
 
-É bom e natural que os homens se preocupem em conquistar bens que lhes garantam
-uma vida digna, e fomentem o progresso.
+It is good and natural for men to worry about conquering goods that guarantee them
+a dignified life, and foster progress.
 
-Mas quando a busca das coisas materiais é exacerbada, ela causa grandes
-problemas.
+But when the search for material things is exacerbated, it causes great
+Problems.
 
-Numa sociedade em que a grande maioria está despreocupada com o bem-estar
-coletivo, as disparidades crescem.
+In a society where the vast majority are carefree about the well-being
+collective, disparities grow.
 
-É impossível que todos conquistem exatamente o mesmo nível de conforto.
+It is impossible for everyone to achieve exactly the same level of comfort.
 
-Os homens são diferentes em talentos e habilidades.
+Men are different in talents and abilities.
 
-Mas é necessário assegurar condições para que todos conquistem o mínimo
-indispensável a um viver digno.
+But it is necessary to ensure conditions for everyone to achieve the minimum
+indispensable to a dignified living.
 
-Quando o homem consegue ver o próximo como um semelhante, torna-se solidário.
+When man can see his neighbor as a similar one, he becomes supportive.
 
-A dor do outro dói tanto quanto a sua.
+The pain of the other hurts as much as yours.
 
-A miséria e o desemprego na casa do vizinho são tão trágicos como se fossem na
-sua residência.
+Misery and unemployment in the neighbor's house are as tragic as if they were in the
+residence.
 
-Imagine como seria bom viver em uma sociedade segura.
+Imagine how good it would be to live in a safe society.
 
-Sair tranqüilo na rua, mesmo à noite.
+Get out quietly on the street, right at night.
 
-Mandar seus filhos para a escola, certo de que ninguém os molestaria.
+Send your kids to school, certain no one would molest them.
 
-Está nas mãos de todos adotar as providências iniciais para uma reforma social.
+It is in everyone's hands to adopt the initial steps for social reform.
 
-Essa reforma principia pela modificação do próprio comportamento.
+This reform begins by the modification of one's own behavior.
 
-A reforma íntima é uma dura batalha.
+Intimate reform is a tough battle.
 
-É mais fácil vencer os outros do que a si mesmo.
+It's easier to beat others than yourself.
 
-Mas não há equívocos no Universo, que é regido pela Sabedoria Divina.
+But there are no misconceptions in the Universe, which is governed by Divine Wisdom.
 
-Cada qual vive no meio que lhe é mais adequado.
+Each one lives in the middle that is best suited to him.
 
-Se você deseja viver em paz, comece a burilar o seu interior.
+If you wish to live in peace, start circumventing your interior.
 
-Preste atenção em todas as suas atitudes que revelam egoísmo.
+Pay attention to all your attitudes that reveal selfishness.
 
-Esse egoísmo pode ser pessoal, familiar ou de classe.
+This selfishness can be personal, familiar, or classy.
 
-Analise o que você deseja para você, para sua família ou para sua classe
-profissional.
+Review what you want for you, your family, or your class
+Professional.
 
-Há como estender tais vantagens para os outros?
+Is there any way to extend such advantages to others?
 
-O custo de suas regalias não é excessivamente alto para os semelhantes?
+Isn't the cost of your perks overly high for the like?
 
-Certamente vale a pena moderar um pouco os próprios anseios, em prol de uma
-vida harmoniosa.
+It is certainly worth moderating a little the desires themselves, for the sake of a
+harmonious life.
 
-De nada adianta enriquecer causando o empobrecimento alheio.
+There's no point in getting rich causing the impoverishment of others.
 
-Não é possível viver em paz em meio à miséria e a dor dos semelhantes.
+It is not possible to live in peace amid the misery and pain of the like.
 
-A genuína felicidade surge quando se aprende a compartilhar.
+Genuine happiness arises when you learn to share.
 
-Quem experimenta a ventura da solidariedade jamais volta atrás.
+Those who experience the chance of solidarity never go back.
 
 ## Source
 Redação do Momento Espírita.

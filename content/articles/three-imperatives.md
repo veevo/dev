@@ -6,101 +6,101 @@ topics:
 - persistence
 ---
 
-Em uma conhecida passagem evangélica, Jesus afirma: Pedi e recebereis, Buscai e
-achareis, Batei e se abrirá.
+In a well-known Gospel passage, Jesus states: I ask and receive, Seek and
+you will find, Batei and open.
 
-Pedir, buscar e bater são os três imperativos da recomendação do Cristo.
+Asking, seeking and beating are the three imperatives of Christ's recommendation.
 
-O problema consiste em aplicar sabiamente esses comandos.
+The problem is to wisely apply these commands.
 
-A existência humana nem sempre é tranquila. Frequentemente não é fácil
-identificar a conduta correta.
+Human existence is not always quiet. It's often not easy
+identify the correct conduct.
 
-Perante os reclamos e os valores do mundo, a fronteira entre o certo e o errado
-se esfumaça.
+In the face of the claims and values of the world, the boundary between right and wrong
+vanished.
 
-Os convites mundanos são muito sedutores e se apresentam como algo razoável.
+Worldly invitations are very seductive and present themselves as something reasonable.
 
-Negá-los, às vezes, parece uma insensata submissão a hábitos demasiado rígidos.
+Denying them sometimes seems foolish submission to too rigid habits.
 
-Fica-se entre o dever e a vontade.
+It's between duty and will.
 
-Nesse embate, a razão, não raro, se impressiona com os exemplos alheios e
-apresenta o dever como conduta antiquada.
+In this clash, reason, not often, is impressed by the examples of others and
+presents duty as old-fashioned conduct.
 
-Surge a ideia de que, se todos fazem algo, isso deve ser normal.
+The idea arises that if everyone does something, that should be normal.
 
-O problema é que ninguém nasce na Terra para seguir exemplos desvirtuados e
-viver exóticas fantasias.
+The problem is that no one is born on Earth to follow distorted examples and
+live exotic fantasies.
 
-Todos os homens são Espíritos e sua morada natural é no plano espiritual.
+All men are Spirits and their natural abode is on the spiritual level.
 
-Quando aqui renascem é para cumprir programas de superação de velhos vícios e
-desenvolvimento de variadas virtudes.
+When reborn here is to fulfill programs to overcome old vices and
+development of various virtues.
 
-A finalidade do existir terreno é a transcendência, jamais a adoção de
-comportamento mais apropriado aos animais irracionais.
+The purpose of the existence of land is transcendence, never the adoption of
+more appropriate behavior to irrational animals.
 
-Embora as conveniências mundanas figurem determinados hábitos como aceitáveis,
-nem por isso eles deixam de comprometer espiritualmente quem os adota.
+Although worldly conveniences appear certain habits as acceptable,
+nor therefore they fail to compromise spiritually who adopts them.
 
-Os exemplos de condutas desvirtuadas são os mais diversos.
+Examples of distorted conduct are the most diverse.
 
-Tem-se a vivência sexual apartada de vínculos afetivos e de uma proposta de
-vida em comum.
+There is sexual experience separated from affective bonds and a proposal of
+common life.
 
-Há também a desonestidade de qualquer ordem, a indiferença perante os
-miseráveis, o abandono moral ou material de pais idosos ou enfermos.
+There is also the dishonesty of any order, indifference to the
+moral or material abandonment of elderly or sick parents.
 
-Embora se tente justificar com novos valores, com a correria da vida moderna,
-não há argumento que converta atos levianos e indignos em conduta louvável.
+Although it is tried to justify itself with new values, with the rush of modern life,
+there is no argument that converts frivolous and unworthy acts into commendable conduct.
 
-Nesse emaranhado de lutas e dúvidas, convém refletir sobre os três imperativos
-da exortação do Cristo.
+In this tangle of struggles and doubts, it is appropriate to reflect on the three imperatives
+of Christ's exhortation.
 
-É preciso aprender a pedir caminhos de libertação da antiga cadeia de maus
-hábitos.
+You have to learn to ask for ways of liberation from the old chain of bad
+Habits.
 
-É necessário desejar com força a saída do escuro círculo no qual a maioria das
-criaturas perde a visão dos interesses eternos.
+It is necessary to forcibly desire the output of the dark circle in which most
+creatures lose the vision of eternal interests.
 
-Após pedir com correção, impõe-se o buscar.
+After asking with correction, you impose yourself on the search.
 
-O ato de buscar constitui um esforço seletivo.
+The act of seeking is a selective effort.
 
-O mundo segue pleno de solicitações inferiores, mas urge localizar a ação digna
-e libertadora.
+The world remains full of lower requests, but it is urgent to locate the dignified action
+and liberating.
 
-Muitos perseguem miragens perigosas, como mariposas que se apaixonam pela
-claridade de um incêndio.
+Many pursue dangerous mirages, such as moths that fall in love with the
+clarity of a fire.
 
-Convém aprender a buscar o bem legítimo, o desejo de ser melhor, de superar-se,
-de transcender.
+It is appropriate to learn to seek the legitimate good, the desire to be better, to overcome ones,
+to transcend.
 
-Estabelecido o roteiro edificante, chega o momento de bater à porta da
-edificação.
+Established the uplifting script, the time comes to knock on the door of the
+Building.
 
-Bater tem o sentido de esforço metódico e contínuo.
+Hitting has the sense of methodical and continuous effort.
 
-Sem persistência, é difícil transformar as experiências humanas em fatores de
-libertação para a eternidade.
+Without persistence, it is difficult to transform human experiences into factors of
+liberation for eternity.
 
-Não basta, pois, pedir sem rumo, procurar sem análise e agir sem objetivo
-elevado.
+It is not enough, therefore, to ask aimlessly, to seek without analysis and act without objective
+High.
 
-Urge pedir ao Pai Celestial a libertação do passado de equívocos.
+It is urgent to ask Heavenly Father to deliver the past from misunderstandings.
 
-Mas também é preciso buscar atividades nobres e nelas localizar o próprio
-esforço de redenção.
+But it is also necessary to seek noble activities and locate in them the
+redemption effort.
 
-Pedir, buscar e bater.
+Ask, pick it up and knock.
 
-Esses três verbos contêm um roteiro de libertação, com destino a vivências
-sublimes.
+These three verbs contain a liberation script, intended for experiences
+Sublime.
 
-É necessário apenas bem utilizá-los.
+It is only necessary to use them well.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita, com base no cap.

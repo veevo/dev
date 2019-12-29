@@ -14,82 +14,82 @@ topics:
 - mother
 ---
 
-Um vídeo circulou pelas redes sociais. Mostrava algo bastante singelo e
-valioso: filhos adolescentes, jovens, ligando para seus pais para dizer
-simplesmente: Eu te amo.
+A video circulated on social media. It showed something quite simple and
+valuable: teenage children, young people, calling their parents to say
+simply: I love you.
 
-Eram ligações de celular, inesperadas, a qualquer hora do dia. O pai ou a mãe
-atendiam, ouviam um Olá e logo depois: Pai, mãe, eu queria dizer que te amo. Só
-liguei para dizer isso.
+They were unexpected cell phone calls at any time of the day.
+they answered, heard a hello and soon after: Father, Mother, I wanted to say that I love you. Just
+I called to say that.
 
-As reações foram belíssimas. Pais dizendo: Puxa, como é bom ouvir isso. Eu
-também te amo, meu filho.
+The reactions were beautiful. Parents saying, Wow, how good to hear that. I
+I love you too, my son.
 
-E do lado de cá, de quem estava fazendo as chamadas, da mesma forma: lágrimas
-de emoção de jovens que, raramente, ou nunca haviam proferido tais palavras.
+And on the side of here, who was making the calls, in the same way: tears
+of emotion of young people who had rarely, or never uttered such words.
 
-Como se o simples contato com essas palavras mágicas, quando verdadeiramente
-sentidas, já provocasse neles algum tipo de transformação.
+As if the simple contact with these magic words, when truly
+felt, already provoked in them some kind of transformation.
 
-Muitos podem dizer que o amor está subentendido, está nos gestos, na companhia
-diária, não exige provas. E que talvez não precise ser declarado.
+Many can say that love is implied, it is in gestures, in company
+daily, does not require evidence. And that maybe it doesn't have to be declared.
 
-Muitos temem ser pieguismo expressar-se dessa forma. Será?
+Many fear it is pieguism to express themselves in this way. Is?
 
-Banalizamos o Eu te amo, é certo, recitando-o da boca para fora muitas vezes,
-automaticamente.
+We trivialize the I love you, that's for sure, reciting it from the mouth out many times,
+Automatically.
 
-As paixões avassaladoras e efêmeras se apropriaram dele, tornando-o menor, pois
-da mesma forma que o amor nasce, voraz, também morre, triste, pouco tempo
-depois em relações vazias.
+The overwhelming and ephemeral passions appropriated him, making him minor, for
+in the same way that love is born, voracious, also dies, sad, little time
+then in empty relationships.
 
-O Eu te amo dos altares enfeitados, das grandes festas, não sobrevive às
-primeiras intempéries de muitos casamentos.
+I love you from the decorated altars, the big parties, you can't survive the
+first weather of many marriages.
 
-Esse amor das infinitas canções, das belas obras, mas também das puramente
-sentimentalistas, que nada acrescentam para a verdadeira arte.
+This love of infinite songs, of beautiful works, but also of purely
+sentimentalists, who add nothing to true art.
 
-Curioso. O Eu te amo foi dito tantas vezes que parece ter enfraquecido pelo
-mundo afora, praticamente caindo no esquecimento.
+Curious. The I love you has been told so many times that it seems to have weakened by the
+around the world, practically falling into oblivion.
 
                                    *   *   *
 
-Não falta amor nos poemas, nas músicas, nas bocas. Falta, sim, amar.
+There's no lack of love in the poems, in the songs, in the mouths. There's still a lack of love.
 
-Não falta amor nos lares, nas famílias: falta amar.
+There is no lack of love in homes, in families: there is no need to love.
 
-Não falta amor nos pensamentos, nas ideias: falta amar.
+There is no lack of love in thoughts, in ideas: there is no need to love.
 
-Não falta amor nas potências de nossa alma. Falta, sim, o movimento do amar.
+There is no lack of love in the powers of our soul. There is, yes, the movement of love.
 
-E muitas vezes, a expressão pura e simples desse amor já é grande parte desse
-amar.
+And often, the pure and simple expression of this love is already much of that
+Love.
 
-Quando verdadeiramente sentimos dentro de nós essa afeição profunda, esse
-querer bem, essa consciência do quão importante é aquela pessoa, nada mais
-natural do que dizer, do que extravasar.
+When we truly feel within ourselves this profound affection, this
+want well, this awareness of how important that person is, nothing more
+natural than to say, than extravasate.
 
-Bom para quem diz, pois se encharca de suas vibrações benfazejas e
-revigorantes.
+Good for those who say, because they soak up their benfazejas vibrations and
+Invigorating.
 
-Bom para quem ouve, pois recebe muito mais que palavras. Recebe o conforto, o
-aconchego e a gratidão que tal declaração guarda em si.
+Good for those who listen, because they get a lot more than words. It receives comfort, the
+warmth and gratitude that such a statement holds itself.
 
-Ouvir um Eu te amo de verdade, é como ser levado pelas mãos a um passeio, uma
-viagem para um mundo melhor, de menos preocupações e sofrimentos, um refrigério
-para a alma em luta na Terra.
+Listening to a Real I love you, it's like being taken by your hands for a walk, a
+journey to a better world, of less worries and suffering, a reflector
+to the soul in struggle on earth.
 
-Voltamos renovados, dispostos a seguir adiante e mais, voltamos conhecendo o
-amor um pouco melhor.
+We return renewed, willing to move forward and more, we come back knowing the
+love a little better.
 
-Ainda sabemos pouco do amor em sua profundidade. Estamos dando os primeiros
-passos depois de deixar o primitivismo necessário.
+We still know little of love in its depth. We're giving the first
+steps after leaving the necessary primitivism.
 
-Falta amar para encontrá-lo e permanecer nele por mais tempo.
+It remains to love to find him and stay in it longer.
 
-Falta amar para podermos declará-lo sem medo de pieguismos empobrecedores.
+We need to love so we can declare it without fear of impoverished pieguism.
 
-Falta apenas amar, nada mais.
+There's just one left to love, that's all.
 
 ## Source
 Redação do Momento Espírita.

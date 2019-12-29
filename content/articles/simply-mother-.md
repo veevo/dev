@@ -10,74 +10,74 @@ topics:
 - mother
 ---
 
-Deus, em Sua Criação, fez no infinito, um belo jardim. Pelo Universo lançou
-sementes de amor. Sol a sol, luz a luz, um por um, um por vez.
+God, in His Creation, made in infinity, a beautiful garden. Through the Universe launched
+seeds of love. Sun to sun, light to light, one by one, one at a time.
 
-Em todo o jardim encontramos o Criador. Em tudo, a divina assinatura. Feche os
-olhos, sinta e creia, procure.
+Throughout the garden we find the Creator. In everything, the divine signature. Close the
+eyes, feel and believe, look.
 
-No Universo, tudo é movimento, dinâmica, equilíbrio, perfeição. Não há pergunta
-sem resposta, não há efeito sem causa, conquista sem trabalho, mérito sem
-doação.
+In the Universe, everything is movement, dynamics, balance, perfection. There's no question
+unanswered, there is no effect without cause, conquest without work, merit without
+Donation.
 
-As sementes foram lançadas, espalhadas por onde a vista não alcança. Não há
-morte, não há fim. Em cada morte, um recomeço. Em cada fim, uma esperança.
+The seeds were cast, scattered through which the view does not reach. There is no
+death, there is no end. In every death, a fresh start. At every end, a hope.
 
 *   *   *
 
-Olhos atentos encontrarão a mais bela flor do jardim do Onipotente. Para ela,
-adjetivos diversos: ternura, vida, carinho, amor, devoção. Ou mãe, simplesmente
+Attentive eyes will find the most beautiful flower in the garden of the Omnipotent. For her,
+various adjectives: tenderness, life, affection, love, devotion. Or mother, simply
 .
 
 *   *   *
 
-Senhor, rogo a Ti por todas as mães.
+Sir, I pray to you for all the mothers.
 
-Em todo gesto de amor Tu te revelas e, ainda mais te encontro, ó Pai, no amor
-de mãe, pois sei que a maternidade é uma de Tuas faces.
+In every gesture of love You reveal yourself and, even more I find you, O Father, in love
+mother, for I know that motherhood is one of Your faces.
 
-Mães, Senhor. Mães que são exemplo de doação, de sacrifício, de abnegação, de
-generosidade, de fé.
+Mothers, sir. Mothers who are an example of giving, of sacrifice, selflessness,
+generosity, of faith.
 
-Rogo-te, Pai, pelas mães que, durante nove meses, carregaram em seus ventres os
-rebentos de amor e que, para toda a vida, continuam a lhes guiar os passos, a
-perdoar-lhes as fraquezas e a lhes ofertar o abraço reparador.
+I pray you, Father, for the mothers who, for nine months, carried in their wombs the
+sprouts of love and which, for life, continue to guide them in the footsteps, the
+forgive them for weaknesses and offer them the restorative embrace.
 
-Peço, também, pelas mães adotivas, que amam com desprendimento e desinteresse o
-filho de outras mães. E por aquelas que tiveram seus filhos desaparecidos,
-jamais recuperados e, assim, perderam parte de seu próprio coração.
+I also ask for adoptive mothers, who love with detachment and lack of interest the
+son of other mothers. And for those who had their children missing,
+never recovered and thus lost part of their own hearts.
 
-Eu te rogo, Deus do perdão, pelas mães presidiárias, que não podem estar junto
-dos seus e sofrem a aguda dor da saudade.
+I beg you, God of forgiveness, for the presidiary mothers, who cannot be together
+suffering the acute pain of longing.
 
-E, por aquelas que têm os filhos na prisão e que, esperançosas, depositam neles
-a confiança, aguardando retornem ao bom caminho que elas lhes apontaram.
+And for those who have their children in prison and who, hopeful, deposit in them
+trust, waiting to return to the good path they have pointed to them.
 
-Pelas mães doentes, acamadas, hospitalizadas. Que os bons Espíritos,
-cumpridores de Tua vontade, lhes fortaleçam os ânimos e derramem sobre elas o
-bálsamo de Teu consolo, misericórdia e paz.
+For sick mothers, alayers, hospitalized. That the good Spirits,
+fulfilling of Your will, strengthen their spirits and pour upon them the
+balm of Thy comfort, mercy, and peace.
 
-Rogo também pelas mães abandonadas. Aquelas que, na velhice, foram deixadas em
-asilos, derramando as lágrimas amargas da solidão.
+I also pray for the abandoned mothers. Those who, in old age, were left in
+asylums, shedding the bitter tears of loneliness.
 
-E pelas avós, tias, madrastas que, por amor, transformam netos, sobrinhos,
-enteados, em filhos do coração.
+And for grandparents, aunts, madrasts who, for love, transform grandchildren, nephews,
+stepchildren, in children of the heart.
 
-Ainda, Senhor da eternidade, te rogo pelas mães desencarnadas, esses
-verdadeiros anjos da guarda, que continuam a zelar pelos seus, pois compreendem
-que a maternidade não é mero fenômeno biológico e, sim, um laço eterno de
-almas.
+Yet, Lord of eternity, I pray you for the disincarnated mothers, these
+true angels of the guard, who continue to watch over their own, for they understand
+that motherhood is not merely a biological phenomenon and, yes, an eternal bond of
+Souls.
 
 *   *   *
 
-Doce mãe de Jesus, na singela manjedoura, Tu o acolheste em Teus braços. Teu
-coração, no silêncio, bateu no ritmo do dEle e Tu soubeste: era o Teu filho,
-também o filho de Deus.
+Jesus' sweet mother, in the simple manger, You have welcomed him into Your arms. Your
+heart, in silence, beat in the rhythm of Him and Thously: it was Your son,
+son of God, too.
 
-Acolhe, mãe por excelência, todas as mães do mundo em Teu amor. Faz do coração
-delas manjedoura para o Cristo Jesus, a fim de que Ele nasça no Espírito de
-cada filho deste nosso chão.
- 
+You welcome, mother par excellence, all the mothers of the world in Your love. Makes the heart
+of them manger for Christ Jesus, so that He may be born in the Spirit of
+every child of our ground.
+
 
 ## Source
 Redação do Momento Espírita.  

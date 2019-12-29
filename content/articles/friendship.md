@@ -13,102 +13,102 @@ topics:
 ---
 
 
-O homem é um ser gregário por natureza.
+Man is a gregarious being by nature.
 
-Ele sente necessidade de convívio e contato com os semelhantes.
+He feels the need for conviviality and contact with the like.
 
-Justamente por isso, estabelece vínculos ao longo de sua vida.
+Precisely for this, he establishes bonds throughout his life.
 
-Muitos desses vínculos são praticamente automáticos, como os que decorrem da
-estrutura familiar.
+Many of these links are virtually automatic, such as those that stem from the
+family structure.
 
-Contudo, algumas ligações originam-se apenas de afinidade e simpatia.
+However, some links originate only from affinity and sympathy.
 
-A amizade é uma forma de afeto muito peculiar.
+Friendship is a very peculiar form of affection.
 
-Habitualmente, afirma-se que os amigos são a família que se escolheu.
+It is usually stated that friends are the family that has chosen.
 
-A nobreza da amizade foi revelada pelo próprio Cristo.
+The nobility of friendship was revealed by Christ himself.
 
-Em determinada passagem do Evangelho, o Mestre afirmou que não mais chamava os
-Apóstolos de servos.
+In a certain passage of the Gospel, the Master stated that he no longer called the
+Apostles of servants.
 
-Chamava-os de amigos, pois lhes havia dado a conhecer o que ouvira do Pai.
+He called them friends, for He had made known what he had heard from the Father.
 
-Jesus ofertara a Seus discípulos o que de melhor possuía: a luz de Seus
-ensinamentos e o calor de Seu afeto.
+Jesus had offered His disciples what he best possessed: the light of His
+teachings and the warmth of His affection.
 
-Isso é o que caracteriza a amizade: a partilha do melhor de nosso ser.
+That's what characterizes friendship: sharing the best of our being.
 
-A amizade não envolve posse, exclusivismos ou busca de vantagens.
+Friendship does not involve possession, exclusionors or seeking advantages.
 
-Nada obriga a manutenção dos laços de amizade.
+Nothing forces the maintenance of bonds of friendship.
 
-É a expressão mais fraterna dos sentimentos.
+It's the most fraternal expression of feelings.
 
-Procura-se estar próximo ao semelhante apenas pelo prazer de sua companhia.
+It is sought to be close to the similar just for the pleasure of your company.
 
-Por ser tão precioso, esse vínculo deve ser bem cuidado.
+Because it is so precious, this bond must be well taken care of.
 
-Conquistar amigos pode ser mais fácil do que preservá-los.
+Winning friends can be easier than preserving them.
 
-Na aquisição de afetos, o carisma pessoal auxilia bastante.
+In the acquisition of affections, the personal charisma helps a lot.
 
-Mas a manutenção do vínculo exige dedicação.
+But maintaining the bond requires dedication.
 
-É necessário dispor-se a gastar algum tempo no cultivo do afeto que se
-granjeou.
+It is necessary to spend some time growing the affection that is
+you've won.
 
-Entretanto, o comportamento nobre e leal também se faz imprescindível.
+However, noble and loyal behavior is also indispensable.
 
-A manutenção dos amigos pouco tem a ver com lições de etiqueta ou boas
-maneiras.
+Keeping friends has little to do with label lessons or good
+Ways.
 
-Tais recursos muitas vezes apenas escondem o real caráter de quem aparenta
-afabilidade.
+Such resources often only hide the real character of those who appear to
+Affability.
 
-Relevante mesmo é burilar o próprio modo de ser, desenvolvendo nobreza e
-cordialidade.
+It is really relevant to circumvent the very way of being, developing nobility and
+Warmth.
 
-Considerando essa realidade, há inúmeras atitudes que se devem evitar no trato
-com os amigos.
+Considering this reality, there are numerous attitudes that should be avoided in the
+with friends.
 
-A agressividade, em palavras ou gestos, surpreende negativamente nossos afetos.
+Aggressiveness, in words or gestures, negatively surprises our affections.
 
-A negligência, consistente em dar pouca importância à presença e à palavra dos
-companheiros, faz com que não mais nos procurem.
+Negligence, consistent with giving little importance to the presence and word of
+partners, makes them no longer come to us.
 
-A irritação contínua torna nossa companhia enfadonha.
+Continuous irritation makes our company boring.
 
-A lamentação constante também converte nossa presença em um fardo pesado.
+Constant lamentation also converts our presence into a heavy burden.
 
-É preciso considerar que os outros também têm problemas.
+It is necessary to consider that others also have problems.
 
-Importa, pois, cultivar a jovialidade.
+It is therefore important to cultivate joviality.
 
-Ocultar as próprias dores, para não afligir inutilmente os semelhantes, é uma
-forma de caridade.
+Hiding their own pains, not to inuselessly afflict the fellow, is a
+form of charity.
 
-Assim, reflita sobre a importância dos amigos em sua vida.
+Thus, ponder the importance of friends in your life.
 
-Pense como eles lhe trazem alegria e tornam seu viver mais leve.
+Think about how they bring you joy and make your living lighter.
 
-Lembre-se do exemplo do Cristo, que deu o melhor de Si aos companheiros que
-escolheu.
+Remember the example of Christ, who gave the best of Himself to his companions who
+Chose.
 
-Não gaste os preciosos momentos que passa com seus amigos em futilidades,
-reclamações ou baixezas.
+Don't spend the precious moments you spend with your friends on futility,
+complaints or rascalities.
 
-Dê-lhes o seu melhor.
+Give them their best.
 
-Torne sua companhia uma fonte de equilíbrio, alegria e bem-estar.
+Make your company a source of balance, joy and well-being.
 
-Mostre-se confiável e disposto, quando necessitarem de você.
+Show yourself reliable and willing when they need you.
 
-Ame-os, com pureza e desinteressadamente.
+Love them, purityand disinterestedly.
 
-Afinal, amigos leais e calorosos são um dos maiores tesouros que se pode
-conquistar.
+After all, loyal and warm friends are one of the greatest treasures that can be
+Conquer.
 
 ## Source
 Redação do Momento Espírita, com base no cap. VII, do livro

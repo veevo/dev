@@ -13,99 +13,99 @@ topics:
 - respect
 ---
 
-Os homens são Espíritos destinados à angelitude.
+Men are Spirits destined for angelitude.
 
-Foram criados simples e ignorantes e gradualmente desenvolvem suas
-potencialidades e virtudes.
+They were created simple and ignorant and gradually develop their
+potentialities and virtues.
 
-Por muito tempo viveram os instintos em sua plenitude.
+For a long time they lived their instincts in their fullness.
 
-Atualmente, deixam de forma gradual a vida instintiva e pautam suas ações pela
-razão.
+Currently, they gradually leave instinctive life and guide their actions by the
+Reason.
 
-Nesse lento processo evolutivo, alguns antigos vícios perdem sua força e, em
-seu lugar, novas virtudes florescem.
+In this slow evolutionary process, some old vices lose their strength and, in
+their place, new virtues flourish.
 
-É no trato com os semelhantes que o homem toma contato com sua realidade
-espiritual.
+It is in dealing with the fellow men that man makes contact with his reality
+Spiritual.
 
-Dessa forma, os embates do dia a dia tornam possível ao ser humano perceber
-suas fraquezas.
+In this way, day-to-day clashes make it possible for humans to perceive
+their weaknesses.
 
-Ciente delas, ele pode se dedicar ao seu combate.
+Aware of them, he can devote himself to his combat.
 
-Um dos problemas morais bastante comum na Humanidade atual é a inveja.
+One of the moral problems quite common in today's humanity is envy.
 
-São Tomás de Aquino definiu esse vício como a tristeza que se tem em relação às
-coisas boas dos outros.
+St Thomas Aquinas defined this vice as the sadness that is made in relation to
+good things from others.
 
-O invejoso simplesmente se sente mal porque o próximo tem sucesso.
+The envious simply feels bad because the next one succeeds.
 
-Não há necessidade de que algo lhe falte. Ele apenas se considera diminuído com
-a grandeza ou conquista alheia.
+There's no need for anything to be missing. He only considers himself diminished with
+greatness or conquest of one's.
 
-Na realidade, por vezes, perdoamos mais facilmente um erro do nosso semelhante
-do que um acerto.
+In fact, sometimes we forgive more easily an error of our fellow
+than a hit.
 
-É mais fácil auxiliar quem cai do que suportar sua vitória.
+It's easier to help those who fall than endure their victory.
 
-Ante a fome e a enfermidade, não tardam mãos que auxiliam. Os benfeitores, sob
-o prisma material, sempre ocupam lugar de realce.
+In the face of hunger and illness, they will not soon have helping hands. The benefactors, under
+the material prism, always occupy a place of highlight.
 
-O auxílio aos miseráveis pode proporcionar, de algum modo, a satisfação da
-vaidade.
+Aid to the wretched can in some way provide the satisfaction of the
+Vanity.
 
-Bem mais difícil é ser feliz com a felicidade alheia.
+Much harder is to be happy with other people's happiness.
 
-Perante alguém que vence na vida, o ressentimento, com frequência, se apresenta
-e não lhe faltam fiscais e acusadores.
+In the face of someone who overcomes in life, resentment often presents
+and he lacks tax and accusers.
 
-Muitas vezes ouvimos a respeito de quem enriquece: Deve estar roubando!
+We often hear about who gets rich: He must be stealing!
 
-Na escola, o aluno que alcança boas notas não raramente é objeto de maldosas
-observações.
+At school, the student who achieves good grades is not rarely the object of evil
+Observations.
 
-Ele ganha apelidos grosseiros e sofre comentários pouco generosos.
+He earns rude nicknames and undergoes ungenerous comments.
 
-­Comenta-se que cola, que goza de favoritismos.
+Comment-I know that tail, which enjoys favoritism.
 
-A inveja está sempre muito presente em nossa sociedade.
+Envy is always very present in our society.
 
-A vontade de apontar os defeitos alheios é um indicativo desse vício em nós.
+The desire to point out the defects of others is indicative of this addiction in us.
 
-Trata-se de um problema moral bastante frequente e revelador de grande
-mesquinharia.
+This is a very frequent and revealing moral problem of great
+petty.
 
-Prestemos atenção ao nosso comportamento e se identificarmos a presença da
-inveja, apliquemos firmemente a vontade para nos libertarmos desse triste
-defeito.
+Pay attention to our behavior and identify the presence of
+envy, we firmly apply the will to free ourselves from this sad
+Defect.
 
-Lembremos que ser caridoso não é apenas amparar a miséria.
+Let us remember that being charitable is not just to support misery.
 
-Ser feliz com a felicidade alheia também é uma forma de caridade cristã.
+Being happy with other people's happiness is also a form of Christian charity.
 
-Valorizemos as conquistas e as virtudes dos outros, não esquecendo que somos
-todos companheiros na imensa jornada da vida.
+We value the achievements and virtues of others, not forgetting that we are
+all companions on the immense journey of life.
 
-Considerando que o clima psíquico da Terra é fruto da soma das vibrações de
-todas as criaturas que nela habitam, todos temos a ganhar com a felicidade dos
-semelhantes.
+Considering that the Earth's psychic climate is the result of the sum of vibrations of
+all the creatures that inhabit it, we all have to gain from the happiness of the
+Similar.
 
-Quando alguém se eleva, com ele se ergue toda a Humanidade.
+When someone rises, with it all humanity rises.
 
-Quando alguém cai, é prejuízo na economia moral do planeta.
+When someone falls, it's a detriment to the moral economy of the planet.
 
-Alegremo-nos com as vitórias de nossos irmãos.
+Let us rejoice in the victories of our brothers.
 
-Ao vencerem, eles não nos tiram nada.
+By winning, they take nothing from us.
 
-Muitas vezes nos dão preciosos exemplos, que podemos seguir.
+They often give us precious examples, which we can follow.
 
-Busquemos ser solidários nas dificuldades do próximo.
+Let us seek to be sympathetic in the difficulties of others.
 
-Mas participemos também, sinceramente, das suas alegrias.
+But let us also sincerely participate in your joys.
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no cap. VII, do

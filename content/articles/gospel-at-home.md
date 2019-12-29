@@ -13,87 +13,87 @@ topics:
 - family
 ---
 
-Em torno de cada um de nós existe uma psicosfera, formada por fluidos
-espirituais, que será boa ou má, de acordo com o nosso comportamento mental.
+Around each of us there is a psychosphere, formed by fluids
+that will be good or bad, according to our mental behavior.
 
-Quem vive num clima interior de desequilíbrio cria em torno de si uma
-psicosfera negativa. Naturalmente, quem cultiva virtudes morais e intelectuais
-estará envolvido numa atmosfera agradável.
+Those who live in an inner climate of imbalance create around themselves a
+negative psychosphere. Of course, those who cultivate moral and intellectual virtues
+will be involved in a pleasant atmosphere.
 
-Mas também os lugares possuem sua atmosfera espiritual peculiar. Esta será
-formada pelo conjunto de ideias, sentimentos e desejos nutridos pelos que ali
-vivem, trabalham e se movimentam.
+But the places also have their peculiar spiritual atmosphere. This will be
+formed by the set of ideas, feelings and desires nourished by those there
+live, work and move.
 
-Para dar uma ideia de quanto os ambientes espirituais nos afetam façamos uma
-analogia. Imagine uma sala fechada, encharcada de fumaça de cigarro e uma
-outra, bem arejada, iluminada pelo sol e onde ninguém fume: você certamente se
-sentiria melhor no segundo ambiente do que no primeiro.
+To give you an idea of how much spiritual environments affect us make a
+Analogy. Imagine a closed room, soaked in cigarette smoke and a
+another, well airy, illuminated by the sun and where no one smokes: you certainly get
+would feel better in the second environment than in the first.
 
-O que acontece em nível espiritual é mais ou menos a mesma coisa. Mas, ao invés
-da fumaça de cigarro, o que contamina os fluidos espirituais são os pensamentos
-de ódio, de malícia, de ironia... E o que os purifica são os sentimentos
-nobres, como a tolerância, a compreensão, a paciência.
+What happens on the spiritual level is more or less the same thing. But instead
+cigarette smoke, which contaminates spiritual fluids are the thoughts
+of hatred, of malice, of irony... And what purifies them are feelings
+noble, such as tolerance, understanding, patience.
 
-Muitas pessoas reclamam dizendo que não se sentem bem dentro de casa, isso é
-muito grave, especialmente sabendo que o lar simboliza para o ser humano o seu
-abrigo, a sua proteção. Ali, mais do que em qualquer outro lugar, ele deve se
-sentir bem.
+Many people complain that they don't feel good indoors, that's
+very serious, especially knowing that the home symbolizes for the human being his
+shelter, its protection. There, more than anywhere else, he must
+feel good.
 
-Então, o que fazer?
+So, what to do?
 
-Não existem soluções milagrosas, mesmo porque a paz depende do nosso esforço
-por conquistar equilíbrio interior. Mas há um hábito absolutamente positivo e
-que serve de antídoto contra muitos dos males que nos atingem: é a oração em
-família.
+There are no miraculous solutions, even because peace depends on our effort
+for gaining inner balance. But there is an absolutely positive habit and
+which serves as an antidote against many of the evils that reach us: it is prayer in
+Family.
 
-Sempre no mesmo dia e no mesmo horário os familiares se reúnem para ler uma
-página edificante e comentá-la.
+Always on the same day and at the same time, family members gather to read a
+uplifting page and comment on it.
 
-Aproveita-se a ocasião para conversar com o Criador através da oração,
-agradecendo pela existência, pedindo proteção...
+The occasion is taken to talk to the Creator through prayer,
+thanking you for the existence, asking for protection...
 
-A oração em família é o alimento para a alma e, muitas vezes, as dores e
-angústias que se abatem sobre nós são fruto de uma espécie de subnutrição
-espiritual.
+Family prayer is food for the soul and often pain so and
+anxieties that fall upon us are the fruit of a kind of malnutrition
+Spiritual.
 
-Colabore com uma psicosfera mais amena em sua casa, evitando gritos, discussões
-vazias e brigas sem sentido.
+Collaborate with a milder psychosphere in your home, avoiding screams, discussions
+empty and senseless fights.
 
-Mas faça mais, mande, através da oração, um convite ao Criador de todas as
-coisas para que Ele, com Sua presença luminosa, venha fazer parte da sua vida.
+But do more, send, through prayer, an invitation to the Creator of all
+things so that He, with His luminous presence, may come to be part of his life.
 
-A oração no lar, ante a sombra da indiferença e da maldade que teima em nos
-envolver nestes dias, é um farol de luz norteando uma Nova Era, a Era do amor.
-
-                                   *   *   *
-
-Somos Espíritos imperfeitos. É difícil encontrar uma pessoa que nunca se
-zangue, que não se magoe de vez em quando ou que jamais pense no mal.
-
-Daí percebemos que as nossas distonias emocionais acabam por perturbar os
-nossos ambientes, sobretudo o nosso próprio lar.
-
-Por isso é tão importante a oração em família. É o momento em que paramos para
-meditar, pensar na vida, sob a proteção dos espíritos bons.
-
-Converse com seus familiares e experimente por algum tempo acender esta luz
-dentro da sua casa.
-
-Pense nisso, mas, pense agora!
+Prayer in the home, before the shadow of indifference and wickedness that fears in us
+involved in these days, is a beacon of light guiding a New Age, the Age of love.
 
                                    *   *   *
 
-Sábio é o homem que conduz a vida sabendo para onde a vida o está levando.
+We are imperfect spirits. It's hard to find a person who never
+zangue, who does not get hurt from time to time or never think evil.
 
- 
+Hence we realize that our emotional dystonias end up disturbing the
+environments, especially our own home.
 
-                                                   Redação do Momento Espírita.
-                                                                 Em 22.10.2012.
+That's why family prayer is so important. This is the moment when we stop to
+meditate, think of life, under the protection of good spirits.
 
-voltar voltar imprimir imprimir este texto indique indique este texto
-voltar ao topo topo
-© Copyright - Momento Espírita - 2019 - Todos os direitos reservados - No ar
-desde 28/03/1998
+Talk to your family members and try on this light for some time
+inside your house.
+
+Think about it, but think about it now!
+
+                                   *   *   *
+
+Wise is the man who leads life knowing where life is taking him.
+
+
+
+                                                   Writing of the Spiritist Moment.
+                                                                 On 22.10.2012.
+
+back print print this text indicate this text
+back to the top top
+© Copyright - Spiritist Moment - 2019 - All rights reserved - On the air
+since 28/03/1998
 
 
 

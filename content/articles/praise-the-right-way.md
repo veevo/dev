@@ -9,73 +9,73 @@ topics:
 ---
  
 
-Recentemente um grupo de crianças passou por um teste muito interessante.
+Recently a group of children went through a very interesting test.
 
-Psicólogos propuseram uma tarefa de média dificuldade, mas que as crianças
-executariam sem grandes problemas. Todas conseguiram terminar a tarefa depois
-de certo tempo.
+Psychologists have proposed a task of medium difficulty, but that children
+would run without major problems. All managed to finish the task later
+of a certain time.
 
-Em seguida, foram divididas em dois grupos: o grupo A foi elogiado quanto à
-inteligência. Uau, como você é inteligente! Que esperta você é! Menino, que
-orgulho de ver o quanto você é genial! E outros elogios à capacidade de cada
-criança.
+Then they were divided into two groups: group A was praised for the
+Intelligence. Wow, how smart you are! How smart you are! Boy, who
+pride to see how great you are! And other compliments to the ability of each
+Child.
 
-O grupo B foi elogiado quanto ao esforço. Menina, gostei de ver o quanto você
-se dedicou na tarefa! Menino, que legal ter visto seu esforço! Que persistência
-você mostrou. Tentou, tentou, até conseguir, muito bem! E outros elogios
-relacionados ao trabalho realizado e não à criança em si.
+Group B was praised for the effort. Girl, I enjoyed seeing how much you
+dedicated himself to the task! Boy, how nice to have seen your effort! What persistence
+you showed it. He tried, tried, until he did, very well! And other compliments
+related to the work done and not to the child itself.
 
-Depois dessa fase, uma nova tarefa de dificuldade equivalente à primeira foi
-proposta aos dois grupos de crianças.
+After this phase, a new task of difficulty equivalent to the first was
+proposed to both groups of children.
 
-Elas não eram obrigadas a cumprir a tarefa, podiam escolher se queriam ou não,
-sem qualquer tipo de consequência.
+They were not obliged to accomplish the task, they could choose whether they wanted to or not,
+without any kind of consequence.
 
-As respostas das crianças surpreenderam. A grande maioria do grupo A
-simplesmente recusou a segunda tarefa.
+The children's answers surprised. The vast majority of group A
+simply refused the second task.
 
-As crianças não queriam nem tentar. Por outro lado, quase todas as do grupo B
-aceitaram tentar. Não recusaram a nova tarefa.
+The kids didn't even want to try. On the other hand, almost all of group B
+they agreed to try. They didn't refuse the new task.
 
-A explicação é simples e nos ajuda a compreender como elogiar nossos filhos: o
-ser humano foge de experiências que possam ser desagradáveis. As crianças
-inteligentes não querem o sentimento de frustração de não conseguir realizar
-uma tarefa, pois isso pode modificar a imagem que os adultos têm delas.
+Explanation is simple and helps us understand how to praise our children: the
+human being scares away from experiences that may be unpleasant. Children
+smart people don't want the feeling of frustration of not being able to accomplish
+a task, because this can modify the image that adults have of them.
 
-Se eu não conseguir, eles não vão mais dizer que sou inteligente.
+If I don't make it, they won't say I'm smart anymore.
 
-As esforçadas não ficam com medo de tentar, pois mesmo que não consigam é o
-esforço que será elogiado.
+The hardworking ones are not afraid to try, because even if they do not succeed is the
+effort that will be praised.
 
-No entanto, isso não é tudo. Além dos conteúdos escolares, nossos filhos
-precisam aprender valores, princípios e ética.
+However, that's not all. In addition to school content, our children
+need to learn values, principles and ethics.
 
-Precisam respeitar as diferenças, lutar contra o preconceito, adquirir hábitos
-saudáveis e construir amizades sólidas.
+They need to respect differences, fight prejudice, acquire habits
+healthy and build solid friendships.
 
-Não se consegue nada disso por meio de elogios frágeis, focados no ego de cada
-um. É preciso que sejam incentivados constantemente a agir assim. Isso se faz
-com elogios, feedbacks e incentivos ao comportamento esperado.
+You can't get any of this through fragile praise, focused on the ego of each
+A. They must be constantly encouraged to act like this. That's what you do
+compliments, feedbacks and incentives to expected behavior.
 
-Nossos filhos precisam ouvir frases como: Que bom que você o ajudou, você tem
-um bom coração. - Parabéns, meu filho, por ter dito a verdade apesar de estar
-com medo... Você é ético.
+Our children need to hear phrases like: How good that you helped him, you have
+a good heart. Congratulations, my son, for telling the truth even though i'm
+afraid... You're ethical.
 
-Filha, fiquei orgulhoso de você ter dado atenção àquela menina nova ao invés de
-tê-la excluído como algumas colegas fizeram... Você é solidária.
+Daughter, I was proud that you have paid attention to that young girl rather than
+have excluded her as some colleagues did... You're supportive.
 
-Elogios desse tipo estão fundamentados em ações reais e reforçam o
-comportamento da criança, que tenderá a repeti-los. Isso não é tática paterna,
-é incentivo real.
+Praise of this kind is based on real actions and reinforce the
+behavior of the child, who will tend to repeat them. That's not a father's tactic,
+it's real incentive.
 
-Elogiar superficialmente é mais fácil para os educadores, pois tais expressões
-quase sempre são padrões e não exigem reflexão por parte de quem as diz.
+Praising superficially is easier for educators, as such expressions
+are almost always standards and do not require reflection on the part of those who say them.
 
-Mas, os pais esforçados não devem estar atrás de soluções fáceis, mas sim das
-melhores soluções para a educação de seus rebentos.
+But hardworking parents should not be after easy solutions, but rather from the
+best solutions for the education of your sprouts.
 
-Aprendamos, assim, a elogiar corretamente, reforçando comportamentos positivos,
-contribuindo na formação de homens e mulheres de bem.
+Let us learn to praise correctly, reinforcing positive behaviors,
+contributing to the formation of good men and women.
 
 ## Source
 Redação do Momento Espírita com base no artigo Elogie do jeito certo, de Marcos

@@ -11,91 +11,91 @@ topics:
 - responsibility
 ---
 
-Há uma passagem no Evangelho na qual Jesus afirma: Buscai e achareis.
+There is a passage in the Gospel in which Jesus states: Seek and find.
 
-É interessante notar que a atividade consistente em buscar pressupõe um certo
-esforço.
+It is interesting to note that consistent activity in seeking presupposes a certain
+Effort.
 
-Quem procura alguma coisa movimenta os recursos de que dispõe para encontrá-la.
+Those looking for something move the resources they have to find it.
 
-A promessa do Cristo é que quem procura acha.
+Christ's promise is that the one who seeks to think.
 
-Assim, resta a cada um analisar qual é a sua busca pessoal.
+Thus, it remains for each one to analyze what their personal search is.
 
-A liberdade rege o Universo e cada alma decide o caminho que deseja trilhar.
+Freedom governs the Universe and each soul decides the path it wants to go.
 
-Caso a criatura se encante pelas ilusões mundanas, terminará por vivê-las, em
-alguma medida.
+If the creature is enchanted by worldly illusions, it will eventually live them, in
+some measure.
 
-O resultado varia conforme os meios de que estiver disposta a lançar mão e o
-esforço que despender.
+The result varies depending on the means that you are willing to use and the
+effort to spend.
 
-Tudo tem um custo na vida, inclusive a preguiça e a inércia.
+Everything has a cost in life, including laziness and inertia.
 
-Quem opta pelo comodismo arca com o elevado preço das oportunidades
-desperdiçadas.
+Who opts for arca comdism with the high price of opportunities
+Wasted.
 
-Considerando a efemeridade da vida humana, convém refletir bem a respeito do
-que se elege por meta.
+Considering the ephemerality of human life, it is appropriate to reflect well on the
+that is elected by goal.
 
-O que realmente compensa buscar com afinco?
+What really pays to get it hard?
 
-Alguns gastam suas energias para enriquecer.
+Some spend their energies to enrich.
 
-Contudo, as incertezas do mundo dos negócios por vezes causam dolorosas
-surpresas.
+However, the uncertainties of the business world sometimes cause painful
+Surprises.
 
-Ainda que um homem logre enriquecer, ele não poderá levar a própria fortuna ao
-morrer.
+Even if a man succeeds in enriching himself, he cannot take his own fortune to the
+Die.
 
-Fatalmente deixará seus haveres para trás, ao retornar para a pátria
-espiritual.
+Fatally leave your possessions behind as you return to the homeland
+Spiritual.
 
-Assim, conquanto nobres e necessárias, as atividades econômicas não constituem
-a razão do existir.
+Thus, while noble and necessary, economic activities do not constitute
+the reason for the existence.
 
-A vida é triunfante e jamais se acaba, mas a experiência do corpo físico não
-dura mais do que algumas décadas.
+Life is triumphant and never ends, but the experience of the physical body does not
+lasts more than a few decades.
 
-Justamente por isso, tudo o que se liga à matéria constitui apenas instrumento
-para realizações maiores.
+Precisely for this, everything that binds to matter is only an instrument
+for larger achievements.
 
-Não é sensato confundir os meios com os fins, sob pena de preparar amargas
-surpresas para si próprio.
+It is not wise to confuse the means for the purposes, otherwise bitter preparation
+surprises for himself.
 
-Constitui desatino comprometer a própria dignidade em troca de gozos fugazes.
+It is a desatine to compromise one's own dignity in exchange for fleeting jouissance.
 
-Os valores e os êxitos mundanos ficam no caminho.
+Worldly values and successes get in the way.
 
-Entretanto, a consciência o Espírito leva consigo aonde quer que vá.
+However, the conscience the Spirit takes with it wherever it goes.
 
-Na carne ou fora dela, não pode se livrar de si próprio.
+In the flesh or outside it, you can't get rid of yourself.
 
-Ciente disso, reflita sobre suas opções.
+Aware of this, reflect on your options.
 
-O que você incessantemente busca, com quais objetivos gasta suas energias?
+What do you incessantly seek, with what goals you spend your energies?
 
-Dentro de cem anos, suas metas atuais terão alguma relevância?
+Within a hundred years, will your current goals have any relevance?
 
-Sem olvidar suas responsabilidades humanas, não seria mais sensato cuidar de
-seus interesses imortais?
+Without olvidating their human responsibilities, it would not be wiser to take care of
+their immortal interests?
 
-Você achará o que procurar, assevera o Evangelho.
+You will find what to look for, assert the Gospel.
 
-Pode ser que o salário de suas buscas sejam roupas caras, passeios e gozos os
-mais diversos.
+It may be that the salary of your searches are expensive clothes, tours and enjoyments the
+more diverse.
 
-Nessa hipótese retornará ao plano espiritual na condição de um mendigo.
+In this hypothesis he will return to the spiritual plane as a beggar.
 
-Mas pode optar por ser alguém generoso e de hábitos puros, um autêntico alento
-para seus irmãos de jornada.
+But you can choose to be someone generous and pure habits, an authentic encouragement
+for his brothers on the journey.
 
-Se resolver buscar com afinco sua libertação de vícios e mediocridades,
-fatalmente atingirá essa meta.
+If you try to pursue your release of vices and mediocrities hard,
+will fatally reach this goal.
 
-O resultado será uma dignidade espiritual que o acompanhará para sempre.
+The result will be a spiritual dignity that will accompany you forever.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

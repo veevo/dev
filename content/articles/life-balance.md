@@ -9,95 +9,95 @@ topics:
 - prayer
 ---
 
-Como anda você? Está sempre on-line, conectado às redes sociais, sabendo de
-quase tudo a respeito do que fazem seus amigos e os amigos dos seus amigos?
+How are you doing? It is always online, connected to social networks, knowing of
+almost everything about what do your friends and friends of your friends do?
 
-Sempre em dia com as fofocas, em tempo real?
+Always up to date with gossip in real time?
 
-Você é daqueles que não pode ficar desconectado em momento algum, pois teme
-perder a notícia mais recente?
+You are one of those who cannot stay disconnected at any time, for fear
+miss the latest news?
 
-Você tem centenas e centenas de amigos virtuais e se vangloria disso?
+Do you have hundreds and hundreds of virtual friends and boast about it?
 
-Entre esses, é possível que se encontrem pessoas que jamais viu, nem tem bem
-clara a ideia de onde vivem, o que verdadeiramente apreciam.
+Among these, it is possible that people have never seen, nor do they have any good
+clear the idea of where they live, which they truly appreciate.
 
-Também, com certeza, amigos de muito tempo.
+Also, for sure, long friends.
 
-Responda agora: há quanto tempo vocês não se encontram pessoalmente?
+Answer now: How long have you not met in person?
 
-Entretanto, o contato pessoal é muito importante, pois nada substitui o calor
-de um abraço, um olhar profundo de olhos nos olhos.
+However, personal contact is very important, as nothing replaces the heat
+of a hug, a deep eye-to-eyes.
 
-Assim, não deixe escapar a chance de sentir o calor de um aperto de mão, a
-agradável sensação de ouvir o coração do amigo batendo apressado, ante a emoção
-do reencontro.
+So don't miss the chance to feel the heat of a handshake, the
+pleasant feeling of hearing the heart of the friend beating hurried, before the emotion
+of the reunion.
 
-Aproveite esses momentos, promova-os e viva-os em totalidade.
+Enjoy these moments, promote them and live them in full.
 
-E, quando sair de casa, aproveite para observar o seu entorno. Deixe o aparelho
-eletrônico no bolso ou na bolsa.
+And when you leave the house, take the opportunity to observe your surroundings. Leave the appliance
+in the pocket or purse.
 
-Você está habituado a receber diariamente, via virtual, dezenas de imagens
-espetaculares, de lugares paradisíacos e com elas se extasia.
+You are used to receiving dozens of images daily, via virtual,
+spectacular, from paradisiacal places and with them is ecstatic.
 
-No entanto, você deixa de apreciar o jardim da sua casa, os canteiros da rua
-por onde transita.
+However, you stop enjoying the garden of your home, the street beds
+where it transits.
 
-Percebeu que uma rosa amarela desabrochou e derrama pétalas coloridas,
-atapetando o chão?
+He noticed that a yellow rose blossomed and pours colorful petals,
+carpeting the floor?
 
-Notou que o vento da noite arrancou as folhas dos arbustos e preparou um
-delicado ninho de fofura sobre a grama?
+He noticed that the wind of the night tore the leaves of the bushes and prepared a
+delicate nest of cuteness on the grass?
 
-Deu-se conta de que a árvore balança seus ramos, em saudação a você, que passa?
+Did you realize that the tree shakes its branches, in greeting you, that passes?
 
-Sentiu como a ramagem exala delicado e característico perfume, em resposta ao
-fustigar da chuva da madrugada?
+It felt like the delicate exude scent extension, in response to the
+fustigar from the rain of dawn?
 
-Se você está com amigos, desligue o celular, esqueça o Ipad, fique off-line.
+If you're with friends, turn off your phone, forget about the iPad, stay offline.
 
-E conecte-se, fique on-line com quem está com você. Olhos nos olhos, converse,
-ouça.
+And connect, stay online with whoever's with you. Eyes on the eyes, talk,
+Listen.
 
-Já se disse que a voz humana é o mais excelente instrumento musical que existe
-sobre a Terra. Sirva-se dele como quem dedilha as cordas ou acaricia um
-teclado.
+It has been said that the human voice is the most excellent musical instrument there is
+upon earth. Serve himself as the one who fingers the ropes or caresss a
+Keyboard.
 
-Ouça e grave, na acústica da alma, a voz dos seus amigos, cada qual com seu
+Listen and grave, in the acoustics of the soul, the voice of your friends, each with your
 timbre particular.
 
-Ouça o que dizem. Eles poderão narrar detalhes da viagem fantástica, que
-realizaram há pouco e você compartilhará do seu entusiasmo.
+Listen to what they say. They will be able to narrate details of the fantastic trip, which
+accomplished earlier and you will share your enthusiasm.
 
-Ou, quem sabe, lhes ouvirá o relato das dores que os abraçam e lhes poderá
-enxugar algumas lágrimas.
+Or, who knows, will hear them account of the pains that embrace them and may
+wipe some tears.
 
-Um dia, quando a solidão o envolver, você poderá fechar os olhos, acionar as
-lembranças e ouvir o cristalino som do riso ou o balbuciar de um soluço.
+One day, when loneliness involves you, you can close your eyes, trigger the
+memories and hear the crystalclear sound of laughter or the babbling of a hiccup.
 
-Isso é viver, conviver.
+That's living, living.
 
-Pense nisso. Analise. E ponha em prática, hoje ainda. Telefone. (Não mande um
-torpedo nem digite uma mensagem). Telefone e combine uma saída com seus amigos,
-com seus primos, sobrinhos.
+Think about it. Analyze. And put it into practice today. Phone. (Don't send a
+torpedo or enter a message). Phone and arrange an exit with your friends,
+with his cousins, nephews.
 
-Delicie-se com os sorrisos, com a companhia. Depois, repita isso várias outras
-vezes, plenificando-se de felicidades, sentindo a irresistível vontade de
-reprisar as mesmas e salutares emoções, que alimentam a alma e alegram as
-horas.
+Indulging in the smiles, with the company. Then repeat this several other
+times, plenifying themselves with happiness, feeling the irresistible will to
+to reprise the same wholesome emotions, which nourish the soul and rejoice the
+Hours.
 
-                                                   Redação do Momento Espírita.
-                                                                  Em 28.6.2014.
+                                                   Writing of the Spiritist Moment.
+                                                                  On 28.6.2014.
 
- 
 
-Escute o áudio deste texto
 
-voltar voltar imprimir imprimir este texto indique indique este texto
-voltar ao topo topo
-© Copyright - Momento Espírita - 2019 - Todos os direitos reservados - No ar
-desde 28/03/1998
+Listen to the audio of this text
+
+back print print this text indicate this text
+back to the top top
+© Copyright - Spiritist Moment - 2019 - All rights reserved - On the air
+since 28/03/1998
 
 
 ## Source

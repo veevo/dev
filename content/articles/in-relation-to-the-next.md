@@ -6,81 +6,81 @@ topics:
 - empathy
 ---
 
-Conviver, relacionar-se é inerente à condição humana.
+Living, relating is inherent to the human condition.
 
-Para bem vivermos em sociedade, desenvolvemos, ao longo dos séculos, conquistas
-civilizatórias capazes de tornar a convivência mútua mais suave, mais
-agradável.
+For the sake of living in society, we have developed, over the centuries, achievements
+civilisations capable of making mutual coexistence smoother, more
+Nice.
 
-Assim, hoje não é mais aceitável que dejetos sejam jogados em via pública. Na
-Idade Média, no entanto, isso era corriqueiro. Considerado comportamento comum.
+Thus, today it is no longer acceptable for waste to be thrown on public roads. In
+Middle Ages, however, this was commonplace. Considered common behavior.
 
-Na atualidade, faz parte da educação respeitar os locais públicos, tais como
-prédios, jardins, parques, o transporte coletivo, a escola.
+Today, it is part of education to respect public places, such as
+buildings, gardens, parks, public transport, school.
 
-Esse é nosso primeiro movimento positivo em relação ao próximo: a educação.
+This is our first positive movement in relation to others: education.
 
-Agimos educadamente quando cedemos o lugar à pessoa idosa no transporte, assim
-como quando respeitamos a fila e a vez das pessoas, em qualquer lugar.
+We act politely when we cede the place to the elderly in transport, so
+like when we respect people's queue and turn, anywhere.
 
-Porém, pensando no próximo, podemos ir um pouco mais além.
+However, thinking about the next one, we can go a little further.
 
-Por exemplo, além de educados, podemos ser simpáticos.
+For example, in addition to polite, we can be nice.
 
-Assim, se somos educados ao cumprimentar o caixa do supermercado, poderemos ser
-simpáticos se o cumprimentarmos com um sorriso.
+So if we're polite to greet the supermarket cashier, we can be
+nice if we greet him with a smile.
 
-Somos simpáticos quando perguntamos ao porteiro Como vai?, extrapolando a
-educação que nos pede simplesmente para saudá-lo.
+We're nice when we ask the doorman How are you?, extrapolating the
+education that asks us simply to greet you.
 
-A simpatia gera laços de relação com nosso próximo, o que a mera educação não
-exige e a civilização não obriga.
+Sympathy creates bonds of relationship with our neighbor, which mere education does not
+demands and civilization does not oblige.
 
-Entretanto, podemos não nos limitar a sermos simpáticos, agradáveis. Em alguns
-momentos, a vida nos sugere que sejamos mais que isso.
+However, we may not just be nice, nice. In some
+moments, life suggests that we be more than that.
 
-É o convite para nos servirmos da empatia, esse exercício de nos colocarmos no
-lugar do outro para compreendermos suas dificuldades.
+It is the invitation to serve ourselves in empathy, this exercise of putting ourselves in the
+place of the other to understand their difficulties.
 
-A empatia nasce, justamente, da compreensão emocional das dificuldades e
-problemas alheios.
+Empathy is precisely born from the emotional understanding of difficulties and
+other people's problems.
 
-Com empatia, julgamos menos e compreendemos mais porque entendemos as
-limitações e circunstâncias do próximo. Como consequência, teremos um olhar
-mais doce para ele.
+With empathy, we judge less and understand more because we understand the
+limitations and circumstances of the next. As a consequence, we will have a look
+sweetest to him.
 
-Até mesmo as reações mais desagradáveis do outro nos atingirão de forma mais
-amena, com menor intensidade.
+Even the most unpleasant reactions of the other will reach us more
+mild, with lower intensity.
 
-E, além da empatia, é possível estreitar ainda mais os nossos laços, em relação
-ao próximo.
+And in addition to empathy, it is possible to further strengthen our bonds, in relation to
+to the next one.
 
-Nesse sentido, o movimento mais nobre que podemos exercitar é o da compaixão.
+In this sense, the noblest movement we can exercise is compassion.
 
-Se a empatia é a compreensão, a compaixão é a ação.
+If empathy is understanding, compassion is action.
 
-Tomados de compaixão, somos capazes de extrapolar nossos interesses a fim de
-agir em benefício do outro, sem nenhum ganho pessoal.
+Taken with compassion, we are able to extrapolate our interests in order to
+act for the benefit of the other without any personal gain.
 
-Na compaixão nosso movimento é o de minimizar as dores de quem padece, física
-ou moralmente.
+In compassion our movement is to minimize the pains of those who suffer, physical
+or morally.
 
-A compaixão é a dinâmica do amor colocada em ação.
+Compassion is the dynamics of love put into action.
 
-Educação, simpatia, empatia e compaixão são movimentos amorosos.
+Education, sympathy, empathy and compassion are loving movements.
 
-Ao exercitá-los, lembremos que há sempre um patamar acima, onde podemos avançar
-nas conquistas íntimas de nossa alma.
+As we exercise them, let us remember that there is always a level above, where we can advance
+in the intimate conquests of our soul.
 
-Se somos educados, adicionemos ao nosso comportamento a simpatia.
+If we are polite, add to our behavior sympathy.
 
-Se a simpatia já é nossa conquista, avancemos pelos degraus da empatia.
+If sympathy is already our achievement, let us go through the steps of empathy.
 
-Se já compreendemos o outro nas suas dificuldades, avancemos tentando
-minimizá-las, tomados de compaixão.
+If we already understand each other in their difficulties, let's move forward trying to
+minimize them, taken with compassion.
 
-Dessa forma, a pouco e pouco, avançaremos, no grande desafio que nos propõe
-Jesus, de amar ao próximo como a nós mesmos.
+In this way, little by little, we will move forward, in the great challenge that proposes to us
+Jesus, to love others as ourselves.
 
 ## Source
 Redação do Momento Espírita.  

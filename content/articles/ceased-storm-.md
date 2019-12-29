@@ -17,85 +17,85 @@ topics:
 ---
  
 
-Em uma passagem do Evangelho, narra-se que os Apóstolos se encontravam em um
-barco, em plena tempestade.
+In a passage from the Gospel, it is narrated that the Apostles were in a
+boat, in the middle of the storm.
 
-No meio do mar, a embarcação era açoitada pelas ondas e por fortes ventos.
+In the middle of the sea, the vessel was flogged by waves and strong winds.
 
-Em dado momento, Jesus, que estava orando em um monte, dirigiu-se para junto
-dos Apóstolos, andando sobre as águas.
+At one point, Jesus, who was praying on a hill, addressed himself to together
+of the Apostles, walking on the waters.
 
-Os Apóstolos se assustaram muito, até que o Cristo os tranquilizou.
+The Apostles were very frightened, until Christ reassured them.
 
-Pedro pediu que Jesus o fizesse ir até Ele, por sobre as águas.
+Peter asked Jesus to make him go to Him, through the waters.
 
-O Mestre assentiu e o chamou.
+The Master nodded and called him.
 
-Pedro começou a andar sobre o mar, mas teve medo e principiou a afundar.
+Peter began to walk over the sea, but was afraid and began to sink.
 
-Jesus estendeu a mão e o socorreu, lamentando a pequenez da fé do pescador.
+Jesus reached out and rescued him, lamenting the smallness of the fisherman's faith.
 
-Quando o Messias subiu no barco, o vento acalmou.
+When the Messiah got on the boat, the wind calmed down.
 
-Essa passagem evangélica possui extrema beleza e profunda significação.
+This Gospel passage has extreme beauty and deep meaning.
 
-À parte o inegável poder de Jesus sobre os elementos, pode-se fazer uma leitura
-focada no poder transformador de Sua mensagem.
+Apart from Jesus' undeniable power over the elements, one can make a reading
+focused on the transformative power of His message.
 
-No mundo, as criaturas padecem vergastadas pelo vendaval das suas paixões.
+In the world, creatures suffer vergastado by the gale of their passions.
 
-Muitas contraem variadas enfermidades pelo descontrole no comer e no beber.
+Many contract various illnesses by the lack of control in eating and drinking.
 
-Outras sucumbem aos tóxicos de variadas nomenclaturas.
+Others succumb to the toxics of various nomenclatures.
 
-Há quem perca a dignidade no desregramento sexual.
+Some lose their dignity in sexual unrulerity.
 
-São incontáveis os vícios e grandes os prejuízos que causam.
+There are countless vices and great damage they cause.
 
-Gula, vaidade, egoísmo, crueldade, desonestidade e destemperanças as mais
-diversas ensejam funestas consequências.
+Gluttony, vanity, selfishness, cruelty, dishonesty and most
+consequences.
 
-Muitas das criaturas que se infelicitam, realmente gostariam de viver com
-dignidade e todas desejam ser felizes.
+Many of the creatures that are uncongratulated, would really like to live with
+dignity and all wish to be happy.
 
-Embora alguns desatinos pareçam sedutores, cedo ou tarde mostram seu lado
-amargo.
+Although some desatinos seem seductive, sooner or later show their side
+Bitter.
 
-O problema é que muitos se afirmam frágeis em excesso para vencer suas más
-tendências.
+The problem is that many claim to overrail to overcome their bad
+Trends.
 
-Não é possível ser ingênuo e imaginar que a renovação moral se dê por um passe
-de mágica.
+It is not possible to be naïve and imagine that moral renewal takes a pass
+of magic.
 
-Maus hábitos cristalizados por longo tempo não somem apenas porque a criatura
-decidiu mudar.
+Bad habits crystallized for a long time don't just disappear because the creature
+decided to change.
 
-Entretanto, a renovação é sempre possível e corre por conta da perseverança de
-quem a deseja.
+However, renewal is always possible and runs because of the perseverance of
+who wants it.
 
-Nessa luta contra as trevas internas, surge a importância da fé.
+In this struggle against inner darkness, the importance of faith arises.
 
-Pedro afundou por duvidar, conforme assentou o Cristo.
+Peter sank out of doubt, as Christ sat.
 
-Então, importa acreditar firmemente que a retificação da própria realidade
-espiritual é possível.
+So it is important to firmly believe that the rectification of reality itself
+spiritual is possible.
 
-Talvez hajam algumas quedas, mas a crença no sucesso necessita estar sempre
-presente.
+Maybe there are some falls, but the belief in success needs to always be
+This.
 
-Essa crença será tão mais efetiva quanto mais se baseie nas propostas do
-Cristo.
+This belief will be as effective as the more based on the proposals of the
+Christ.
 
-A vivência da fraternidade, da esperança e da pureza constitui o maior antídoto
-contra as ilusões do mundo.
+The experience of fraternity, hope and purity is the greatest antidote to
+against the illusions of the world.
 
-Quando Jesus realmente adentra o barco da vida de alguém, cessam as tormentas
-das paixões.
+When Jesus really enters the boat of someone's life, the storms cease
+of passions.
 
-Surge a paz, não como um privilégio, mas como  consequência natural de uma vida
-digna.
+Peace arises, not as a privilege, but as a natural consequence of a life
+Worthy.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 3, do livro A mensagem do

@@ -9,84 +9,84 @@ topics:
 - prayer
 ---
 
-A humildade é uma das mais difíceis virtudes a ser conquistada.
+Humility is one of the most difficult virtues to be conquered.
 
-Humildade significa virtude caracterizada pela consciência das próprias
-limitações. Modéstia, simplicidade.
+Humility means virtue characterized by the consciousness of the very
+Limitations. Modesty, simplicity.
 
-Para alcançá-la precisamos nos despir do orgulho exacerbado aceitando que não
-somos infalíveis, que nem sempre estamos certos.
+To achieve it we need to undress from the exacerbated pride accepting that no
+we are foolproof, that we are not always right.
 
-Aceitar que nos encontramos a caminho, como os demais, que longa ainda será a
-jornada que nos cabe empreender.
+Accept that we find ourselves on our way, like the others, that long will still be the
+journey that is up to us to undertake.
 
-Fundamental, nesse processo de conquista da humildade, o autoconhecimento que
-nos permitirá a consciência de como estamos, tanto em limitações como em
-qualidades conquistadas.
+Fundamental, in this process of conquest of humility, the self-knowledge that
+will allow us to become aware of how we are, both in limitations and in
+qualities achieved.
 
-Sim, porque ser humilde é aceitar plenamente os próprios defeitos e qualidades,
-sem a necessidade de invocar a vaidade.
+Yes, because being humble is to fully accept one's own defects and qualities,
+without the need to invoke vanity.
 
-A humildade é essencial para os relacionamentos sadios.
+Humility is essential to healthy relationships.
 
-Quando somos humildes, respeitamos o próximo e, por nos reconhecermos
-igualmente imperfeitos, manifestamos compaixão para com os que erram.
+When we are humble, we respect others and, because we recognize ourselves
+equally imperfect, we express compassion for those who make mistakes.
 
                                    *   *   *
 
-No nosso processo evolutivo, mudar hábitos arraigados, cultivar virtudes, mais
-que necessidade, nos constitui um grande desafio.
+In our evolutionary process, change entrenched habits, cultivate virtues, more
+what a need, it is a great challenge to us.
 
-É preciso nos conscientizarmos dessa necessidade e utilizarmos os recursos
-possíveis para alcançarmos o objetivo.
+We need to become aware of this need and use the resources
+possible to achieve the goal.
 
-As virtudes, uma vez conquistadas, passam a fazer parte da nossa riqueza
-espiritual.
+The virtues, once conquered, become part of our wealth
+Spiritual.
 
-Não existe mercado que as venda, nem quem nos possa presenteá-las. Preciso é
-que atentemos para a necessidade do seu cultivo na própria intimidade, desde
-que todos as trazemos em germe.
+There is no market that sells them, nor who can give them to us. What I need is
+that we have met for the need for their cultivation in our own intimacy, provided that
+that we all bring them into germ.
 
-A fé raciocinada nos pode ser auxiliar, nesse objetivo.
+Reasoned faith can be assisting us in this goal.
 
-Para a conquista da humildade, essa flor linda e delicada que deve florir no
-jardim de nossos corações, precisamos, principalmente, nos conscientizar da
-nossa pequenez e das nossas dificuldades.
+For the conquest of humility, this beautiful and delicate flower that must bloom in the
+garden of our hearts, we mainly need to raise awareness of the
+our smallness and our difficulties.
 
-Nada melhor do que nos dispormos à oração sincera, numa rogativa de quem
-conhece as próprias deficiências e as fragilidades da alma:
+Nothing better than willingness to sincerely prayer, in a pleative of those who
+knows the shortcomings and weaknesses of the soul:
 
-Deus de misericórdia!
+God of mercy!
 
-Se algum êxito me busca, deixa-me perceber a Tua bondade sobre a fraqueza que
-ainda sou.
+If any success seeks me, let me realize your kindness about the weakness that
+I still am.
 
-Deus de misericórdia!
+God of mercy!
 
-Auxilia-me a conservar o anseio de encontrar-Te.
+Help me keep the longing to find You.
 
-Quando haja tumulto, ao redor de mim, guarda-me o silêncio interior em que
-procure ouvir-Te a voz.
+When there is turmoil, around me, it keeps my inner silence in which
+try to hear your voice.
 
-Diante dos outros, consente, Pai, que Te assinale o infinito amor,
-valorizando-me a insignificância, através daqueles que me concedam afeto.
+Before others, consent, Father, to mark the infinite love to you,
+valuing insignificance, through those who grant me affection.
 
-Se aparecerem adversários em meu caminho, faze-me vê-los como sendo
-instrumentos de trabalho, dentre aqueles com que me aperfeiçoas.
+If opponents appear in my way, make me see them as being
+instruments, among those with which you perfect me.
 
-Na alegria, induze-me a descobrir-Te a proteção paternal, estimulando-me a
-seguir para a frente.
+In joy, induce me to discover your paternal protection, stimulating me to
+move forward.
 
-Na dor, fortalece-me os ouvidos para que Te escutem os chamamentos de paz.
+In pain, my ears strengthen me so they can hear the calls of peace.
 
-E, quanto mais possa conhecer, em minha desvalia, os recursos iluminados do
-oceano de mundos e de seres que construístes no Universo,
+And the more I may know, in my disworth, the enlightened resources of the
+ocean of worlds and beings you have built in the Universe,
 
-Concede-me, Deus de misericórdia,
+Grant me, God of mercy,
 
-Que eu tenha a simplicidade da gota d'água que, embora unicamente anônima gota
-d'água, se sente tranquila e feliz porque se vê capaz de refletir-Te a luz no
-brilho eterno da Criação.
+That I have the simplicity of the water drop that, though only anonymous drop
+of water, feels quiet and happy because one finds himself able to reflect the light on the
+eternal brightness of Creation.
 
 ## Source
 Redação do Momento Espírita, com base no cap.

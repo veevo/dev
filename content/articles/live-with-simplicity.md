@@ -12,91 +12,91 @@ topics:
 - family
 ---
 
-Uma vida simples, com prazeres singelos. Parece atraente? Para alguns, a poesia
-da vida simples é uma aspiração.
+A simple life with simple pleasures. Does it look attractive? For some, poetry
+of simple life is an aspiration.
 
-Não são muitos, mas aumenta a cada dia os que buscam um estilo de vida mais
-despojado.
+Not many, but increases every day those who seek a more lifestyle
+Stripped.
 
-Enquanto a grande massa se mostra adepta dos benefícios oferecidos pelas
-cidades, aos poucos o homem se mostra cada vez mais cansado da rotina urbana,
+While the large mass is adept at the benefits offered by
+cities, gradually man is increasingly tired of urban routine,
 enlouquecedora.
 
-Poluição, engarrafamentos, ruídos. A floresta de edifícios a se perder no
-horizonte, escondendo céu e sol.
+Pollution, traffic jams, noises. The forest of buildings to be lost in the
+horizon, hiding sky and sun.
 
-Tudo isso contribui para os estresses e angústias do homem contemporâneo.
+All this contributes to the stresses and anguish of contemporary man.
 
-Quando jovem, é natural que as pessoas desejem os desafios e facilidades das
-cidades, que oferecem objetos de desejo a cada esquina.
+As a young man, it is natural for people to desire the challenges and facilities of
+cities, which offer objects of desire at every corner.
 
-São as maravilhas da tecnologia, os bares da moda, as roupas de grife, os belos
-escritórios, as carreiras.
+They are the wonders of technology, the fashion bars, the designer clothes, the beautiful
+offices, careers.
 
-Tudo isso exerce tremendo fascínio. Mas, aos poucos, é possível observar que
-esse modelo está se esvaziando. Um certo cansaço começa a ser notado.
+All this exerts tremendous fascination. But gradually, it is possible to observe that
+this model is emptying. A certain tiredness begins to be noticed.
 
-Uma expressão vem ganhando espaço: qualidade de vida. São cada vez mais
-numerosos os que desejam voltar aos ideais de uma vida simples, uma casa no
-campo, um contato mais estreito com a natureza.
+An expression has been gaining space: quality of life. They are increasingly
+those who wish to return to the ideals of a simple life, a house in the
+field, a closer contact with nature.
 
-Querem respirar ar puro, ver um pôr do sol dourado, passar noites de
-tranquilidade em uma rede preguiçosa, manter conversas de fim da tarde.
+They want to breathe fresh air, watch a golden sunset, spend nights of
+tranquility in a lazy network, keep late afternoon conversations.
 
-A sensação que se tem é que a Humanidade, afinal, começa a perceber que a vida
-é muito mais do que prazeres passageiros.
+The feeling that one has is that humanity, after all, begins to realize that life
+it's much more than passenger pleasures.
 
-As razões para o esgotamento do modo de vida urbano são o consumismo
-desenfreado e a sensação de estar numa corrida permanente.
+The reasons for the exhaustion of the urban way of life are consumerism
+rampant and the feeling of being in a permanent race.
 
-No trabalho, o desafio é a competitividade, que atropela o ser humano e o
-consome, transformando-o em peça de uma fria engrenagem.
+At work, the challenge is competitiveness, which runs over the human being and the
+consumes it, turning it into a piece of a cold gear.
 
-É um processo perverso, que suga as energias, estimula ciúmes e transforma em
-inimigos os que deveriam trabalhar em harmonia.
+It is a perverse process, which sucks energy, stimulates jealousy and transforms into
+enemies who should work in harmony.
 
-E uma pergunta costuma ser feita por quem está nessa roda-viva: dá para viver
-com simplicidade nas grandes cidades?
+And a question is usually asked by those who are in this living wheel: you can live
+with simplicity in the big cities?
 
-É possível conciliar as exigências de uma carreira, da vida social e da família
-com uma rotina mais amena?
+It is possible to reconcile the demands of a career, social life and the family
+with a more mild routine?
 
-A resposta é... Sim! É possível conciliar tudo isso. Não é tarefa muito fácil,
-mas pode ser realizada.
+The answer is... Yes! You can reconcile all this. It's not a task too easy,
+but can be accomplished.
 
-Isso porque a simplicidade não é feita de demonstrações exteriores. Ela é um
-estado de espírito.
+That's because simplicity is not made of exterior demonstrations. She's a
+state of mind.
 
-Não precisamos nos vestir de trapos, nem abrir mão de uma vida normal para ser
-pessoas simples.
+We don't have to dress in rags or give up a normal life to be
+simple people.
 
-A simplicidade está em viver a vida sem exigências descabidas. Quem opta pela
-simplicidade, descomplica o dia a dia.
+Simplicity is in living life without misplaced demands. Who chooses the
+simplicity, uncomplicates everyday life.
 
-Muitas vezes nos perdemos em detalhes completamente desnecessários. E, com
-isso, tornamos insuportável a nossa vida e a dos outros.
+We often get lost in completely unnecessary detail. And with
+this, we make our lives and that of others unbearable.
 
-Observe com atenção e você perceberá: fazemos exigências demais por causa de
-coisas mínimas, das quais nem nos lembramos depois de algum tempo.
+Notice carefully and you will notice: we make too many demands because of
+minimal things, which we don't even remember after a while.
 
-Por isso, a opção de viver com simplicidade é, antes de tudo, um jeito de
-agradecer a Deus pelo que recebemos.
+Therefore, the option of living with simplicity is, first of all, a way of
+thank God for what we have received.
 
-Simplicidade é ter sonhos. Mas, se eles não se realizam, por alguma razão,
-ainda assim a vida não perde a graça. Ou seja, apesar das tempestades, o
-contentamento permanece inabalável.
+Simplicity is having dreams. But if they don't realize themselves for some reason,
+yet life does not lose grace. That is, despite the storms, the
+contentment remains unwavering.
 
-Quer ser feliz? Seja simples. Experimente o prazer das coisas que estão ao seu
-redor!
+You want to be happy? Be simple. Experience the pleasure of the things that are at your
+Around!
 
-Olhe para o céu, veja as nuvens tingidas de ouro no infinito azul.
+Look at the sky, see the gold-dyed clouds in the blue infinity.
 
-Ouça o som das risadas espontâneas, sinta o frescor de um copo d’água, o sabor
-de uma fruta, a serenidade de uma noite bem dormida.
+Listen to the sound of spontaneous laughs, feel the freshness of a glass of water, the taste
+of a fruit, the serenity of a well-slept night.
 
-Veja a beleza de livros e canções. Quem disse que não há prazer nas coisas
-pequeninas que Deus pôs ao nosso alcance?
- 
+See the beauty of books and songs. Who says there's no pleasure in things
+little ones God has put within our reach?
+
 
 ## Source
 Redação do Momento Espírita.

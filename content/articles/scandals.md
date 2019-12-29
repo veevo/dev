@@ -6,98 +6,98 @@ topics:
 - generosity
 ---
 
-Em determinada passagem do Evangelho, Jesus afirma serem os escândalos
-necessários no mundo, mas Ai de quem os provoca.
+In a certain passage of the Gospel, Jesus claims to be the scandals
+necessary in the world, but Ai of whom provokes them.
 
-No sentido vulgar do termo, escândalo significa evento ruidoso, que causa
-alvoroço ou estrépito.
+In the vulgar sense of the term, scandal means noisy event, which causes
+uproar or strepid.
 
-Nessa linha, o problema residiria não no conteúdo da conduta, mas na sua
-repercussão.
+In this line, the problem would reside not in the content of the conduct, but in its
+Repercussion.
 
-Desde que uma ação má não gerasse alarde, não haveria maiores problemas.
+As long as bad action didn't generate fanfare, there would be no bigger problems.
 
-Ocorre que esse sentido valoriza as aparências e a hipocrisia, em franco
-desacordo com as lições do Cristo.
+It turns out that this sense values appearances and hypocrisy, in frank
+disagreement with the lessons of Christ.
 
-Jesus afirmou, ao tratar do adultério, por exemplo, que o mero pensar com
-impureza já era condenável.
+Jesus stated, in dealing with adultery, for example, that the mere thinking with
+impurity was already reprehensible.
 
-Que se dirá então de ações francamente nefastas, apenas cometidas na surdina?
+What will you say then of frankly nefarious actions, only committed in the deaf?
 
-Parece possível interpretar a palavra escândalo, na acepção evangélica, como
-tudo o que causa tropeço ou embaraço nos caminhos próprio ou alheio.
+It seems possible to interpret the word scandal, in the evangelical sense, as
+all that causes stumbling or embarrassment in the ways of one's own or others.
 
-Tudo o que resulta dos vícios e imperfeições humanas, tudo o que viola os
-deveres de pureza e fraternidade, isso é um escândalo perante as Leis Divinas.
+All that results from human vices and imperfections, everything that violates the
+duties of purity and brotherhood, this is a scandal before divine laws.
 
-Mas qual a razão para os escândalos serem necessários?
+But what's the reason the scandals are needed?
 
-O cerne da questão reside na evolução ainda incipiente dos habitantes da Terra,
-mormente no que diz respeito à moral.
+The crux of the issue lies in the still incipient evolution of the inhabitants of the Earth,
+especially with regard to morals.
 
-O planeta, ainda por um tempo, será morada de Espíritos rebeldes às Leis
-Divinas.
+The planet, still for a while, will be the abode of rebellious spirits to the Laws
+Divine.
 
-Mais do que em decorrência das condições materiais da Terra, a vida aqui é
-difícil por conta dos nossos inúmeros vícios.
+More than due to the earth's material conditions, life here is
+difficult because of our numerous vices.
 
-Violência, corrupção, promiscuidade, tudo isso gera infelicidade e transtornos.
+Violence, corruption, promiscuity, all this generates unhappiness and disorders.
 
-Muitos são os escândalos produzidos diariamente pelos homens, em sua
-imperfeição.
+Many are the scandals produced daily by men, in their
+Imperfection.
 
-Salvo o caso das almas missionárias, os Espíritos radicados na Terra têm
-afinidade de sentimentos e valores, em maior e menor grau.
+Except for the case of missionary souls, the Spirits rooted on earth have
+affinity of feelings and values, to a greater and lesser degree.
 
-O contato recíproco de criaturas viciosas tem variados efeitos.
+Reciprocal contact of vicious creatures has varied effects.
 
-Ele provoca inevitável sofrimento pelo contínuo entrechoque de interesses.
+It causes inevitable suffering by the continued shock of interests.
 
-É cansativo defender-se cotidianamente da maldade alheia e conviver com
-esperteza e deslealdade.
+It is tiring to defend one's daily evil from others and to live with
+cleverness and disloyalty.
 
-Esse contato também propicia o acertamento de dívidas cósmicas.
+This contact also provides the correctness of cosmic debts.
 
-No longo processo de aprendizado da vida, o Espírito comete equívocos que
-precisa reparar.
+In the long learning process of life, the Spirit makes misconceptions that
+need to repair.
 
-Ele necessita acertar-se com sua consciência, a fim de habilitar-se para
-estágios superiores da vida imortal.
+He needs to get himself right with his conscience in order to qualify for
+upper stages of immortal life.
 
-Também precisa adquirir paciência e generosidade e isso apenas se consegue
-perante criaturas falhas.
+You also need to gain patience and generosity and that is only achieved
+before faulty creatures.
 
-Afinal, os anjos não desafiam a paciência de ninguém e nem necessitam de
-favores ou clemência.
+After all, angels do not challenge anyone's patience and do not need
+favors or leniency.
 
-Finalmente, o contato com o vício faz com que os homens lentamente se desgostem
-dele.
+Finally, contact with addiction causes men to slowly disengage
+Him.
 
-O espetáculo das baixezas humanas é triste. Com o transcorrer do tempo faz
-surgir o ideal de vivências diferentes, plenas de pureza e compaixão.
+The spectacle of human rascals is sad. Over time, it makes
+the ideal of different experiences, full of purity and compassion, emerge.
 
-Assim, nos estágios ainda inferiores da vida moral, o escândalo é infelizmente
-necessário.
+Thus, in the even lower stages of moral life, the scandal is unfortunately
+Necessary.
 
-Mas ai do escandaloso, pois responde por todo o mal que causa, ainda que deste
-surja indiretamente o bem.
+But there of the scandalous, for he responds for all the evil he causes, even if he
+the good arises indirectly.
 
-Quando os homens se depurarem, o escândalo se tornará desnecessário e
-desaparecerá.
+When men debug themselves, the scandal will become unnecessary and
+Disappear.
 
-Eventuais acertos com a justiça cósmica se processarão na forma de efetivo
-trabalho no bem, a consubstanciar o amor que cobre a multidão de pecados, no
-dizer evangélico.
+Any successes with cosmic justice will be in the form of effective
+work in good, to embody the love that covers the multitude of sins, in the
+say evangelical.
 
-Assim, para alcançar a libertação de injunções dolorosas, cuide para não causar
-escândalo.
+Thus, in order to achieve the release of painful injunctions, take care not to cause
+Scandal.
 
-Se alguém lhe fizer o mal, saiba que o verdadeiro prejudicado é o escandaloso.
+If anyone does evil to you, know that the real harm is the scandalous.
 
-Ele desafia as Leis Divinas e desencadeia graves consequências na própria vida.
+He defies divine laws and unleashes serious consequences in life itself.
 
-Quanto a você, perdoe e siga adiante.
+As for you, forgive and move on.
 
 ## Source
 Redação do Momento Espírita.  

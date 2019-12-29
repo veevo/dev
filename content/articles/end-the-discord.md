@@ -16,101 +16,101 @@ topics:
 - serenity
 ---
 
-A harmonia plena ainda constitui um sonho distante de qualquer organização
-humana.
+Full harmony still constitutes a distant dream of any organization
+Human.
 
-Os homens guardam grandes diferenças entre si.
+Men keep big differences between themselves.
 
-Diversos fatores induzem a distintas formas de entender e viver a vida.
+Several factors induce different ways of understanding and living life.
 
-A educação recebida no lar, as experiências profissionais e afetivas, os
-professores e os amigos.
+The education received at home, professional and affective experiences,
+teachers and friends.
 
-Todos esses elementos contribuem para a singularidade da personalidade humana.
+All these elements contribute to the uniqueness of human personality.
 
-A diversidade produz a riqueza.
+Diversity produces wealth.
 
-Se todos os homens pensassem do mesmo modo, o marasmo e a mesmice tomariam
-conta do mundo.
+If all men thought likewise, marasmus and sameness would take
+account of the world.
 
-Uma assembleia ou equipe composta de forma heterogênea possui grande potencial.
+A heterogeneous assembly or team has great potential.
 
-Ocorre que conviver em harmonia com o diferente pressupõe maturidade.
+It turns out that living in harmony with the different presupposes maturity.
 
-Em qualquer gênero de relacionamento humano, é necessário respeitar o próximo.
+In any human relationship genre, it is necessary to respect others.
 
-Mas é preciso também manter o foco em um objetivo maior.
+But you also need to stay focused on a bigger goal.
 
-Toda associação humana possui uma finalidade.
+Every human association has a purpose.
 
-No âmbito profissional, busca-se o crescimento da empresa na qual se participa.
+In the professional sphere, we seek the growth of the company in which it is participated.
 
-Na esfera familiar, colima-se a educação e o preparo de seus membros para a
-vida, em um contexto de dignidade.
+In the family sphere, the education and preparation of its members for the
+life, in a context of dignity.
 
-Em uma associação filantrópica, tem-se por meta a prática do bem.
+In a philanthropic association, the practice of good is aimed at.
 
-A noção clara do objetivo que se persegue facilita a convivência.
+The clear notion of the objective pursued facilitates coexistence.
 
-O fato de alguém discordar de suas ideias não significa que esteja contra você.
+The fact that someone disagrees with your ideas doesn't mean they're against you.
 
-O relevante é verificar qual o modo mais eficiente de atingir a meta almejada
-pelo grupo.
+The relevant thing is to verify the most efficient way to achieve the desired goal
+by the group.
 
-A convivência humana raramente deixa de produzir algum atrito.
+Human coexistence rarely ceases to produce some friction.
 
-Mas é preciso saber calar a discórdia.
+But you have to know how to shut up the discord.
 
-Se o embate de ideias e posições não é ruim, a agressividade e o radicalismo
-sempre o são.
+If the clash of ideas and positions is not bad, aggressiveness and radicalism
+always are.
 
-Pense sobre as instituições que você integra.
+Think about the institutions you integrate.
 
-Sua presença em tais ambientes visa ao interesse coletivo, ou à exaltação de
-seu ego?
+Its presence in such environments aims at the collective interest, or the exaltation of
+your ego?
 
-É melhor afastar-se delas do que, por mesquinharia, ser causa de
-desestabilização e brigas.
+It is better to move away from them than, as a petty factor, to be a cause of
+destabilization and fights.
 
-Mas o ideal é aprender a sacrificar seu interesse pessoal em prol de uma causa
-maior.
+But the ideal is to learn to sacrifice your personal interest for a cause
+Greater.
 
-Se uma controvérsia surge, reflita com serenidade sobre os pontos de vista
-envolvidos.
+If a controversy arises, reflect with serenity on the views
+Involved.
 
-Caso sua posição não seja defensável, abdique dela.
+If your position isn't defensible, give it up.
 
-Procure ser um elemento pacificador nos meios em que se movimenta.
+Try to be a peacemaker element in the means in which it moves.
 
-Há pouca coisa tão cansativa quanto um altercador contumaz.
+There's little as tiresome as a bruise changer.
 
-Certas posturas são toleráveis apenas em pessoas muito jovens.
+Certain postures are tolerable only in very young people.
 
-Na maturidade, a rebeldia e a vaidade sistemáticas são ridículas.
+At maturity, systematic rebellion and vanity are ridiculous.
 
-Não canse seus semelhantes, com posições inflexíveis e injustificáveis.
+Do not sing your fellow men, with inflexible and unjustifiable positions.
 
-Aprenda a ceder e a compatibilizar, quando isso não comprometer sua honestidade
-e sua ética.
+Learn to give in and reconcile when it doesn't compromise your honesty
+and his ethics.
 
-De que lhe adianta vencer um debate, se a causa que você defende sofre com
-isso?
+What good is it to you to win a debate, if the cause you defend suffers from
+Right?
 
-O homem sábio identifica quando deve avançar e quando deve recuar.
+The wise man identifies when to move forward and when to retreat.
 
-Mas sempre o faz de forma sincera e digna.
+But he always does it sincerely and dignifiedly.
 
-De nada adianta afetar concordância e semear a discórdia nos bastidores.
+It's no use affecting agreement and sowing discord behind the scenes.
 
-A dissimulação e a intriga são indignas de uma pessoa honrada.
+Concealment and intrigue are unworthy of an honorable person.
 
-Reflita sobre isso, quando se vir envolvido em debates e contendas.
+Reflect on this when you become involved in debates and strife.
 
-Quando se engajar em uma causa, sirva-a com desinteresse.
+When engaging in a cause, serve it with disinterest.
 
-Jamais se permita servir-se dela para aparecer.
+Never allow yourself to be used by her to show up.
 
-Mas principalmente nunca a prejudique por radicalismo e imaturidade.
+But especially never harm her by radicalism and immaturity.
 
 ## Source
 Redação do Momento Espírita.  

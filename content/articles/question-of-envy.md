@@ -11,85 +11,85 @@ topics:
 - love
 ---
 
-Conta-se que um vaga-lume estava no afã de acender seu facho e apagá-lo.
-Interessante operação. A luz brilhava por segundos e apagava, para logo mais
-tornar a brilhar.
+It is said that a firefly was on the eagerness to light his facho and erase it.
+Interesting operation. The light shone for seconds and erased, so that soon more
+shine again.
 
-Uma cobra, que se encontrava nas proximidades, observou aquela luz acendendo e
-apagando e se esgueirou até onde se encontrava o autor de tal proeza.
+A snake, which was nearby, observed that light lighting up and
+erasing and sneaking up to where the author of such a feat was.
 
-Quando estava prestes a desferir o bote, foi percebida pelo minúsculo inseto,
-que alçou voo e escapou de ser abocanhado.
+When she was about to take the boat, it was perceived by the tiny insect,
+who took flight and escaped being mouthed.
 
-No entanto, a cobra deslizou rapidamente e foi no alcanço dele. E assim
-ficaram: ele voava e pousava. Ela o seguia e tentava abocanhá-lo. Finalmente, o
-vaga-lume pousou e disse para a sua perseguidora:
+However, the snake slid quickly and was in his reach. And so
+stayed: he flew and landed. She followed him and tried to light him up. Finally, the
+firefly landed and said to his stalker:
 
-Dona cobra, pare um pouquinho. Desejo fazer uma pergunta: pode me dizer se, por
-acaso, eu pertenço à sua cadeia alimentar?
+Owner charges, stop a little. I want to ask you a question: can you tell me if, by
+chance, do I belong to your food chain?
 
-Não, disse sibilante, o réptil. E preparou-se para atacá-lo.
+No, he said his sibilante, the reptile. And he prepared to attack him.
 
-Espere aí, senhora. Diga-me: por acaso, eu lhe fiz algum mal?
+Wait a minute, ma'am. Tell me, by any chance, did I do you any harm?
 
-Não, tornou a falar a cobra.
+No, you're talking about the snake again.
 
-Cansado e impaciente, o vaga-lume perguntou: Pode me dizer, então, por que é
-que a senhora quer me abocanhar?
+Tired and impatient, the firefly asked: Can you tell me, then, why is it
+that you want to grab me?
 
-Muito simples, disse ela. É que você brilha.
-
-                                   *   *   *
-
-A fábula nos remete a situações sobejamente conhecidas no mundo. Pessoas que se
-projetam, normalmente, atraem para si a inveja dos que as rodeiam.
-
-E os invejosos somente pensam em denegrir a imagem de quem se destaca. Ou
-destruir o seu conceito perante os demais.
-
-Assim, quem se alteia realizando o bem, passa a ser alvo de calúnias porque,
-afirmam, ninguém pode ser tão bom sem interesse próprio.
-
-Quem se destaca no quadro da honestidade, encontra pelo caminho os que esmiúçam
-sua vida, seus mínimos atos, à cata de algo que possa demonstrar que, afinal,
-ele não é tão correto quanto aparenta.
-
-A maledicência anda de braço dado com a inveja porque o que ambas desejam é
-destruir a boa imagem, a vida, a carreira daqueles que se tornaram seus alvos.
-
-A inveja é capaz de levantar calúnias contra vidas dignas. Com frases vagas,
-hesitantes, tem a capacidade de difamar o mais nobre caráter.
-
-Por isso, o invejoso é um peso infeliz na economia da felicidade alheia.
-
-E, no entanto, bastaria que mudasse sua postura. Ou seja, em desejando para si
-os holofotes que se concentram em alguém, poderia se dispor a fazer o que
-aquele faz, a agir como aquele age, seja no campo da ciência, da arte, do bem,
-em geral.
-
-Porque, no entanto, prefere não realizar esforço algum, opta pelas armas que
-possui: o despeito, a raiva, a acusação vazia e, por vezes, alcança seus
-objetivos maldosos.
-
-Contudo, o invejoso continua desventurado em si mesmo, logo encontrando outro
-alvo para desferir os seus destrutivos dardos.
+Very simple, she said. It's just that you shine.
 
                                    *   *   *
 
-Examinemos nossa própria conduta. Caso verifiquemos que nos encontramos nesse
-caminho tortuoso, modifiquemos o passo.
+The fable brings us to situations that are well known in the world. People who
+they usually attract to themselves the envy of those around them.
 
-Busquemos nos iluminar se invejamos o brilho alheio!
+And the envious only think of denigrating the image of those who stand out. Or
+destroy your concept before others.
 
-Esforcemo-nos para alcançar quem, a esforço pessoal e dedicação, se encontra
-degraus acima.
+Thus, whoever is willing to perform good, becomes the target of slander because,
+claim, no one can be so good without self-interest.
 
-Dessa forma, nos sentiremos felizes pelas próprias conquistas. E, com certeza,
-o mundo será melhor porque seremos mais um ser humano a apresentar o bem, a
-beleza, o justo.
+Those who stand out in the context of honesty find by the way those who sum up
+his life, his minimal acts, to the cata of something that can demonstrate that, after all,
+it's not as correct as it looks.
 
-Pensemos nisso. Façamos isso porque todos os filhos de Deus fomos criados para
-a luz e para o amor.
+Malevolence is arm-in-arm with envy because what they both want is
+destroy the good image, the life, the careerof those who have become their targets.
+
+Envy is able to raise slander against worthy lives. With vague phrases,
+hesitant, has the ability to defame the noblest character.
+
+Therefore, the envious is an unfortunate burden in the economy of other people's happiness.
+
+And yet it would be enough for you to change your posture. That is, in desiring for you
+the spotlight that focuses on someone, could be willing to do what
+that does, acting like that acts, whether in the field of science, art, good,
+in general.
+
+Because, however, you prefer not to make any effort, you choose the weapons that
+possesses: the breast, anger, empty prosecution and sometimes reaches its
+evil goals.
+
+However, the envious remains misadventured in himself, soon finding another
+to deliver their destructive darts.
+
+                                   *   *   *
+
+Let's examine our own conduct. If we find that we are in this
+tortuous path, we modify the step.
+
+Let us try to enlighten ourselves if we envy the brightness of others!
+
+Let us strive to reach who, personal effort and dedication, is
+steps above.
+
+That way, we will feel happy for our own achievements. And, of course,
+the world will be better because we will be another human being presenting good, the
+beauty, the righteous.
+
+Let's think about it. Let us do this because all of God's children were created to
+light and for love.
 
 ## Source
 Redação do Momento Espírita, com base

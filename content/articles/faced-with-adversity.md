@@ -8,80 +8,80 @@ topics:
 ---
  
 
-Recuperar-se de um tombo não é uma tarefa das mais fáceis, devemos concordar.
+Recovering from a tumble is not a task of the easiest, we must agree.
 
-Não são todos que conseguem colocar em prática o refrão popular: Levanta,
-sacode a poeira e dá a volta por cima, criado na música de Paulo Vanzolini.
+Not everyone can put into practice the popular refrain: Raises,
+shakes the dust and turns it around, created in the music of Paulo Vanzolini.
 
-Muitas vezes, quando caímos, por qualquer motivo, como seja o fim de um
-relacionamento; a perda de um emprego; um acidente, ou até mesmo a pressão do
-dia a dia, tendemos a ficar estatelados no chão.
+Often, when we fall for whatever reason, as is the end of a
+relationship; the loss of a job; an accident, or even the pressure of the
+day by day, we tend to get stuck on the floor.
 
-Como continuar? Como seguir adiante? Vale a pena todo esforço novamente?
+How to continue? How to move on? Is it worth all the effort again?
 
-Felizmente existem pessoas que conseguem contornar tudo isso com maior
-facilidade.
+Fortunately there are people who manage to get around all this with greater
+Ease.
 
-Mesmo quando tudo parece conspirar negativamente, elas vão em frente, com um
-sorriso no rosto e dispostas a enfrentar o que for preciso.
+Even when everything seems to conspire negatively, they go ahead, with a
+smile on her face and willing to face whatever it takes.
 
-Intrigados em descobrir o que levava algumas pessoas a enfrentar tão bem esses
-contratempos da vida, especialistas em comportamento humano passaram a estudar
-os traços desses sobreviventes.
+Intrigued to find out what led some people to face these so well
+setbacks of life, experts in human behavior began to study
+the traits of these survivors.
 
-Os primeiros chegaram a concluir que se tratava de uma invulnerabilidade inata,
-algo como um verdadeiro dom com o qual as pessoas já nasciam.
+The former concluded that it was an innate invulnerability,
+something like a real gift with which people were born.
 
-Porém, parece que isso não respondia tudo, e há pouco mais de uma década
-começou-se a investigar o termo invulnerabilidade.
+However, it seems that this did not answer everything, and just over a decade ago
+began to investigate the term invulnerability.
 
-Este parecia sugerir que as pessoas seriam 100% imunes  a qualquer tipo de
-adversidade - o que não seria a realidade.
+This seemed to suggest that people would be 100% immune to any kind of
+adversity - which would not be reality.
 
-Embora sejam pessoas que passem pelos problemas com maior facilidade, isso não
-quer dizer que saiam dessas experiências totalmente ilesas.
+While they are people who go through problems more easily, this does not
+it means that they come out of these experiences totally unharmed.
 
-Os estudiosos passaram a buscar um termo mais adequado, e foi então que
-emprestaram uma terminologia da física: resiliência.
+The scholars began to seek a more appropriate term, and it was then that
+borrowed a terminology of physics: resilience.
 
-Resiliência é uma propriedade de alguns materiais, que mostra sua capacidade em
-retornar ao seu estado original, após sofrer grande pressão.
+Resilience is a property of some materials, which shows its ability to
+return to its original state after undergoing great pressure.
 
-Assim seriam as pessoas com alto grau de resiliência: teriam capacidade de
-encarar as adversidades como oportunidade de mostrar e aprimorar sua
-competência, seu entusiasmo.
+So would people with a high degree of resilience: they would have the ability to
+face adversity as an opportunity to show and improve their
+competence, your enthusiasm.
 
-Tais pessoas encontram também soluções criativas e determinadas para se
-levantar do chão.
+Such people also find creative and determined solutions to
+get up off the ground.
 
-Neste instante você poderá estar imaginando qual o seu grau de resiliência,
-certo?
+Right now you may be wondering what your degree of resilience is,
+Sure?
 
-Cabe destacar aqui que ser resiliente não é ser indiferente, insensível.
+It is worth noting here that being resilient is not being indifferent, insensitive.
 
-Não se trata de sentir ou não sentir, mas sim de como atravessar as
-experiências.
+It's not about feeling or not feeling, it's about how to cross the
+Experiences.
 
-Seria uma habilidade, que todos podemos adquirir, de suportar o sofrimento,
-extraindo dele tudo que tem para nos ensinar. Aí está a chave de tudo.
+It would be a skill, which we can all acquire, to endure suffering,
+extracting everything you have to teach us from it. There's the key to everything.
 
-Léon Denis afirma com propriedade, que se, nas horas de provação, soubéssemos
-observar o trabalho interno, a ação misteriosa da dor em nós, compreenderíamos
-melhor sua obra sublime de educação e aperfeiçoamento.
+Léon Denis states with property that if, in the hours of trial, we knew
+observe the inner work, the mysterious action of pain in us, we would understand
+his sublime work of education and improvement.
 
                                    *   *   *
 
-A razão da dor humana procede da proteção divina.
+The reason for human pain comes from divine protection.
 
-Os povos são famílias de Deus que, à maneira de grandes rebanhos, são chamados
-ao aprisco do Alto.
+Peoples are families of God who, in the manner of great flocks, are called
+to the arisk of the High.
 
-A Terra é o caminho. A luta que ensina e edifica é a marcha.
+Earth is the way. The struggle that teaches and builds is the march.
 
-O sofrimento é sempre o aguilhão que desperta as ovelhas distraídas à margem da
-senda verdadeira.
+Suffering is always the sting that awakens the distracted sheep on the margin of the
+true patha.
 
- 
+
 
 ## Source
 Redação do Momento Espírita com base em artigo publicado na revista Vida

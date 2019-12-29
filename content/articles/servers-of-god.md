@@ -14,87 +14,87 @@ topics:
 - prayer
 ---
 
-De um modo geral, a expressão servo de Deus nos remete a religiosos, encerrados
-em templos, envoltos em orações e atos de caridade.
+In general, the expression servant of God refers us to religious, closed
+in temples, wrapped in prayers and acts of charity.
 
-No entanto, a grandeza do Pai não é limitada. Consequentemente, nem o campo que
-oferece aos Seus filhos para a semeadura do bem.
+However, the greatness of the Father is not limited. Consequently, neither the field that
+offers His children for the sowing of good.
 
-Por isso, Seus servidores se multiplicam pela Terra e se apresentam em inúmeras
-e extraordinárias facetas.
+Therefore, His servers multiply across the Earth and present themselves in numerous
+and extraordinary facets.
 
-Samuel Broder é um exemplo. Chegara na América com um punhado de poloneses
-sobreviventes do holocausto hitleriano. Crescera nas ruas de um subúrbio de
+Samuel Broder is an example. Arrived in America with a handful of Poles
+survivors of the Hitler holocaust. He had grown on the streets of a suburb of
 Detroit.
 
-Logo descobrira que as carreiras científicas eram aquelas em que se podia
-vencer na vida sem dinheiro e sem status social.
+I soon found that scientific careers were those in which one could
+win in life without money and without social status.
 
-Conseguindo as melhores notas em ciências, ganhou uma bolsa para a Universidade
+Getting the best grades in science, he won a scholarship to the University
 de Michigan.
 
-Conforme suas próprias palavras, ele adentrou em um outro planeta.
+According to his own words, he entered another planet.
 
-Para um rapaz saído de um gueto operário, cujo sonho mais grandioso deveria ser
-um emprego de metalúrgico na Ford ou na Chrysler, surpreendeu-se ao dividir o
-quarto com um colega que estudava noite e dia para se tornar compositor.
+For a boy out of a labor ghetto, whose grandest dream should be
+metallurgical employment at Ford or Chrysler, was surprised to divide the
+room with a colleague who studied night and day to become a composer.
 
-Em poucos meses, a imaginação daquele jovem imigrante sedento de saber, se
-inflamaria e ele definiria sua verdadeira vocação: a ciência.
+In a few months, the imagination of that young immigrant thirsty to know, if
+inflation and he would define his true vocation: science.
 
-Inspirado pela Oração do homem de ciência, idealizada por um grande escritor
-americano, gravara em seu coração e em sua memória cada palavra:
+Inspired by the Prayer of man of science, conceived by a great writer
+american, he had recorded in his heart and in his memory every word:
 
-Ó Deus, dai-me uma visão sem nuvens e livrai-me da pressa.
+O God, give me a cloudless vision and get rid of the rush.
 
-Dai-me a coragem de opor-me a toda vaidade e de perseguir, como puder e até o
-fim, cada uma de minhas tarefas.
+Give me the courage to oppose all vanity and to pursue, as i can and even the
+end, each of my tasks.
 
-Dai-me a vontade de não aceitar nunca o repouso ou a homenagem antes de ter
-podido verificar se meus resultados correspondem a meus cálculos.
+Give me the will not never accept rest or homage before having
+i could verify that my results correspond to my calculations.
 
-Ou de poder descobrir e consertar meus erros.
+Or to be able to find out and fix my mistakes.
 
-Com essa disposição, ao adentrar o laboratório que lhe abriu um dos seus
-professores, teve a inspiração para a sua vida profissional: o câncer.
+With this provision, when entering the laboratory that opened one of its
+teachers, had the inspiration for their professional life: cancer.
 
-Dias e noites inteiros ele se fechava no laboratório para aprender a fabricar
-anticorpos destinados a combater as células cancerosas.
+Whole days and nights he closed in the lab to learn how to manufacture
+antibodies intended to fight cancer cells.
 
-Nem sempre eram produtivos seus esforços. Reconhecia, contudo, que mesmo seus
-fracassos não eram inúteis.
+Their efforts were not always productive. I recognised, however, that even your
+failures were not useless.
 
-A diferença, dizia, entre um grande sábio e um pesquisador medíocre está no
-fato de que um sabe fazer as perguntas certas, o outro não.
+The difference, he said, between a great sage and a mediocre researcher is in the
+fact that one knows how to ask the right questions, the other does not.
 
-Um é capaz de se servir das tecnologias de ponta, o outro, não.
+One is capable of using cutting-edge technologies, the other, no.
 
-Dessa forma, ele se colocara na vanguarda da luta contra o câncer.
+That way, he had put himself at the forefront of the fight against cancer.
 
-Com a irrupção da AIDS, ele tomou uma grande decisão: enfrentar o vírus
-suspeito de ser seu causador, pesquisando um medicamento capaz de bloquear a
-sua ação.
+With the outbreak of AIDS, he made a big decision: to face the virus
+suspected of being its causative, researching a drug capable of blocking the
+your action.
 
-Era uma iniciativa perigosa porque ninguém podia avaliar os riscos que poderia
-causar a manipulação, em laboratório, de concentrados importantes de vírus
-vivos.
+It was a dangerous initiative because no one could assess the risks it could
+cause the manipulation, in the laboratory, of important virus concentrates
+Live.
 
-Dos seus cinco colaboradores, dois, de imediato, deixaram o laboratório.
+Of his five collaborators, two immediately left the lab.
 
-Na época, primavera-verão de 1983, a equipe de Samuel Broder foi a única que
-aceitou trabalhar na pesquisa, apesar dos riscos.
+At the time, spring-summer 1983, Samuel Broder's team was the only one who
+agreed to work in the research, despite the risks.
 
-Para o Dr. Samuel, com seus quarenta anos, pai de duas meninas, havia ainda o
-risco de levar esse vírus para casa e as contaminar.
+For Dr. Samuel, with his forty years, father of two girls, there was still the
+risk of taking this virus home and contaminating them.
 
-Mas, ele aceitou todos os riscos em nome do amor.
+But he accepted all the risks in the name of love.
 
-Samuel Broder, como outros tantos pesquisadores devotados, é um servidor de
-Deus, materializando Sua misericórdia entre os seus irmãos, na Terra.
+Samuel Broder, like so many other devoted researchers, is a server of
+God, materializing His mercy among his brethren on earth.
 
-Aprendamos a reconhecê-los e agradeçamos a Deus pelas suas existências.
+Let us learn to recognize them and thank God for their existences.
 
-Escute o áudio deste texto
+Listen to the audio of this text
 
 # Source
 Redação do Momento Espírita, com base no cap. 38,

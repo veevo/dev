@@ -7,91 +7,91 @@ topics:
 ---
  
 
-Conta a mitologia grega que, no início da criação, o titã Prometeu foi
-designado pelos deuses para organizar a matéria em confusão, dando origem à
-natureza e às demais formas de vida animal.
+It tells Greek mythology that, at the beginning of creation, the titan Prometheus was
+designated by the gods to organize the matter in confusion, giving rise to the
+nature and other forms of animal life.
 
-Prometeu, no entanto, pediu ao seu irmão que cuidasse de tudo.
+He promised, however, he asked his brother to take care of everything.
 
-Depois de organizar a Terra, o ar e as águas, fez o homem. E porque os homens
-se sentissem muito sós, com a ajuda dos demais deuses criou a mulher.
+After organizing the Earth, the air and the waters, the man made. And because men
+if they felt very lonely, with the help of the other gods created the woman.
 
-Casou-se com a primeira linda mulher que criou, a quem chamou Pandora.
+He married the first beautiful woman he raised, whom he called Pandora.
 
-Disse à sua esposa que tudo o que existia em seu reino pertencia a ela também,
-e que ela poderia usufruir de tudo, mas não poderia tocar numa caixa que ele
-guardava num dos cantos do quarto.
+I told his wife that everything that existed in her kingdom belonged to her too,
+and that she could enjoy everything but could not touch a box that he
+kept in one corner of the room.
 
-Dizer a Pandora que não a tocasse foi o suficiente para despertar-lhe a
-curiosidade. No primeiro momento em que ela se viu só, na enorme mansão, buscou
-a caixa e a abriu.
+Telling Pandora not to touch it was enough to awaken her to
+Curiosity. The first moment she found herself alone, in the huge mansion, she sought
+the box and opened it.
 
-Assim que levantou a tampa do baú, saíram de sua intimidade as misérias mais
-variadas.
+As soon as he lifted the chest cover, they came out of his intimacy the miserys more
+Varied.
 
-Misérias físicas como a lepra, a gota, as enxaquecas, o câncer, entre outras
-enfermidades, que estavam fechadas, escaparam e se disseminaram sobre a
-Humanidade inteira.
+Physical miseries such as leprosy, gout, migraines, cancer, among others
+diseases, which were closed, escaped and spread themselves upon the
+Whole humanity.
 
-A inveja, a cólera, o orgulho, o egoísmo, misérias morais que também estavam
-guardadas, se espalharam por todos os cantos da Terra.
+Envy, anger, pride, selfishness, moral miseries that were also
+stored, spread throughout the earth.
 
-Pandora, assustada, fechou a caixa imediatamente, sem se dar conta de que no
-fundo estava guardada a esperança.
+Pandora, frightened, closed the box immediately, without realizing that in the
+background was saved hope.
 
                                    *   *   *
 
-Os homens, assustados com tantas misérias morais e físicas que pairam sobre a
-Humanidade, pensam que Deus se esqueceu do gênero humano, relegando-o à própria
-sorte.
+Men, frightened by so many moral and physical miseries that hang over the
+Humanity, think that God has forgotten the human race, relegating him to his own
+So.
 
-No entanto, ainda resta para todos nós a esperança.
+However, hope remains for all of us.
 
-Um dia, num país distante, a esperança se vestiu de homem e surgiu como um sol
-para reverter a situação da Humanidade sofrida.
+One day, in a distant country, hope dressed as a man and emerged like a sun
+to reverse the situation of humanity suffered.
 
-Ficou conhecido como Jesus, o Cristo.
+He became known as Jesus the Christ.
 
-Mas, descuidada, boa parte dos homens somente O consegue ver como um derrotado,
-vencido na cruz do martírio, sem chance de ajudar.
+But carelessly, most men can only see Him as a loser,
+overcome on the cross of martyrdom, with no chance of helping.
 
-Esquecidos de que Ele rompeu a lápide do túmulo e surgiu vivo, afirmando para
-quem O quisesse ouvir:
+Forgotten that He broke the tombstone of the tomb and appeared alive, stating to
+who wanted to hear Him:
 
-Eu estou aqui! E, em outra oportunidade, afirmou: Nunca estareis a sós.
+I'm here! And on another occasion, he said, "You'll never be alone."
 
                                    *   *   *
 
-Jesus continua vivo e velando pela Humanidade, a quem chamou de Seu rebanho.
+Jesus remains alive and watching for humanity, whom he called His flock.
 
-Qual raio de esperança, surgiu trazendo a mensagem da Boa Nova e a espalhou por
-todo o planeta.
+What a ray of hope, came up bringing the message of the Good News and spread it by
+the whole planet.
 
-Falou-nos do reino de Deus. Cantou as bem-aventuranças eternas. E jamais se
-teve notícias de que Ele se tenha deixado contaminar pelas misérias humanas.
+He told us about the kingdom of God. He sang eternal beatitudes. And never if
+he had news that He has let himself be contaminated by human miseries.
 
-Jesus, portanto, é a mensagem viva de esperança. Vive e vela por nós.
+Jesus, therefore, is the living message of hope. Live and sail for us.
 
-São dEle estas palavras: Vinde a mim vós que estais cansados, que Eu vos
+These words are from Him: Come unto me that you are tired, that I
 aliviarei.
 
-Se as misérias físicas e morais estão se tornando insuportáveis, abramos a
-nossa caixa de Pandora e deixemos sair dela a grande esperança:
+If physical and moral miseries are becoming unbearable, let us open the
+our Pandora's box and let out of it the great hope:
 
 Jesus!
 
                                    *   *   *
 
-Não há mal que dure para sempre.
+There's no harm that lasts forever.
 
-O deserto de Atakama, o mais árido do mundo, situado no Chile, ao receber as
-primeiras gotas de água refrescante, após quase um século sem chuvas, em pouco
-tempo fica recoberto de lindas flores multicoloridas.
+The Atakama Desert, the most arid in the world, situated in Chile, upon receiving the
+first drops of refreshing water, after almost a century without rains, in little
+time is covered with beautiful multicolored flowers.
 
-Assim também acontece com as almas mais empedernidas. Ao se abrirem para
-receber os primeiros raios do sol das almas, Jesus, mudam a paisagem ressecada,
-para se tornarem campos floridos, espalhando bênçãos por onde passem.
- 
+So it also happens to the most empedernidas souls. When they open up to
+receive the first rays of the sun of souls, Jesus, change the dry landscape,
+to become flowery fields, spreading blessings wherever they pass.
+
 
 ## Source
 Redação do Momento Espírita, com base na palestra A esperança, proferida por

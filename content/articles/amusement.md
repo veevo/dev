@@ -10,105 +10,105 @@ topics:
 ---
  
 
-A vida é um exercício de disciplina.
+Life is an exercise in discipline.
 
-Desde a infância, a criatura vai sendo condicionada a cumprir determinados
-papéis.
+Since childhood, the creature has been conditioned to fulfill certain
+Papers.
 
-Na escola, há regras a serem obedecidas.
+At school, there are rules to be obeyed.
 
-Tem-se horário de entrada e de saída, intervalo para recreio e a autoridade dos
-professores.
+There is an entry and exit time, recess interval and the authority of the
+Teachers.
 
-Mais tarde, no trabalho, também há normas para cumprir.
+Later, at work, there are also standards to meet.
 
-É necessário tratar os colegas com educação, ser gentil com a clientela,
-prestar deferência ao chefe.
+It is necessary to treat colleagues with education, to be kind to the clientele,
+give deference to the chief.
 
-Cercado por tantos deveres e limites, o homem molda sua personalidade e
-apresenta-se agradável perante a sociedade.
+Surrounded by so many duties and limits, man shapes his personality and
+is pleasant before society.
 
-Alguns resquícios de barbárie surgem por ocasião de atritos e discussões.
+Some remnants of barbarism arise at the time of friction and discussions.
 
-Mas em dados ambientes eles necessitam ser controlados, sob pena de severas
-conseqüências.
+But in data environments they need to be controlled, under penalty of severe
+Consequences.
 
-Se um profissional distrata seu cliente, perde-o para a concorrência.
+If a professional treats his client, he loses it to the competition.
 
-Quem se permite ofender os colegas de trabalho corre o  sério risco de
-tornar-se desempregado.
+Those who allow themselves to offend co-workers are at serious risk of
+become unemployed.
 
-O aluno que se rebela contra as regras e tarefas escolares sujeita-se a repetir
-várias vezes o mesmo ano.
+The student who rebels against school rules and tasks is subject to repeating
+several times the same year.
 
-Trata-se da dinâmica da vida que impõe aos homens um comportamento melhor do
-que o que lhes é natural.
+It is the dynamics of life that imposes better behaviour on men than
+that what is natural to them.
 
-À força de disciplinar-se, a criatura lentamente domina os próprios impulsos
-negativos.
+By force of disciplinary, the creature slowly dominates its own impulses
+Negative.
 
-Contudo, há um espaço da vida no qual as tendências inferiores mostram toda a
-sua pujança.
+However, there is a space of life in which lower trends show the whole
+your strength.
 
-Trata-se dos momentos de lazer.
+These are leisure moments.
 
-Neles ninguém se obriga a ser melhor ou diferente do que realmente é.
+In them no one forces themselves to be better or different from what it really is.
 
-Quem controla a própria alimentação, nos dias úteis, muitas vezes se comporta
-como um glutão no final de semana.
+Those who control their own food, on weekdays, often behave
+like a glutton over the weekend.
 
-Outros gastam suas folgas bebendo e assistindo bobagens na televisão.
+Others spend their days drinking and watching nonsense on television.
 
-Há quem utilize seu tempo livre vendo pornografia na Internet, freqüentando
-bares e falando mal dos ausentes.
+Some use their free time watching internet porn, attending
+bars and speaking ill of the absentees.
 
-Outro comportamento singular é o apresentado em alguns tipos de reuniões de
-amigos ou conhecidos.
+Another singular behavior is that presented in some types of meetings of
+friends or acquaintances.
 
-Não raro surgem brincadeiras constrangedoras e perigosas, como jogar os outros
-em rios e piscinas.
+Often embarrassing and dangerous pranks arise, such as playing others
+rivers and pools.
 
-Nessas situações, habitualmente não se respeita o desejo de quem não quer
-participar.
+In these situations, the desire of those who do not want to
+Participate.
 
-Afigura-se até mais interessante apropriar-se da pessoa que resiste e forçá-la
-a fazer o que não deseja.
+It seems even more interesting to appropriate the person who resists and forced it
+to do what you don't want.
 
-O curioso é que os praticantes dessas estranhas brincadeiras são normalmente
-cordatos e respeitosos.
+The curious thing is that the practitioners of these strange games are usually
+ropes and respectful.
 
-Apenas nas folgas é que se permitem comportamentos agressivos e vexatórios.
+Only on the clearances are that aggressive and vexatious behaviors are allowed.
 
-Abandonam seu padrão habitual de conduta e tratam o semelhante sem limites ou
-respeito.
+They abandon their usual pattern of conduct and treat the similar one without limits or
+Respect.
 
-Não se desconhece a necessidade dos momentos lúdicos.
+The need for playful moments is not unknown.
 
-A vida humana não pode cingir-se a deveres  intermináveis.
+Human life cannot be linked to endless duties.
 
-É bom e útil que os homens se congracem, sejam leves e prazenteiros.
+It is good and useful that men be congrace, be light and pleasant.
 
-Mas é interessante perceber o modo como o próprio tempo livre é gasto.
+But it's interesting to realize how free time itself is spent.
 
-Ele conta mais sobre as tendências profundas da criatura do que qualquer outra
-coisa.
+It tells more about the deep tendencies of the creature than any other
+Thing.
 
-Nele se revelam os verdadeiros gostos, as tendências que vêm do passado
-milenar, cultivados em inúmeras vidas.
+In it are revealed the true tastes, the trends that come from the past
+millennial, cultivated in countless lives.
 
-Assim, preste atenção em seu comportamento nos momentos de folga.
+So pay attention to your behavior in the moments off.
 
-Será que você não se aproxima dos brutos em seus instantes de lazer?
+Don't you approach the brutes in your leisure moments?
 
-Acaso se deixa dominar pelo gosto do ócio, da gula, da luxúria ou da
-brutalidade?
+Chance is overcome by the taste of idleness, gluttony, lust or
+Brutality?
 
-Perceba como você é quando não necessita obedecer nenhuma regra.
+Notice how you are when you don't have to obey any rules.
 
-Caso não ache seu comportamento muito nobre, dedique-se a alterá-lo.
+If you don't find your behavior too noble, take an use to change it.
 
-Não porque outros o forcem a isso, mas porque você quer ser alguém equilibrado
-e digno em todos os instantes de sua vida.
+Not because others force you to do that, but because you want to be someone balanced
+and worthy in every moment of his life.
 
 ## Source
 Redação do Momento Espírita.

@@ -14,89 +14,89 @@ topics:
 - wisdom
 --- 
 
-A falta de tato para resolver conflitos e tratar de assuntos com pessoas que
-têm idéias opostas tem sido responsável por muitos desentendimentos e
-dissabores nos relacionamentos.
+The lack of tact to resolve conflicts and deal with issues with people who
+have opposing ideas has been responsible for many disagreements and
+displeasures in relationships.
 
-Por vezes, um problema que poderia ser facilmente resolvido, cria sérios
-rompimentos por causa da falta de jeito dos antagonistas.
+Sometimes a problem that could be easily solved creates serious
+disruptions because of the lack of way of antagonists.
 
-O afeto, usado com sabedoria é uma ferramenta poderosa, mas pouco usada pela
-maioria dos indivíduos.
+Affection, used wisely is a powerful tool, but little used by the
+most individuals.
 
-O mais comum tem sido a violência, a agressividade, a intolerância.
+The most common has been violence, aggressiveness, intolerance.
 
-Existem pessoas que não gostam de mostrar sua intimidade e se escondem sob um
-véu de sisudez, com ares de poucos amigos, na tentativa de evitar aproximações
-que deixem expostas suas fragilidades.
+There are people who don't like to show their intimacy and hide under a
+veil of sisudez, with airs of few friends, in an attempt to avoid approximations
+to put their weaknesses exposed.
 
-São como os caramujos, os tatus, as tartarugas e outros semelhantes.
+They are like snails, armabes, turtles and similar ones.
 
-Ao se sentirem ameaçados, escondem-se em suas carapaças naturais, e não deixam
-à mostra nenhuma de suas partes vulneráveis.
+When they feel threatened, they hide in their natural shells, and leave no
+show none of its vulnerable parts.
 
-A propósito, você já tentou alguma vez retirar, à força, de seu esconderijo, um
-desses animaizinhos?
+By the way, have you ever tried to forcibly remove from your hiding place, a
+of those little animals?
 
-Seria uma tentativa fracassada, a menos que você não se importe em dilacerar o
-corpo do seu oponente.
+It would be a failed attempt unless you don't mind tearing the
+your opponent's body.
 
-No caso da tartaruga, por exemplo, quanto mais você tentar, com violência,
-retirá-la do casco, mais ela irá se encolher para sobreviver.
+In the case of the turtle, for example, the more you try, with violence,
+remove it from the hull, the more it will shrink to survive.
 
-Mas, se você a colocar num lugar aconchegante, caloroso, que inspire confiança,
-ela sairá naturalmente.
+But if you put her in a cozy, warm place that inspires confidence,
+she will leave naturally.
 
-Assim também acontece com os seres humanos. Se, em vez da força, se usar o
-afeto, o aconchego, a ternura, a pessoa naturalmente de desarma e se deixa
-envolver.
+So it also happens to humans. If, instead of strength, the
+affection, warmth, tenderness, naturally disarming person and leaves
+Involved.
 
-Às vezes a pessoa chega prevenida contra tudo e contra todos e se desarma ao
-simples contato com um sorriso franco ou um abraço afetuoso.
+Sometimes the person arrives prevented against everything and against everyone and disarms himself to the
+simple contact with a frank smile or an affectionate embrace.
 
-Mas, se ao invés disso encontra pessoas também predispostas à agressão, ao
-conflito, as coisas ficam ainda piores.
+But if instead you find people also predisposed to aggression,
+conflict, things get even worse.
 
-Como a convivência com outros indivíduos é uma realidade da qual não podemos
-fugir, precisamos aprender a lidar uns com os outros com sabedoria e sem
-desgastes.
+How living with other individuals is a reality of which we cannot
+escape, we need to learn to deal with each other wisely and without
+Wear.
 
-A força nunca foi e nunca será a melhor alternativa, além de causar sérios
-prejuízos à vida de relação.
+The force has never been and will never be the best alternative, besides causing serious
+damage to the life of relationship.
 
-Portanto, criar relacionamentos harmônicos é uma arte que precisa ser cultivada
-e levada a sério.
+Therefore, creating harmonic relationships is an art that needs to be cultivated
+and taken seriously.
 
-Mas para isso é preciso que ao menos uma das partes o queira e o faça.
+But for that you need at least one of the parties to want it and do it.
 
-E se uma das partes quiser, por mais que a outra esteja revestida de uma
-proteção semelhante a de um porco-espinho, ninguém sairá ferido e o
-relacionamento terá êxito.
+And if one of the parties wants, as much as the other is coated with a
+protection similar to that of a porcupine, no one will leave injured and the
+relationship will succeed.
 
-Basta lembrar dessa regra bem simples, mas eficaz: em vez da força, o afeto. E
-tudo se resolve sem desgastes.
+Just remember this rule very simple, but effective: instead of strength, affection. And
+everything is resolved without wear.
 
                                    *   *   *
 
-De tudo o que fazemos na vida ficam apenas algumas lições:
+Of everything we do in life are just a few lessons:
 
-A certeza de que estamos todos em processo de aprendizagem...
+The certainty that we are all in the process of learning...
 
-A convicção de que precisamos uns dos outros...
+The conviction we need from each other...
 
-A certeza de que não podemos deter o passo...
+I'm sure we can't stop the step...
 
-A confiança no poder de renovação do ser humano.
+Trust in the power of renewal of the human being.
 
-Portanto, devemos aproveitar as adversidades para cultivar virtudes.
+Therefore, we must take advantage of adversity to cultivate virtues.
 
-Fazer dos tropeços um passo de dança.
+Make the stumbles a dance step.
 
-Do medo um desafio.
+Fear a challenge.
 
-Dos opositores, amigos.
+From the opponents, friends.
 
-E retirar, de todas as circunstâncias, lições para ser feliz.
+And withdraw, under all circumstances, lessons to be happy.
 
 ## Source
 Redação do Momento Espírita.

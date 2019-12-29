@@ -21,80 +21,80 @@ topics:
 - family
 ---
 
-Qual sua opinião sobre os programas da nossa televisão? A pergunta dirigida a
-uma dezena de pessoas, com certeza revelará uma dezena de opiniões diferentes.
-Um dirá que lhe satisfazem, outro que necessitaria haver mais esporte na
-programação. Alguém falará que deseja mais filmes, outra ainda lamentará as
-reprises.
+What's your opinion on our television shows? The question addressed to
+a dozen people will surely reveal a dozen different opinions.
+One will say that they satisfy you, another that there would need to be more sport in the
+Programming. Someone will say that you want more movies, another will still regret the
+Times.
 
-Em um ponto, no entanto, é possível se encontrar ideias semelhantes. É no que
-diz respeito à excessiva dose de violência e sensualidade de muitos programas.
+At one point, however, you can find similar ideas. That's what
+concerns the excessive dose of violence and sensuality of many programs.
 
-Os veículos de comunicação, como a televisão, os jornais escandalosos, o
-cinema, a arte cênica, as revistas de exploração erótica abundam. Há quem os
-acuse, de forma veemente, pela dissolução ética da atualidade, pelas
-ocorrências da loucura de cada hora.
+Media outlets such as television, scandalous newspapers,
+cinema, scenic art, erotic exploration magazines abound. There are those who
+strongly accuses the ethical dissolution of the present day by the
+occurrences of the madness of every hour.
 
-O sistema condenatório é muito antigo no mundo. É forma corrente de se furtar à
-própria responsabilidade.
+The damning system is very old in the world. It is a current way to steal from the
+responsibility itself.
 
-Ninguém descarta a influência infeliz dos veículos de comunicação de massa,
-entretanto, tais veículos também podem servir para a disseminação da luz.
+No one rules out the unfortunate influence of mass communication vehicles,
+however, such vehicles can also serve for the spread of light.
 
-O instrumento em si não é bom, nem mau. Quem o utiliza, quem dele se serve é
-que lhe confere o direcionamento.
+The instrument itself is neither good nor bad. Whoever uses it, who fits it is
+that gives you the direction.
 
-E afinal, quem seleciona o noticiário mesquinho, quem promove os espetáculos
-deprimentes, quem cria e lança ao ar os maus programas?
+And after all, who selects the petty news, who promotes the shows
+depressing, who creates and launches the bad programs into the air?
 
-São homens e mulheres, todos seres saídos dessa ou daquela família, que
-passaram por uma instituição educacional.
+They are men and women, all beings out of this or that family, who
+went through an educational institution.
 
-Conclui-se, portanto, que toda gama de alucinação, de violência ou de
-pornografia que vasa no mundo é produto do elemento humano, não educado para os
-altos objetivos da vida.
+It is concluded, therefore, that the whole range of hallucinations, violence or
+pornography that vasa in the world is the product of the human element, uneducated for the
+high goals of life.
 
-Almas que assim destilam suas produções infelizes foram crianças e jovens
-relegados à desorientação moral, em tempos distantes ou nos dias presentes. Não
-são outros senão nossos pais, irmãos, esposos, amigos, filhos, os responsáveis
-pela deformação das mentes, através dos diversos canais comunicadores.
+Souls that thus distill their unfortunate productions were children and young
+relegated to moral disorientation, in distant times or in present days. No
+are other than our parents, siblings, spouses, friends, children, those responsible
+by the deformation of minds, through the various communicator channels.
 
-Perante a tentação de culpar os meios de comunicação como os únicos
-responsáveis pela dissolução que vige, perguntemo-nos como temos realizado
-nosso papel de educadores junto à criança e ao moço.
+Faced with the temptation to blame the media as the only
+responsible for the dissolution that he sees, let us ask ourselves how we have carried out
+our role as educators with the child and the young man.
 
-Temos mantido fidelidade aos compromissos domésticos?
+Have we maintained fidelity to domestic commitments?
 
-Estamos atendendo, de forma devida, aos nossos deveres, frente à vida,
-demonstrando aos nossos educandos a sua seriedade?
+We are properly addressing our duties, in the face of life,
+demonstrating to our students their seriousness?
 
-Conseguimos renunciar aos próprios vícios e enganos, a fim de orientar nossos
-pequenos em dignas jornadas?
+We have managed to renounce our own vices and deceptions in order to guide our
+little ones on decent journeys?
 
-Quanto tempo temos dispendido para assistir, com nossos meninos e jovens, os
-vários programas que constituem seu deleite?
+How long have we spent to watch, with our boys and young people, the
+various programmes that constitute their delight?
 
-Temos nos sentado com eles e lhes proposto uma análise do que veem e ouvem,
-pelos vários meios de comunicação?
+We have sat with them and proposed an analysis of what they see and hear,
+by the various media?
 
-Quantos fazemos da televisão a nossa babá? Barata e cômoda. E enquanto ficamos
-felizes com o êxtase em que os pequenos e adolescentes entram com programas que
-lhes despertam sensualidade, agressividade, eles vão digerindo informações
-amorais ou imorais, em verdadeira lavagem cerebral.
+How many do we make of the tv our nanny? Cheap and comfortable. And while we're staying
+happy with the ecstasy in which small and adolescent come up with programs that
+awaken sensuality, aggression, they are digesting information
+immoral, in true brainwashing.
 
-Cuidemos dos nossos rebentos hoje, enquanto é tempo. Primemos por lhes formar o
-caráter nos valores legítimos e nobres da vida cristã.
+Let's take care of our shoots today while it's time. Let us press for forming them the
+character in the legitimate and noble values of Christian life.
 
-Então, estaremos não somente zelando por nossos filhos, nosso lar, mas
-igualmente colaborando para que em breve os que comandarem a programação
-televisiva, radiofônica, cênica ou cinematográfica o façam com critérios dignos
-da verdadeira arte, que prima pelo bom e pelo belo.
+So we will not only be caring for our children, our home, but
+also collaborating so that soon those who command the programming
+radio, scenic or cinematic criteria do so with criteria worthy of
+of true art, which excels in good and beautiful.
 
                                    *   *   *
 
-A criança é a coluna viva do porvir. Avançará com as características que lhe
-impomos. Crescerá com a retidão ou com as sinuosidades que lhe traçamos ao
-desenvolvimento. Devolverá depois o que estiver recebendo agora. 
+The child is the living column of the future. It will proceed with the characteristics that you
+Draw. It will grow with the righteousness or with the sinuousities that we trace to it at the
+Development. You'll give back what you're getting now. 
 
 ## Source
 Redação do Momento Espírita.

@@ -8,84 +8,84 @@ topics:
 - mother
 ---
 
-Quem era Esse Homem? Desceu das estrelas e aninhou-Se no seio de uma jovem
-mulher, a fim de vir à luz.
+Who was This Man? Descended from the stars and nestled in the boon of a young woman
+woman in order to come to light.
 
-Teve por pai um carpinteiro e com ele aprendeu o ofício, embora Suas mãos já
-tivessem amoldado substâncias celestes, formando o próprio planeta em que veio
-habitar.
+Had by father a carpenter and with him learned the craft, though His hands already
+had shaped celestial substances, forming the very planet on which it came
+Inhabit.
 
-Habituado à harmonia celeste, deixou que o vento cantasse melodias em Sua
-cabeleira e que as areias lhe fustigassem a face.
+Accustomed to heavenly harmony, he let the wind sing melodies in His
+hairdresser and may the sands swipe his face.
 
-Amou Sua mãe com devoção. Logo iniciado Seu messianato, retornou ao lar para
-vê-la e a acompanhou às bodas a que fora convidada.
+He loved His mother with devotion. Soon begun His messianate, returned home to
+see her and accompanied her to the wedding she had been invited to.
 
-Obedeceu-Lhe ao pedido e ofertou aos convivas o líquido especial para os
-despertar para a realidade.
+He obeyed his request and offered the comma the special liquid for the
+awakening to reality.
 
-Em agonia, recordou de a entregar aos cuidados de um jovem idealista,
-preocupando-Se com o que lhe poderia suceder, após a Sua partida.
+In agony, he recalled giving it to the care of an idealistic young man,
+worrying about what might happen to him after His departure.
 
-Quem era Esse Homem? Andou por estradas poeirentas, campos cultivados, às
-margens de um lago, lecionando o amor.
+Who was This Man? Walked through dusty roads, cultivated fields,
+shores of a lake, teaching love.
 
-Viveu em uma época de desmandos, de corrupção dos costumes, de licenciosidades.
+He lived in a time of dismembered, customs corruption, licentiousness.
 
-No entanto, manteve-Se íntegro, embora movimentando-Se entre pessoas
-consideradas de má conduta.
+However, he remained healthy, though moving between people
+considered misconduct.
 
-Estendeu Suas bênçãos aos pobres deserdados da sorte tanto quanto aos
-detentores de poder econômico e certa supremacia social, a uns e outros
-ofertando das Suas luzes.
+He extended His blessings to the poor disinherited from luck as much as to the
+holders of economic power and certain social supremacy, to each other
+offering from His lights.
 
-Líder de um grupo que elegeu para assumir a preciosa missão de dar continuidade
-à Sua proposta, os incentivou a que deixassem fluir as suas qualidades
-interiores.
+Leader of a group that elected to take on the precious mission of continuing
+to His proposal, encouraged them to let their qualities flow
+Interior.
 
-Vós sois deuses! - Afirmou. E podeis fazer tudo o que faço e muito mais.
+You are gods! He said. And you can do everything I do and more.
 
-Ensinou que todos os homens são herdeiros do Universo infinito, imensurável.
-Todos filhos do mesmo Pai, embora vivendo sob tetos diversos, em terras
-distantes uns dos outros e falando línguas estranhas.
+He taught that all men are heirs to the infinite universe, immeasurable.
+All the children of the same Father, though living under various ceilings, in lands
+distant from each other and speaking strange languages.
 
-Quem era Esse Homem a quem os Espíritos obedeciam e se rendiam? Senhor dos
-Espíritos - O chamavam.
+Who was This Man whom the Spirits obeyed and surrendered? Lord of
+Spirits - They called him.
 
-Quem era Esse Homem que fazia cessar as dores, devolvia movimentos a corpos
-paralisados, a vista aos cegos e a palavra aos mudos?
+Who was This Man who caused the pain to cease, returned movements to bodies
+paralyzed, the sight of the blind and the word to the mutes?
 
-Quem era Esse Homem que, em menos de três anos, revolucionou o mundo do
-pensamento sem nada ter escrito? Que reuniu ao Seu redor, nada menos de cinco
-centenas de trabalhadores para darem continuidade ao Seu legado?
+Who was This Man who, in less than three years, revolutionized the world of
+thought without anything to have written? Who gathered around Him, no less than five
+hundreds of workers to continue His legacy?
 
-Que, ao partir, deixou semeadura tão grande que até hoje, transcorridos mais de
-dois mil anos, ainda não se esgotou?
+Who, on leaving, left so much sowing that to this day, more than
+Two thousand years, hasn't it run out yet?
 
-Quem era Esse Homem tão grande que não coube na História, dividindo-a entre
-antes e depois dEle?
+Who was This Man so great that it did not fit in history, dividing it between
+before and after Him?
 
-Diziam que Ele era o filho de um carpinteiro de nome José e de uma mulher
+They said he was the son of a carpenter named Joseph and a woman
 chamada Maria.
 
-Nascido em Belém, viveu exilado no Egito. Depois, cresceu em Nazaré e morreu na
-capital religiosa da época, Jerusalém. Terra dos profetas.
+Born in Bethlehem, he lived in exile in Egypt. Then he grew up in Nazareth and died in the
+religious capital of the time, Jerusalem. Land of prophets.
 
-Quem era Esse Homem?
+Who was This Man?
 
                                    *   *   *
 
-Um dia, um raio de luz deixou a amplidão dos céus e veio viver entre os homens.
+One day, a ray of light left the vastness of the heavens and came to live among men.
 
-Mais brilhante que o sol, escondeu Seu brilho nos trajos do mais simples
-carpinteiro.
+Brighter than the sun, hid His brilliance in the plots of the simplest
+Carpenter.
 
-Ele era luz. Veio para as sombras e as sombras tentaram empanar-Lhe o brilho.
+He was light. He came into the shadows and the shadows tried to soak his glow.
 
-Destruíram a ânfora onde se aninhava a luz. Então, liberta, ela brilhou ainda
-mais intensamente e até hoje enche o infinito das nossas necessidades.
+They destroyed the amphora where the light was nesting. Then, free, she shone yet
+more intensely and to this day fills the infinity of our needs.
 
-Seu nome é... Jesus.
+Your name is... Jesus.
 
 ## Source
 Redação do Momento Espírita.

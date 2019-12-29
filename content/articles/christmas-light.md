@@ -12,108 +12,108 @@ topics:
 ---
 
 
-Cintilância não é sinônimo de harmonia e paz.
+Cintilância is not synonymous with harmony and peace.
 
-Há claridade nos incêndios destruidores que consomem vidas e bens.
+There is clarity in the destructive fires that consume lives and goods.
 
-Resplendor sinistro transparece nos bombardeios que trazem a morte.
+Sinister flush ing appears in the bombings that bring death.
 
-Reflexos radiosos surgem do lança-chamas.
+Radio reflexes arise from the flamethrower.
 
-Relâmpagos estranhos assinalam a movimentação das armas de fogo.
+Strange lightning signals the movement of firearms.
 
-No Evangelho, porém, é diferente.
+In the Gospel, however, it is different.
 
-Comentando o Natal, o Evangelista Lucas assevera que o Cristo é a luz para
-iluminar as nações.
+Commenting on Christmas, the Evangelist Luke asserts that Christ is the light for
+illuminate the nations.
 
-O Mestre não chegou impondo normas ao pensamento religioso.
+The Master did not come by imposing norms on religious thought.
 
-Não interpelou governantes e governados sobre processos políticos.
+He did not question rulers and governed over political processes.
 
-Não disputou com os filósofos quanto às origens do homem.
+He did not compete with philosophers about the origins of man.
 
-Também não concorreu com os cientistas na demonstração de aspectos parciais e
-transitórios da vida.
+It also did not compete with scientists in demonstrating partial aspects and
+transient life.
 
-Contentou-se em fazer luz no Espírito eterno.
+He was content to make light in the eternal Spirit.
 
-Seu ministério endereçava-se aos povos de todo o mundo.
+His ministry addressed the people saroundthe so.
 
-Mas Ele não marcou Sua presença com expressões coletivas de poder.
+But He did not mark His presence with collective expressions of power.
 
-Absteve-se de movimentar e formar exércitos e sacerdócio, armamentos e
-tribunais.
+He refrained from moving and forming armies and priesthood, armaments and
+Courts.
 
-Preocupou-se com o que de fato interessava.
+He was concerned about what really mattered.
 
-Trouxe claridade para todos, projetando-a de si próprio.
+It brought clarity for everyone, projecting it from itself.
 
-Revelou a grandeza do serviço à coletividade por intermédio da consagração
-pessoal ao bem infinito.
+He revealed the greatness of the service to the collective through the consecration
+personal to infinite good.
 
                                    *   *   *
 
-Nas reminiscências da época do Natal, medite sobre o roteiro que você elegeu.
+In the reminiscences of christmas season, meditate on the script you elected.
 
-A quê ele o conduz?
+What does he lead you to?
 
-Você tem luz suficiente para a marcha?
+Do you have enough light for the march?
 
-Que espécie de claridade está acendendo em seu caminho?
+What kind of clarity is lighting up in your way?
 
-Fuja ao brilho fatal dos curtos-circuitos da cólera.
+Escape the fatal glow of the short circuits of cholera.
 
-Não se contente com a lanterninha da vaidade que imita o pirilampo de voo baixo
-dentro da noite.
+Don't be content with the vanity lantern that mimics the low-flying firefly
+inside the night.
 
-Apague a labareda do ciúme e da discórdia que atira corações aos precipícios do
-crime e do sofrimento.
+Erase the flames of jealousy and discord that throws hearts at the precipices of the
+crime and suffering.
 
-Também não confunda o período natalino com o brilho dos enfeites das lojas.
+Also do not confuse the Christmas period with the brightness of the ornaments of the shops.
 
-Em breve, essa cintilação se extinguirá, mas você permanecerá em sua jornada.
+Soon, this flicker will become extinct, but you will remain on your journey.
 
-Aproveite a habitual pausa de final de ano para refletir com profundidade sobre
-sua vida.
+Take advantage of the usual year-end break to reflect in depth on
+your life.
 
-Identifique as opções que lhe orientam os caminhos.
+Identify the options that guide you to the paths.
 
-Raciocine sobre os hábitos por você mantidos e que revelam seu mundo íntimo
-para os semelhantes.
+Rationale on the habits you have kept and that reveal your intimate world
+for the like ones.
 
-Estarão eles de acordo com os ensinamentos do Divino Mestre?
+Are they in accordance with the teachings of the Divine Master?
 
-Jesus disse que Seu jugo era leve e ofereceu a Sua paz.
+Jesus said His yoke was light and offered His peace.
 
-Na sequência, revelou-se como o Caminho da verdadeira vida, e fez o convite.
+Subsequently, it proved to be the Way of true life, and made the invitation.
 
-Quem quisesse, deveria tomar sua cruz e segui-lO.
+Whoever wanted it should take your cross and follow him.
 
-Tomar a própria cruz e caminhar com o Mestre significa imitar Seus luminosos
+Taking your own cross and walking with the Master means imitating His luminous
 exemplos.
 
-Não há felicidade nos distúrbios e no erro.
+There is no happiness in disturbances and error.
 
-Os resplendores da vida terrena bem cedo produzem enfado.
+The splendors of terrena life very early produce boredom.
 
                                    *   *   *
 
-Se você procura o Mestre Divino e a experiência cristã, para além das ilusões
-do mundo, pare e reflita.
+If you seek the Divine Master and the Christian experience, in addition to illusions
+of the world, stop and reflect.
 
-Lembre-se de que há na Terra clarões que ameaçam, perturbam, confundem e
-anunciam arrasamento.
+Remember that there are flashes on Earth that threaten, disturb, confuse and
+announce scumling.
 
-Ser cristão, desfrutar de Sua sublime paz, implica cooperar com Ele.
+Being a Christian, enjoying His sublime peace, implies cooperating with Him.
 
-Para isso, é necessário dispor-se a extinguir as trevas, acendendo em si
-próprio aquela sublime luz para iluminar.
+To do this, it is necessary to dispose of the darkness, lighting in itself
+itself that sublime light to illuminate.
 
-É indispensável dispor-se a amar e servir, fazendo disso um hábito, pela
-repetição incessante.
+It is essential to have to love and serve, making it a habit, for the
+unceasing repetition.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita, com base no capítulo XLIV

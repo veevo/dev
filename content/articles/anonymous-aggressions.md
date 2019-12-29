@@ -13,73 +13,73 @@ topics:
 - mother
 ---
 
-Expressar nossos pensamentos e sentimentos é um direito. No entanto, se ao
-expor o que pensamos podemos ofender, prejudicar ou humilhar alguém, é preciso
-ponderar se isso se constitui nosso direito.
+Expressing our thoughts and feelings is a right. However, if the
+expose what we think we can offend, harm or humiliate someone, we need
+consider whether this constitutes our right.
 
-Nossas palavras, sejam escritas ou faladas, podem causar danos muitas vezes
-irreversíveis em quem as ouve ou em quem as lê.
+Our words, whether written or spoken, can cause harm often
+irreversible people who listen to them or who read them.
 
-A tecnologia tem presenteado a Humanidade com ferramentas e instrumentos que
-possibilitam uma comunicação cada vez mais rápida e eficaz.
+Technology has presented humanity with tools and instruments that
+enable faster and more effective communication.
 
-As redes sociais surgiram como uma forma de diminuir a distância entre pessoas,
-promover o contato, a formação de novas amizades.
+Social networks have emerged as a way to reduce the distance between people,
+promote contact, the formation of new friendships.
 
-Mas, ao mesmo tempo em que propiciaram essa aproximação virtual também
-promoveram um falso sentimento de proteção pelo anonimato, que acabou
-fortalecendo o lado perverso de algumas criaturas.
+But while they provided this virtual approach as well
+promoted a false sense of protection by anonymity, which ended up
+strengthening the perverse side of some creatures.
 
-Pessoas começaram a ser gratuitamente atacadas por sua aparência. Outras foram
-ameaçadas e hostilizadas por sua orientação sexual, posicionamento político,
-crença religiosa ou ideologia.
+People began to be attacked for free by their appearance. Others were
+threatened and harassed by their sexual orientation, political positioning,
+religious belief or ideology.
 
-Acreditando que escapariam de ser identificados, os agressores não pouparam
-ofensas e ameaças. Desconheciam que seriam localizados e teriam de responder
-por seus atos e palavras, da mesma forma que responderiam se tivessem agido
-assim nas ruas.
+Believing they would escape being identified, the aggressors spared no
+offenses and threats. They didn't know they'd be located and they'd have to answer
+by their acts and words, just as they would have answered if they had acted
+so on the streets.
 
-O sentimento de ser melhor, superior ao outro e possuidor da verdade ainda move
-pessoas orgulhosas e egoístas, incitando-as a agredirem outras, utilizando as
-redes sociais.
+The feeling of being better, superior to the other and possessing the truth still moves
+proud and selfish people, urging them to assault others, using the
+social networks.
 
-Uma mãe postou um desabafo, compartilhando sentimentos e angústias com aqueles
-que ela acreditava serem amigos.
+A mother posted an outburst, sharing feelings and anguish with those
+that she believed to be friends.
 
-Sua postagem foi multiplicada e ela passou a receber críticas ferrenhas, com
-palavras duras e cruéis, de pessoas que não a conheciam e a julgaram por aquele
-desabafo.
+Her post was multiplied and she went on to receive stinging reviews, with
+harsh and cruel words, of people who did not know and judged her by that
+Outburst.
 
-Discussões acaloradas a respeito de posicionamentos políticos estão pondo fim a
-amizades, abalando relacionamentos, incitando o ódio, ameaçando vidas.
+Heated discussions on political positions are putting an end to
+friendships, shaking relationships, inciting hatred, threatening lives.
 
-Os que usam as redes para acusar e ofender, muitas vezes nunca o fizeram na
-presença das pessoas, temendo sua reação.
+Those who use networks to accuse and offend have often never done so in the
+people's presence, fearing their reaction.
 
-No entanto, a sensação de proteção que sentem, por estarem distantes
-fisicamente dos que acusam, os encoraja.
+However, the feeling of protection they feel, because they are distant
+of those they accuse, encourages them.
 
-Sem se darem conta, acabam atraindo para seu lado Espíritos de padrão
-vibratório inferior, que alimentam o ódio, a raiva, os sentimentos destrutivos.
+Without realizing it, end up attracting to your side Spirits of standard
+inferior vibratory, which feed hatred, anger, destructive feelings.
 
-E assim, verdadeiras guerras são travadas com palavras.
+And so, real wars are fought with words.
 
-Algumas têm provocado mortes. Morte do respeito, do amor, do carinho que antes
-nutria relações.
+Some have caused deaths. Death of respect, love, of affection that before
+nourished relationships.
 
-Morte da alegria, da vontade de viver e de ser o que se é.
+Death of joy, the will to live and to be what one is.
 
-Entretanto, as palavras, quando utilizadas para o bem, podem edificar, dar
-ânimo, espalhar paz, luz e amor.
+However, words, when used for good, can build,
+cheer, spread peace, light and love.
 
-Cabe a cada um de nós escolher que sentido dará às palavras: de vida ou de
-morte.
+It is up to each of us to choose what meaning it will give to the words: of life or
+Death.
 
-Quando estivermos prestes a proferir palavras contra nosso próximo,
-lembremo-nos da orientação de Emmanuel:
-> Palavras são agentes na construção de todos os edifícios da vida. Lancemo-las
-na direção dos outros, com o equilíbrio e a tolerância com que desejamos que
-elas venham até nós.
+When we're about to say words against our neighbor,
+let us remember Emmanuel's guidance:
+> Words are agents in building all buildings in life. We throw them
+in the direction of others, with the balance and tolerance with which we want
+they come to us.
 
 ## Source
 Redação do Momento Espírita, com citação do cap. 24, do Livro

@@ -10,77 +10,77 @@ topics:
 ---
  
 
-Existem exemplos, ao longo da História, que falam do amor e da extrema
-dedicação filial.
+There are examples throughout history that speak of love and extreme
+filial dedication.
 
-Recordamo-nos de uma lenda romana dos tempos finais da República. Muitas foram
-as perseguições injustas a velhos servidores daquele regime. Afinal, o Império
-estava por surgir.
+We remember a Roman legend from the final times of the Republic. Many were
+unfair persecution of the old servants of that regime. After all, the Empire
+was about to emerge.
 
-Os governantes de Roma chegaram a decretar que velhos servidores da República
-fossem banidos da cidade.
+The rulers of Rome even decree that old servants of the Republic
+banned from the city.
 
-Entre esses, havia um velho doente. Ora, ele adoecera simplesmente servindo a
-Roma, que tanto amava.
+Among these, there was an old patient. Now, he gets sick simply serving the
+Rome, which i loved so much.
 
-Por isso mesmo decidiu, apesar da insistência do filho, que não sairia da
-cidade.
+For this reason he decided, despite his son's insistence, that he would not leave the
+City.
 
-Velho estava, pensou. E doente. Se deveria aguardar a morte, por que fazê-lo
-distante das terras que tanto amava e que servira, com total dedicação?
-Preferiria morrer em sua própria cama.
+Old man was, he thought. And sick. If you should wait for death, why do it
+away from the lands he loved so much and that he had served, with total dedication?
+I'd rather die in your own bed.
 
-Chegou finalmente a noite do último dia que lhe era permitido ficar. Se fosse
-apanhado dentro dos muros de Roma, após o prazo, seria morto.
+The night of the last day that was allowed to stay. If it were
+caught inside the walls of Rome after the deadline, would be killed.
 
-O filho tornou a insistir para que o pai se salvasse.
+The son again insisted that his father be saved.
 
-Sei que você nem consegue andar, meu pai. Mas eu o carregarei. Deixe-me cuidar
-de você. Reunirei todas as minhas forças para levá-lo para fora da cidade.
+I know you can't even walk, my father. But I'll carry him. Let me take care of
+from you. I will gather all my strength to get him out of town.
 
-Tanto insistiu que o pai acabou por ceder. O rapaz carregou a preciosa carga às
-costas e seguiu pelas ruas de Roma.
+So much insisted that dad eventually gave in. The boy carried the precious cargo to the
+and followed through the streets of Rome.
 
-A multidão se apinhava para ver a incrível cena e, ante os esforços do filho,
-aplaudia, incentivando-o.
+The crowd was crammed to see the incredible scene, and in the face of their son's efforts,
+applauds, encouraging him.
 
-Os poderosos simplesmente olhavam. De certa forma, se comoveram e decidiram não
-interferir.
+The powerful just looked. In a way, they moved and decided not to
+Interfere.
 
-Aproximava-se a hora em que o velho seria morto se fosse encontrado dentro dos
-muros da cidade e era ainda grande a distância que separava os dois do portão.
+The time was approaching when the old man would be killed if he were found inside the
+city walls and the distance was still great that separated the two from the gate.
 
-As forças estavam quase no fim. O rapaz se curvava ante o peso do fardo. Mesmo
-assim avançava, devagar, lento. E a multidão aplaudia.
+The forces were almost over. The boy bowed before the burden of the burden. Same
+so advanced, slowly, slow. And the crowd applauded.
 
-Conseguiu sair da cidade nos últimos instantes do prazo. Porém, o velho cônsul
-ainda não estava a salvo. Era preciso deixar as terras romanas.
+He managed to get out of town in the last moments of the deadline. However, the old consul
+I wasn't safe yet. You had to leave the Roman lands.
 
-Encobertos pelas sombras da noite, Appius carregou seu pai até a praia, onde
-embarcaram para outras terras, a salvo.
+Covered by the shadows of the night, Appius carried his father to the beach, where
+embarked on other lands, safely.
 
-Para que nunca fosse esquecido esse gesto de amor filial, ele foi inscrito nos
-anais da quase extinta República romana.
+So that this gesture of filial love would never be forgotten, he was inscribed in the
+of the almost extinct Roman Republic.
 
                                    *   *   *
 
-O mandamento Honrai a vosso pai e a vossa mãe quer dizer muito mais do que
-respeitar os que deram a vida aos filhos.
+The commandment Honors your father and mother means much more than
+respect those who gave their lives to their children.
 
-Quer dizer também assisti-los na necessidade e lhes proporcionar repouso na
-velhice. Cercá-los de cuidados como eles fizeram com os pequenos, no período da
-infância.
+I mean also assist them in need and provide them with rest in the
+Age. Surround them with care as they did with the little ones in the period of
+Childhood.
 
-Esse dever se estende naturalmente às pessoas que fazem as vezes de pai e de
-mãe, as quais tanto maior mérito têm, por abrigarem os filhos alheios em seu
-seio, alimentando-os com seu amor e carinho.
+This duty naturally extends to people who sometimes do father and
+mother, whom they have so much greater merit, for harboring the children of others in their
+breasts, feeding them with their love and affection.
 
-Os filhos devem aos pais não só o estritamente necessário, devem-lhes também os
-pequenos nadas supérfluos, os cuidados amáveis, os agradinhos que, ao final,
-não são mais do que apenas o retorno do que receberam em sua infância e
-juventude.
+Children owe parents not only the strictly necessary, they should also
+little superfluous nothings, kind care, the sweetness which, in the end,
+are nothing more than just the return of what they received in their childhood and
+Youth.
 
-Este o verdadeiro sentido do mandamento do Decálogo.
+This is the true meaning of the Decalogue's commandment.
 
 
 ## Source

@@ -15,88 +15,88 @@ topics:
 ---
  
 
-O reverendo Martin Luther King Junior, missionário do bem na Terra, certa feita
-afirmou:
+Reverend Martin Luther King Junior, a missionary of good on Earth, right made
+Said:
 
-Nada no mundo é mais perigoso que a ignorância sincera e a estupidez
+Nothing in the world is more dangerous than sincere ignorance and stupidity
 conscienciosa.
 
-Reflitamos sobre estas palavras fortes.
+Let us reflect on these strong words.
 
-A acomodação na própria ignorância, ou mesmo a opção por ela, é terrível mal
-para o Espírito em evolução.
+Accommodation in ignorance itself, or even the option for it, is terrible evil
+for the evolving Spirit.
 
-Querer permanecer na ignorância é afastar-se do caminho da felicidade.
+To want to remain in ignorance is to move away from the path of happiness.
 
-Querer permanecer na caverna das sombras, fazendo alusão aqui à alegoria
-platônica, é perder a chance de conhecer o sol e toda sua luz benfazeja.
+Wanting to stay in the cave of shadows, alluding here to allegory
+platonic, is to miss the chance to know the sun and all its benfazeja light.
 
-A ignorância não pode ser objetivo de ninguém na Terra.
+Ignorance cannot be anyone's goal on Earth.
 
-Aparentemente, esta pode trazer algumas vantagens, conforme afirmam alguns
-desavisados, mas não, não há benefício algum em permanecer nela.
+Apparently, this may bring some advantages, as some
+unsuspecting, but no, there is no benefit in staying in it.
 
-Da mesma forma, a estupidez conscienciosa é chaga doentia para o homem e para a
-mulher que desejam crescer moralmente.
+Similarly, conscientious stupidity is sickening chaga for man and for
+woman who wish to grow morally.
 
-Errar conscientemente é construir sua própria prisão moral de dor permanente.
+Consciously to err is to build your own moral prison of permanent pain.
 
-Optar pelos caminhos da crueldade, do egoísmo e do orgulho, tendo a consciência
-de que são trilhas prejudiciais a todos, é condenar-se à dor voluntariamente.
+Opt for the paths of cruelty, selfishness and pride, having the conscience
+that they are trails harmful to all, is to condemn themselves to pain voluntarily.
 
-E quantos de nós, já esclarecidos pelos tesouros de uma religião, ainda optamos
-pelo mal voluntariamente!
+And how many of us, already enlightened by the treasures of a religion, still choose
+for evil voluntarily!
 
-Cada vez que proferimos palavras grosseiras, cada vez que espezinhamos a vida
-alheia gratuitamente, com comentários infelizes, estamos agindo no mal
-conscientemente.
+Every time we utter coarse words, every time we trample our lives
+of others for free, with unfortunate comments, we are acting in evil
+Consciously.
 
-Quantos de nós, ditos cristãos, não somos capazes de tolerar nem pequenos
-deslizes?
+How many of us, said Christians, are not able to tolerate or small
+Slips?
 
-Quantos de nós, tendo capacidade de praticar o bem, escolhemos o caminho da
-acomodação, da indiferença, mesmo sabendo que os tempos são chegados, que a
-hora é agora!
+How many of us, having the ability to do good, choose the path of
+accommodation, of indifference, even knowing that times are close, that the
+time is now!
 
-Sim, a estupidez conscienciosa é perigo constante. Perigo de ver a vida passar
-por nós, e perdermos mais uma chance, depois de tantas que já recebemos da
-Misericórdia Divina.
+Yes, conscientious stupidity is constant danger. Danger of watching life go by
+for us, and we lose another chance, after so many that we have already received from the
+Divine Mercy.
 
-Muitos de nós que aqui estamos, somos reincidentes no mal, e recebemos a bênção
-de nova oportunidade para que, desta vez, aproveitemos a encarnação para
-crescer no amor.
+Many of us who are here, we are repeat offenders in evil, and we receive the blessing
+of new opportunity so that, this time, we will take advantage of the incarnation to
+grow in love.
 
-Temos, nesta vida, a última chance de nos colocarmos nas sendas do bem, de uma
-vez por todas, sem mais delongas, sem mais espera, sem mais razões para
-permanecer no comportamento morno dos covardes.
+In this life, we have the last chance of putting ourselves on the paths of good, of a
+time and for all, without further ado, no more waiting, no further reasons for
+remain in the warm behavior of cowards.
 
-Os sinais dos tempos estão aí.
+The signs of the times are there.
 
-A grande transformação da Humanidade já se opera dia após dia, sem cessar.
+Humanity's great transformation is already operational day after day, without ceasing.
 
-Ou seremos os de alma adormecida, que deixaremos passar tal oportunidade, ou
-seremos os engajados nas mudanças, na nova era de amor e entendimento.
+Either we will be those of sleeping soul, who we will let such an opportunity pass, or
+we will be those engaged in change, in the new era of love and understanding.
 
-Notemos que os grandes da Terra sempre optaram pelo amor, pela caridade, pelo
-perdão.
+Let us be nominated that the greats of the earth have always opted for love, for charity, for the
+Forgiveness.
 
-Qual será a sua opção?
+What will be your option?
 
 *   *   *
 
-A Humanidade tem realizado, até ao presente, incontestáveis progressos.
+Humanity has made, to date, undisputed progress.
 
-Os homens, com a sua inteligência, chegaram a resultados que jamais haviam
-alcançado, sob o ponto de vista das ciências, das artes e do bem-estar
+The men, with their intelligence, came to results that had never
+achieved, from the point of view of science, arts and well-being
 material.
 
-Resta-lhes ainda um imenso progresso a realizar: o de fazerem que entre si
-reinem a caridade, a fraternidade, a solidariedade, que lhes assegurem o
-bem-estar moral.
+They are still very much progress to be made: to make that they are
+charity, fraternity, solidarity, to ensure that they are
+moral well-being.
 
-Já não é somente de desenvolver a inteligência o de que os homens necessitam,
-mas de elevar o sentimento e, para isso, faz-se preciso destruir tudo o que
-superexcite neles o egoísmo e o orgulho.
+It is no longer just to develop the intelligence that men need,
+but to raise the feeling and, for that, it is necessary to destroy all that
+excite in them selfishness and pride.
 
 ## Source
 Redação do Momento Espírita, com pensamento final do cap. XVIII,

@@ -11,98 +11,98 @@ topics:
 ---
 
 
-Diariamente somos levados a fazer as mais variadas escolhas.
+Every day we are led to make the most varied choices.
 
-Desde opções banais tais como a roupa que vamos vestir até o que faremos de
-nosso futuro.
+From banal options such as the clothes we will wear to what we will do to
+our future.
 
-Algumas dessas escolhas são extremamente singelas e outras, de grande
-relevância.
+Some of these choices are extremely simple and others, of great
+Relevance.
 
-Em muitas ocasiões, é claro, nosso poder de opção fica limitado às condições
-financeiras, sociais e até físicas de que dispomos.
+On many occasions, of course, our option power is limited to the conditions
+financial, social and even physical ones available.
 
-Porém, em linhas gerais, temos o poder para imprimir na nossa existência o
-padrão de felicidade ou de aflição com o qual desejamos conviver.
+However, in general terms, we have the power to print in our existence the
+standard of happiness or affliction with which we wish to live.
 
-A liberdade é Lei da vida, que faz parte do concerto da harmonia universal.
+Freedom is the Law of Life, which is part of the concert of universal harmony.
 
-Somos o que de nós próprios fazemos, movimentando-nos no rumo que elegemos.
+We are what we do ourselves, moving in the direction we choose.
 
-A busca da felicidade é uma meta comum entre todos os seres humanos.
+The pursuit of happiness is a common goal among all human beings.
 
-Todos almejamos, de alguma forma, alcançá-la.
+We all aim, somehow, to achieve it.
 
-Cada ser a idealiza de modo diferente dos demais.
+Each being idealizes it differently from the others.
 
-Para alguns a felicidade é ter uma família.
+For some happiness is to have a family.
 
-Para outros é estar sadio e sentir-se bem.
+For others it is to be healthy and feel good.
 
-Ou ainda, é confundida, por alguns, com conforto material.
+Or, it is confused by some with material comfort.
 
-Na realidade, sabemos que a felicidade verdadeira não é deste mundo, como nos
-ensinou Jesus.
+In reality, we know that true happiness is not of this world, as in
+taught Jesus.
 
-Temos consciência de que só alcançaremos o estado de plena felicidade quando
-atingirmos a perfeição relativa a que estamos destinados, mas que ainda isso é
-algo distante de nossa atual condição.
+We are aware that we will only achieve the state of full happiness when
+achieve perfection for which we are destined, but that still this is
+something far from our current condition.
 
-Porém, almejar a felicidade, mesmo que relativa, é algo natural e que nos
-impele ao crescimento.
+However, to aim for happiness, even if relative, is something natural and that we
+impels growth.
 
-Podemos e devemos ser felizes, embora ainda estejamos estagiando em um planeta
-de provas e de expiações.
+We can and should be happy, though we are still interning on a planet
+evidence and atonement.
 
-Temos liberdade de escolha para isso.
+We have freedom of choice for that.
 
-Se nos encontramos atrelados ao carro das aflições, cabe-nos persistir no
-caminho do bem, sem esmorecermos.
+If we find ourselves attached to the car of afflictions, it is up to us to persist in the
+way of good, without fading.
 
-A dificuldade de agora é o efeito da insensatez do passado.
+The difficulty of now is the effect of the folly of the past.
 
-Situações infelizes alteram-se para melhor, tais como paisagens cobertas pelas
-sombras rapidamente são tomadas pelo sol.
+Unfortunate situations change for the better, such as landscapes covered by the
+shadows are quickly taken by the sun.
 
-Somos senhores do nosso destino.
+We are lords of our destiny.
 
-Não nos é conveniente entregarmo-nos à tristeza, à ociosidade, aos queixumes.
+It is not appropriate to give ourselves to sadness, idleness, to the Complainants.
 
-Aquele que prefere sofrer tem liberdade para esta experiência até o momento em
-que se decida optar pelo bem-estar verdadeiro.
+He who prefers to suffer has freedom for this experience so far in
+that you decide to choose true well-being.
 
-Desse modo, não devemos transformar incidentes de pequena monta, coisas e
-ocorrências corriqueiras em tragédias.
+In this way, we should not transform small-scale incidents, things and
+common occurrences in tragedies.
 
-Ninguém tem o destino do sofrimento.
+No one has the fate of suffering.
 
-A dor é o resultado da ação negativa do passado, próximo ou não, jamais uma
-causa.
+Pain is the result of the negative action of the past, close to or not, never a
+Cause.
 
-Façamos uma avaliação honesta da nossa existência, sem consciência de culpa,
-sem pieguismo desculpista.
+Let us make an honest assessment of our existence, without a conscience of guilt,
+without excist pieguism.
 
-Avaliemos se nossos atos, nossas escolhas de agora, serão motivos de sofrimento
-ou de ventura mais adiante.
+Let us assess whether our actions, our choices now, will be reasons for suffering
+or perhaps later.
 
-Vejamos como estamos nos comportando perante o mundo e perante nós mesmos, sob
-o pretexto de alcançarmos a felicidade.
+Let us see how we are behaving before the world and before ourselves, under
+the pretext of achieving happiness.
 
-Ser feliz, ou não, também é uma opção que nos é dada diariamente.
+Being happy or not is also an option given to us daily.
 
-Resta-nos, apenas, analisarmos objetiva e sinceramente se nossas escolhas são
-legítimas e justas.
+We can only analyze objectively and sincerely whether our choices are
+legitimate and fair.
 
-Afinal, não há como ser feliz às custas de dores e de angústias alheias.
+After all, there is no way to be happy at the expense of other people's pains and anguish.
 
-Pois, por certo, mais dia, menos dia, esse tipo de situação ensejará,
-inevitavelmente, nosso próprio sofrimento.
+For, for certainly, more day, less day, this kind of situation will be,
+inevitably, our own suffering.
 
-Somos livres para semearmos o que bem nos aprouver, conscientes, no entanto, de
-que estaremos obrigatória e inafastavelmente vinculados à colheita de seus
-frutos.
+We are free to sow what we do well, aware, however, of
+that we will be compulsory and inwardly linked to the harvesting of their
+Fruits.
 
- 
+
 
 ## Source
 Redação do Momento Espírita com base no livro

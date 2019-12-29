@@ -16,79 +16,79 @@ topics:
 - tolerancia
 ---
 
-Você considera a vingança como um ato de coragem ou de covardia?
+Do you consider revenge as an act of courage or cowardice?
 
-Algumas pessoas acreditam que a vingança é uma demonstração de grande coragem.
-Afinal de contas não se pode tolerar uma afronta sem se rebaixar.
+Some people believe that revenge is a demonstration of great courage.
+After all, an affront cannot be tolerated without delowering.
 
-Pensam que a tolerância e a indulgência seriam prova de fraqueza ou de
-covardia.
+They think that tolerance and indulgence would be proof of weakness or
+Cowardice.
 
-Todavia, temos de convir que o ato de vingar-se jamais constitui prova de
-coragem.
+However, we must see that the act of revenge is never proof of
+Courage.
 
-Geralmente, quando buscamos revidar uma ofensa o fazemos movidos pelo medo do
-agressor ou da opinião pública.  
+Generally, when we seek to fight back an offense we do so driven by fear of
+aggressor or public opinion.  
 
-Não importa que a nossa consciência nos acuse de covardia ou indignidade, o que
-nos interessa é que a sociedade não nos julgue assim.
+It does not matter that our conscience accuses us of cowardice or indignity, which
+we are interested in society not judging us that way.
 
-O mesmo não ocorre com relação ao ato de perdoar. O perdão, sim, exige do
-ofendido muita coragem e dignidade.
+The same does not occur with regard to the act of forgiving. Forgiveness, yes, requires the
+offended much courage and dignity.
 
-Enquanto a vingança é uma ladeira fácil de descer, o perdão é uma ladeira
-difícil de subir.
+While revenge is an easy slope to descend, forgiveness is a slope
+hard to get up.
 
-Algumas pessoas costumam enfrentar corajosamente os mais graves perigos, mas
-sentem-se impotentes para tolerar uma pequena ofensa.
+Some people often bravely face the most serious dangers, but
+they feel powerless to tolerate a small offense.
 
-Escalam, com ousadia, altas montanhas, saltam de paraquedas desafiando as
-alturas, enfrentam animais ferozes, aceitam os desafios do trânsito, navegam em
-mar revolto com bravura, mas não conseguem suportar um mínimo golpe da
-injustiça.
+They climb boldly, high mountains, jump from parachutes defying the
+heights, face ferocious animals, accept the challenges of traffic, navigate in
+revolting sea with bravery, but fail to withstand a minimal blow of the
+Injustice.
 
-Dão grande prova de coragem em alguns pontos, mas não relevam a investida da
-ingratidão, da calúnia, do cinismo, da falsidade, da infidelidade.
+They give great proof of courage at some points, but do not bear the onslaught of the
+ingratitude, slander, cynicism, falsehood, infidelity.
 
-Realmente fortes são aqueles que conseguem conter-se diante de uma agressão.
+Really strong are those who manage to contain themselves in the face of an aggression.
 
-A verdadeira fortaleza está nas almas que não se descontrolam quando são
-ofendidas.
+True fortress is in souls that do not fall out when they are
+Offended.
 
-Que não se impacientam quando são incomodadas.
+That they don't get impacient when they're bothered.
 
-Que não se perturbam, quando são incompreendidas.
+That they don't get upset when they're misunderstood.
 
-Que não se queixam, quando são prejudicadas.
+Who don't complain when they're harmed.
 
-Verdadeira coragem é aquela de que o Cristo nos deu o exemplo.
+True courage is one that Christ has set an example for us.
 
-Ele sofreu a ingratidão daqueles a quem havia ajudado, enfrentou o cinismo dos
-agressores, foi ultrajado, caluniado, cuspiram-lhe no rosto e O crucificaram, e
-Ele tomou uma única atitude: a do perdão.
+He suffered the ingratitude of those whom he had helped, faced the cynicism of the
+aggressors, was outraged, maligned, spat on his face and crucified Him, and
+He took a single attitude: that of forgiveness.
 
-Por várias vezes, em Sua passagem pela Terra, o homem de Nazaré teve motivos de
-sobra para revidar ofensas, mas sempre optou pela dignidade de calar-se.
+Several times, in His passage through the earth, the man of Nazareth had reason to
+left over to fight back offenses, but always opted for the dignity to shut up.
 
-Diante das agressões recebidas, o meigo Rabi da Galileia passava lições
-grandiosas, como aconteceu com o soldado que O esbofeteou quando estava de mãos
-amarradas.  
+In the face of the aggressions received, the sweet Rabbi of Galilee passed lessons
+grandiose, as happened to the soldier who slap Him when he was holding hands
+Tied.  
 
-Sem perder a serenidade habitual, o Cristo olhou-o nos olhos e lhe perguntou:
-Se eu errei, aponta meu erro, mas se não errei, por que me bates?
+Without losing the usual serenity, Christ looked him in the eye and asked him:
+If I made a mistake, point out my mistake, but if I didn't make a mistake, why do you hit me?
 
-Essa é a atitude de uma alma verdadeiramente grande.
+That's the attitude of a truly great soul.
 
                                    *   *   *
 
-Pense nisso!
+Think about it!
 
- Se Jesus tivesse parado em meio à caminhada do Gólgota, largado a cruz injusta
-do suplício, para se voltar contra Seus agressores e exercer sobre eles o
-direito de vingança, certamente não teria passado à posteridade como modelo de
-perfeição e de amor.
+ If Jesus had stopped amid the walk of Golgotha, he dropped the unjust cross
+of the torment, to turn against His aggressors and exercise upon them the
+right of revenge certainly wouldn't have gone on to posterity as a model of
+perfection and love.
 
-Pense nisso!
+Think about it!
 
 ## Source
 Redação do Momento Espírita, com base no cap. 15 do

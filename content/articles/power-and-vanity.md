@@ -19,88 +19,88 @@ topics:
 ---
  
 
-Fala-se muito das misérias humanas. Fala-se, sobremaneira, da miséria
-econômica.
+There is a lot of talk about human miseries. There is talk, greatly, of misery
+Economic.
 
-Mas, ao lado das misérias materiais há outras de maior gravidade, que são as
-misérias morais.
+But, beside material miseries there are others of greater gravity, which are the
+moral miseries.
 
-A vaidade é uma delas. Mistura-se a todas as ações humanas e mancha os
-pensamentos mais delicados. Penetra o coração e o cérebro.
+Vanity is one of them. It blends into all human actions and stains the
+more delicate thoughts. Penetrate the heart and brain.
 
-Planta má, a vaidade abafa a bondade. Todas as qualidades são aniquiladas por
-seu veneno.
+Bad plant, vanity muffles goodness. All qualities are annihilated by
+its poison.
 
-Faz com que os homens se esqueçam de Deus, que se constitui em socorro apenas
-implorado nos momentos de aflição, e jamais o Amigo convidado ao banquete da
-alegria.
+It causes men to forget God, who constitutes aid only
+begged in the moments of affliction, and never the Friend invited to the feast of the
+Joy.
 
-A vaidade, por si só, se constitui em obstáculo ao progresso moral dos homens,
-mas quando está de mãos dadas com o poder, torna-se nefasta.
+Vanity alone is an obstacle to the moral progress of men,
+but when it is holding hands with power, it becomes harmful.
 
-Nos tempos em que as estradas poeirentas da Galileia ainda eram marcadas pelas
-sandálias humildes do Sublime Galileu, um ensinamento singular ficou impresso
-na História, através de um diálogo do Cristo com um senador romano.
+In the times when galilee's dusty roads were still marked by the
+humble sandals of sublime Galileo, a singular teaching was printed
+in history, through a dialogue of Christ with a Roman senator.
 
-Jesus falou-lhe de humildade mas, aquele homem investido dos poderes e glórias
-transitórios, deixou-se arrebatar por uma onda de orgulho e questionava-se
-mentalmente:
+Jesus spoke to him of humility but, that man vested in powers and glories
+transient, let himself be swept away by a wave of pride and questioned himself
+Mentally:
 
-Humildade? Que credenciais apresentava o profeta para lhe falar assim, a ele,
-senador do Império Romano, revestido de todos os poderes?
+Humility? What credentials presented the prophet to speak to him like this, to him,
+senator of the Roman Empire, clothed with all powers?
 
-Lembrou a cidade dos Césares, coberta de triunfos e glórias, cujos monumentos
-acreditava, naquele momento, fossem imortais.
+He recalled the city of Caesars, covered with triumphs and glories, whose monuments
+believed, at that moment, to be immortal.
 
-Jesus, conhecedor das Leis eternas e imutáveis que regem a vida, percebendo
-seus pensamentos, respondeu com serenidade e firmeza:
+Jesus, knowledgeable of the eternal and immutable laws that govern life, realizing
+his thoughts, answered with serenity and firmness:
 
-Todos os poderes do teu império são bem fracos e todas as suas riquezas bem
-miseráveis...
+All the powers of your empire are very weak and all their riches well
+Miserable...
 
-As magnificências dos Césares são ilusões efêmeras de um dia, porque todos os
-sábios, como todos os guerreiros, são chamados no momento oportuno aos
-tribunais da justiça de Meu Pai que está no Céu.
+Caesars' magnificences are one-day ephemeral illusions, for all
+wise, like all warriors, are called at the opportune moment to
+courts of justice of My Father who is in Heaven.
 
-Um dia, deixarão de existir suas águias poderosas sob um punhado de cinzas
-misérrimas. Suas ciências se transformarão ao sopro dos esforços de outros
-trabalhadores mais dignos do progresso.
+One day, they will no longer exist their powerful eagles under a handful of ashes
+misérrimas. Your sciences will become the breath of the efforts of others
+workers more worthy of progress.
 
-Suas leis injustas serão tragadas no abismo tenebroso desses séculos de
-impiedade, porque só uma Lei existe e sobreviverá aos escombros da inquietação
-do homem: A Lei do amor, instituída por Meu Pai, desde o princípio da
-Criação...
+Their unjust laws will be brought into the dark abyss of these centuries of
+wickedness, because only one Law exists and will survive the rubble of restlessness
+of man: The Law of love, instituted by My Father, from the beginning of the
+Creation...
 
-Nesses ditos de Jesus, há um singular ensinamento: a transitoriedade das
-ostentações humanas construídas sob os impositivos da vaidade.
+In these jesus sayings, there is a singular teaching: the transience of
+human ostentatious built under the impositions of vanity.
 
-E Jesus tinha razão. Dois milênios após, pouca coisa restou daquele Império
-tido como imortal. Restam hoje apenas algumas ruínas que o tempo se encarregará
-de extinguir.
+And Jesus was right. Two millennia after, little left of that Empire
+regarded as immortal. There are only a few ruins left today that time will take care of
+to extinguish.
 
-Todavia, o tempo não logrará destruir os ensinamentos grandiosos legados à
-Humanidade pelos cidadãos romanos que se dedicaram a construir patrimônios
-imperecíveis, não sujeitos às leis da matéria.
+However, time will not destroy the great legacy teachings to
+Humanity by Roman citizens who have dedicated themselves to building heritage
+non-subject to the laws of matter.
 
                                     *  *  *
 
-Deus, antes de colocar a Humanidade sobre a face da Terra a enfeitou de belezas
-naturais, revestiu-a de todos os elementos e recursos necessários ao nosso
-bem-estar.
+God, before putting humanity on the face of the earth adorned her with beauties
+have covered it with all the elements and resources necessary for our
+Welfare.
 
-Para iluminar o dia, Ele nos deu o Sol, radiação gloriosa. E para clarear as
-noites salpicou-as de estrelas, como se fossem flores de ouro.
+To illuminate the day, He gave us the sun, glorious radiation. And to clear the
+nights peppered them with stars, as if they were golden flowers.
 
-E nós, o que temos para ofertar a Deus, senão o nosso coração?
+What do we have to offer God but our hearts?
 
-Mas, longe de enfeitá-lo com alegrias, virtudes e esperanças e permitir que
-Deus o penetre, só o fazemos quando o luto, as amarguras e decepções nos
-visitam e nos ferem.
+But far from bewitching him with joys, virtues and hopes and allowing him to
+God penetrates him, we only do it when mourning, bitterness and disappointments in the
+visit and harm us.
 
-Deixemos a vaidade de lado e ofertemos o nosso coração livre de dores.
+Let's put vanity aside and offer our heart pain-free.
 
-Ofereçamo-lo a Deus como homens, de pé, e não como escravos, de joelhos.
-Lembremo-nos de Deus também nas horas de alegria e felicidade.
+Let us offer him to God as men, standing, not as slaves, on his knees.
+Let us also remember God in the hours of joy and happiness.
 
 ## Source
 Redação do Momento Espírita com base no cap. V, pt.1, do livro Há 2000 anos,

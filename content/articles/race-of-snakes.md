@@ -10,76 +10,76 @@ topics:
 - responsibility
 ---
 
-Existem pessoas que se confundem ao meio em que vivem a tal ponto que perdem a
-própria identidade. É a esse tipo de criaturas que Jesus chama raça de víboras.
+There are people who are confused in the environment where they live to such an extent that they lose their
+identity itself. It is to these kind of creatures that Jesus calls a race of vipers.
 
-Pelo mimetismo, capacidade que certos animais possuem de tomarem a cor e a
-configuração dos objetos em cujo meio habitam, a víbora se confunde, por assim
-dizer, ao meio, tornando difícil a sua localização.
+By mimicry, the ability that certain animals have to take the color and
+configuration of the objects in whose environment they inhabit, the viper is confused, so
+say, in half, making it difficult to locate you.
 
-Muitos de nós, em situações adversas, preferimos nos deixar confundir com o
-meio do que sermos taxados de piegas ou moralistas indesejáveis.
+Many of us, in adverse situations, prefer to let ourselves be confused with the
+kind of being taxed with pious or undesirable moralists.
 
-Se estamos no meio dos corruptos, aplaudimos a corrupção.
+If we're in the midst of the corrupt, we applaud corruption.
 
-Se nos encontramos entre os viciados, apoiamos o vício.
+If we meet among addicts, we support addiction.
 
-Se estamos com os sexólatras, louvamos a sexolatria.
+If we're with the sexolatras, we praise the sexolatria.
 
-Se estamos rodeados por pessoas honestas e dignas, enaltecemos a honestidade e
-a dignidade.
+If we are surrounded by honest and worthy people, we praise honesty and
+dignity.
 
-Falta-nos a coragem moral para nos posicionarmos de conformidade com a nossa
-consciência, independente do meio em que nos achemos.
+We lack the moral courage to position ourselves in accordance with our
+conscience, regardless of the environment in which we find ourselves.
 
-Como cristãos, sabemos qual é a postura correta, mas preferimos nos deixar
-levar pela maioria pensando enganar a própria consciência. Esquecemos a
-recomendação do Homem de Nazaré: Seja o seu falar sim, sim, não, não.
+As Christians, we know what the right stance is, but we prefer to leave ourselves
+lead by most thinking of deceiving their own conscience. We forgot the
+recommendation of the Man of Nazareth: Be your speak yes, yes, no, no.
 
-Todo mundo faz! Este é o argumento com o qual alguns de nós tentamos justificar
-os atos indignos.
+Everybody does it! This is the argument with which some of us try to justify
+unworthy acts.
 
-No momento em que Jesus se refere aos fariseus como raça de víboras, enfatiza
-também que todo pecado ou blasfêmia nos serão perdoados, exceto os cometidos
-contra o Espírito, contra a consciência.
+At the moment When Jesus refers to pharisees as a race of vipers, he emphasizes
+also that all sin or blasphemy will be forgiven to us, except those committed
+against the Spirit, against conscience.
 
-O que o Cristo quis dizer é que os equívocos cometidos por ignorância, não
-serão contabilizados pelas leis maiores como infração, mas como tentativa mal
-sucedida.
+What Christ meant is that the misconceptions made out of ignorance, not
+will be accounted for by the larger laws as infringement, but as an attempt ill
+Successful.
 
-Mas as infrações cometidas com conhecimento de causa, ou seja, contra a
-consciência, essas não serão perdoadas, e o infrator responderá por elas diante
-das leis que regem a vida.
+But the offences committed with knowledge of cause, that is, against the
+conscience, these will not be forgiven, and the offender will answer for them before
+of the laws governing life.
 
-Assim, a desculpa de que todo mundo faz, não nos isentará da responsabilidade
-pessoal, pois a cada um será dado conforme suas obras, e não conforme as obras
-da maioria, pois o mérito ou demérito são individuais e intransferíveis.
+Thus, the excuse that everyone makes will not exempt us from the responsibility
+personal staff, for each will be given according to his works, and not according to the works
+merit or demerit are individual and non-transferable.
 
-Dessa forma, por mais que tentemos nos confundir com o todo ou com a maioria,
-não impediremos que as leis divinas nos localizem e registrem as nossas mais
-secretas intenções.
+In this way, as much as we try to confuse ourselves with the whole or most,
+we will not prevent divine laws from locating us and registering our most
+secret intentions.
 
-Deixemos o mimetismo para os animais e tomemos a postura cristã onde quer que
-estejamos, sem receio.
+Let us leave mimicry for animals and take christian posture wherever
+let's be, without fear.
 
-Sejamos firmes em nossas decisões nobres, sem nos preocuparmos em agradar as
-massas, mas com a única preocupação de agradar a Deus.
+Let us be firm in our noble decisions, without worrying about pleasing the
+masses, but with the sole concern of pleasing God.
 
-Allan Kardec, ao codificar a Doutrina Espírita, teve oportunidade de perguntar
-aos Espíritos:
+Allan Kardec, by coding the Spiritist Doctrine, had the opportunity to ask
+to spirits:
 
-Por que, no mundo, tão amiúde, a influência dos maus sobrepuja a dos bons?
+Why, in the world, so often, the influence of the bad guys overcomes that of the good?
 
-Os benfeitores responderam:
+The benefactors answered:
 
-Por fraqueza destes. Os maus são intrigantes e audaciosos, os bons são tímidos.
-Quando estes o quiserem, preponderarão.
+For their weakness. The bad are intriguing and audacious, the good ones are shy.
+When they want it, they'll preponder.
 
-Esta e outras tantas questões estão em O livro dos Espíritos.
+This and so many other questions are in The Spirits' Book.
 
-Aproveite para conhecê-lo, neste ano em que completa cento e cinquenta e seis
-anos de esclarecimento e consolo.
- 
+Enjoy meeting you this year when you complete one hundred and fifty-six
+years of enlightenment and comfort.
+
 
 ## Source
 Redação do Momento Espírita, com base no item 932 de O livro

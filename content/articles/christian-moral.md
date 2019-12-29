@@ -15,72 +15,72 @@ topics:
 - prayer
 ---
 
-Quando se fala em moral cristã, é possível que alguém alegue ser ela tão velha
-e que, mesmo assim, nada tem produzido de eficiente na reforma dos costumes.
+When it comes to Christian morals, it's possible that someone claims to be her so old
+and that, even so, has produced nothing efficient in the reform of customs.
 
-Ora, como pode ser velho aquilo que não foi usado?
+Now, how can old what wasn't used?
 
-A moral cristã é, em sua pureza e em sua essência, desconhecida da Humanidade.
+Christian morality is, in its purity and in essence, unknown to humanity.
 
-Sua atuação ainda não se fez sentir com profundidade e de forma ostensiva.
+His performance has not yet been felt in depth and ostentatiously.
 
-Todavia, do entendimento da moral do Cristo depende a nossa felicidade sob
-todos os aspectos.
+However, the understanding of Christ's morals depends on our happiness under
+every aspect.
 
-Não são poucos os que questionam como é possível ter vindo o Filho de Deus ao
-Mundo e não ter iluminado todos os erros das ciências e retirado dos homens
-toda a ignorância.
+There are few who question how it is possible to have the Son of God come to the
+World and have not illuminated all the mistakes of science and taken from men
+all ignorance.
 
-A resposta está no fato de que Jesus veio trazer à Humanidade outra proposta: a
-de nos ensinar a sermos bons, iluminando a própria intimidade e conquistando
-com os próprios esforços, a felicidade almejada.
+The answer lies in the fact that Jesus came to bring to Humanity another proposal: the
+to teach us to be good, illuminating one's own intimacy and conquering
+with one's own efforts, desired happiness.
 
-É por esse motivo que Jesus não ensinou aos filósofos a composição dos
-continentes, nem aos geômetras a quadratura do círculo, nem aos navegantes a
-direção do norte ou do sul, nem aos químicos o descobrimento da pedra
-filosofal, nem aos médicos as virtudes das ervas e plantas, nem aos astrólogos
-e astrônomos o curso, a grandeza, o número e as influências dos astros.
+It is for this reason that Jesus did not teach philosophers the composition of
+continents, neither geometras the square of the circle nor to the navigators to
+north or south direction, nor to the chemicals the discovery of the stone
+philosopher's, neither to physicians the virtues of herbs and plants, nor to astrologers
+and astronomers the course, the greatness, the number and influences of the stars.
 
-Só nos ensinou a ser humildes.
+He just taught us to be humble.
 
-Só nos ensinou a ser castos.
+He just taught us how to be chaste.
 
-Só nos ensinou a fugir da avareza.
+He just taught us to escape the avarice.
 
-Só nos ensinou a perdoar as injúrias.
+He just taught us to forgive the injuries.
 
-Só nos ensinou a sofrer perseguições pela causa da justiça.
+He only taught us to be persecuted for the cause of justice.
 
-Só nos ensinou a eliminar os vícios e exercitar as virtudes, porque estas são
-as regras e conclusões. Estes os preceitos e os teoremas por onde se aprende a
-ser bom, a ser justo.
+It only taught us to eliminate vices and exercise virtues, because these are
+rules and conclusions. These precepts and the theorems through which the
+be good, to be fair.
 
-Essa é a ciência que Jesus professou e veio ensinar a todos nós.
+This is the science that Jesus professed and came to teach us all.
 
-E é de semelhante ensino que precisamos nos dias atuais.
+And it's similar teaching that we need these days.
 
-Se atentarmos para os aspectos da problemática dos nossos dias, perceberemos
-que a crise que aterroriza o mundo é a crise de caráter, responsável por todas
-as outras.
+If we look at the aspects of the problem of our day, we will realize
+that the crisis that terrorizes the world is the crisis of character, responsible for all
+the others.
 
-Perceberemos que o momento reclama a ação de homens honestos, escrupulosos,
-possuídos do espírito de justiça e compenetrados das suas responsabilidades.
+We will realize that the moment claims the action of honest, scrupulous men,
+possessed from the spirit of justice and with the responsibility of their responsibilities.
 
-Temos vivido sob o despotismo da inteligência. Cumpre-nos sacudir-lhe o jugo e
-proclamar o reinado do caráter, o império da consciência, da moral e dos
-sentimentos.
+We have lived under the despotism of intelligence. It is upon us to shake off the yoke and
+proclaim the reign of character, the empire of consciousness, morals and
+Feelings.
 
-Eis a grande lição deixada pelo Filho de Deus, até hoje incompreendida.
+This is the great lesson left by the Son of God, to this day misunderstood.
 
-Eis a chave para solucionar todos os problemas da Humanidade: conhecer e viver
-os ensinos do Sublime Galileu que afirmou, com a segurança de quem sabe o que
-diz, que ninguém chegará ao Pai senão através Dele.
+Here is the key to solving all the problems of humanity: knowing and living
+the teachings of Sublime Galileo which he said, with the safety of those who know what
+says, no one will come to the Father but through Him.
 
 *   *   *
 
-O cristão está convocado para o ministério enobrecido de edificar o bem em toda
-parte, consolidando as possibilidades de serviço relevante, como passo inicial
-para a elaboração de melhores dias.
+The Christian is summoned to the ennobled ministry of building good throughout
+by consolidating the relevant service possibilities, such as an initial step
+for the preparation of better days.
 
 ## Source
 Redação do Momento Espírita com base no cap. Instrução e educação, do livro

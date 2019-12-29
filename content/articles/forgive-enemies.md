@@ -17,102 +17,102 @@ topics:
 - mother
 ---
 
-Nada consolava aquele coração materno. Quem a visitava podia lhe descobrir, de
-imediato, o estado lamentável.
+Nothing comforted that maternal heart. Whoever visited her could discover her, of
+immediate, the pitiful state.
 
-Parecia uma sombra a se mover, entre as quatro paredes do lar.
+It looked like a shadow moving between the four walls of the home.
 
-Chorava e maldizia o acontecido.
+He cried and misled what happened.
 
-Seus dois filhos, no caminho da escola, haviam sido colhidos por uma moto, em
-alta velocidade.
+His two children, on the way to school, had been harvested by a motorcycle, in
+high speed.
 
-O motoqueiro perdera o controle, invadira a calçada e jogara os dois pequenos
-contra um poste.
+The biker had lost control, invaded the sidewalk and played the two small
+against a pole.
 
-Com ferimentos graves, foram levados ao hospital, de imediato. Mas não
-resistiram.
+With serious injuries, they were taken to the hospital immediately. But no
+Resisted.
 
-A revolta daquela mãe não tinha tamanho. E, entre a dor da ausência dos filhos
-queridos, colhidos pela morte, clamava por justiça.
+That mother's revolt wasn't big. And among the pain of the absence of children
+loved ones, harvested by death, cried out for justice.
 
-Era preciso que aquele rapaz fosse castigado duramente.
+That boy had to be punished hard.
 
-Passado algum tempo, ela soube que o motoqueiro sobrevivera e estava no
-hospital, muito ferido.
+After some time, she learned that the biker had survived and was in the
+hospital, badly injured.
 
-Uma amiga, que fora visitá-lo, lhe veio dizer que, nos momentos em que adquiria
-lucidez, rogava perdão pelo que ocasionara.
+A friend, who had been visiting him, came to tell her that, in the moments when she acquired
+lucidity, begged forgiveness for what it had caused.
 
-Queria poder se desculpar, embora soubesse que nada traria de volta a vida das
-duas pequenas criaturas.
+I wish I could apologize, even though I knew nothing would bring back the lives of
+two little creatures.
 
-Os dias foram passando. E, finalmente, Wilma resolveu visitá-lo, levada por uma
-amiga.
+The days have gone by. And finally, Wilma decided to visit him, carried away by a
+Friend.
 
-Ele estava sob o efeito de fortes sedativos, tendo ao seu lado uma mulher
-sofrida e chorosa. Era sua mãe.
+He was under the effect of strong sedatives, taking at his side a woman
+suffered and tearful. It was your mother.
 
-Foi então que Wilma se deu conta de que o sofrimento não era somente seu.
-Aquela mulher sofria pelas dores do filho. Também pela sentença judicial que,
-de futuro, ele teria que enfrentar.
+It was then that Wilma realized that the suffering was not only his.
+That woman suffered from her son's pain. Also by the judicial judgment that,
+in the future, he would have to face.
 
-Algo comoveu Wilma. Eram duas mães que choravam os filhos: uma por aqueles que
-haviam partido e a outra pelas dores presentes e futuras do filho.
+Something moved Wilma. They were two mothers who cried their children: one by those who
+had broken and the other for the present and future pains of the son.
 
-E Wilma voltou e voltou ao hospital. Começou a conversar com aquela mãe, e
-ouviu, repetidas vezes, o pedido de perdão do rapaz, na medida em que melhorava
-seu estado físico.
+And Wilma came back and returned to the hospital. He started talking to that mother, and
+heard, over and over again, the boy's request for forgiveness, to the extent that he improved
+his physical state.
 
-Ele sabia que errara e muito. A impaciência o levara a acelerar e acelerar.
-Fora inconsequente. E agora sabia o quanto.
+He knew he had made a mistake. Impatience will lead him to accelerate and accelerate.
+It was inconsequential. And now I knew how much.
 
-Não podia consertar o que fizera. A justiça o julgaria, ele sabia. Mas isso não
-consolaria aquele coração materno.
-
-                                   *   *   *
-
-O sofrimento costuma endurecer nossos sentidos.
-
-A primeira reação dos que sofremos uma agressão, um trauma ou uma contrariedade
-é o revide automático, sem análise profunda da situação e das condições do
-agressor.
-
-A ideia de que podemos resolver os impasses de forma racional e iluminada é
-tida como tolice para muitos.
-
-Causa surpresa quando pessoas mais calmas e esclarecidas procuram normalizar
-situações apenas com um gesto ou diálogo respeitoso.
-
-É da lei maior o dever de nos amarmos uns aos outros.
-
-E como é prazeroso encontrarmos um amigo que nos traz ao coração sentimentos
-alegres e saudáveis.
-
-Nesses momentos nos sentimos mais perto do que chamamos felicidade.
-
-Quando nos dispomos a refazer uma amizade que se truncou por qualquer motivo,
-nosso coração parece tornar a florir.
-
-Ao conseguirmos que alguém magoado reveja sua postura e tudo recomece do início
-com o propósito de paz, acabamos felizes com a alegria que surge.
+I couldn't fix what I had done. Justice would judge him, he knew. But that's not
+would comfort that maternal heart.
 
                                    *   *   *
 
-Amar aos que nos amam é cômodo, é fácil.
+Suffering usually hardens our senses.
 
-Amar aos desafetos, aos que nos fazem mal, nos fazem sofrer é mais difícil.
+The first reaction of those who suffer an assault, trauma or setback
+is automatic review, without in-depth analysis of the situation and conditions of the
+Attacker.
 
-No entanto, tudo começa no processo de tentarmos desculpar, depois perdoar. E,
-finalmente, deixar de querer mal a quem nos fez mal.
+The idea that we can solve the impasses rationally and enlightened is
+regarded as foolish ness for many.
 
-Este é o caminho do amor.
+Surprise cause when calmer and enlightened people seek to normalize
+situations with only a respectful gesture or dialogue.
 
-Se o amor ao próximo representa o princípio da caridade, amar os inimigos é a
-mais sublime aplicação desse princípio.
+It is the law greater the duty to love each other.
 
-A posse de tal virtude representa uma das maiores vitórias alcançadas contra o
-egoísmo e o orgulho.
+And how pleasurable to meet a friend who brings us to heart feelings
+joyful and healthy.
+
+In these moments we feel closer than we call happiness.
+
+When we have to remake a friendship that has been overstated for any reason,
+our heart seems to make blooming.
+
+By getting someone hurt to review their posture and all start over from the beginning
+for the purpose of peace, we end up happy with the joy that arises.
+
+                                   *   *   *
+
+Loving those who love us is comfortable, it's easy.
+
+Loving the disaffections, those who harm us, make us suffer is more difficult.
+
+However, it all starts in the process of trying to apologize, then forgive. And
+finally, stop wanting badly to those who have hurt us.
+
+This is the way of love.
+
+If love for others represents the principle of charity, loving enemies is the
+most sublime application of that principle.
+
+The possession of such virtue represents one of the greatest victories achieved against the
+selfishness and pride.
 
 ## Source
 Redação do Momento Espírita, com transcrições do cap. XII,

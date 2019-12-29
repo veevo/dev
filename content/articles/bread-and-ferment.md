@@ -9,78 +9,78 @@ topics:
 - sincerity
 ---
 
-O pão é um dos alimentos mais antigos produzido pelo homem. Faz parte da
-História da Humanidade e, além de ser alimento para o corpo, simboliza também
-alimento para o Espírito.
+Bread is one of the oldest man-produced foods. It is part of the
+History of Humanity and, in addition to being food for the body, also symbolizes
+food for the Spirit.
 
-Originalmente feito de maneira rústica, foi sendo cada vez mais elaborado,
-recebendo novos ingredientes, tornando-se macio, saboroso e de aspecto
-convidativo.
+Originally done in a rustic way, it was being increasingly elaborate,
+getting new ingredients, making it soft, tasty and looking
+Inviting.
 
-Para fazer um bom pão são necessários poucos ingredientes, mas deve-se
-respeitar o tempo de fermentação da massa.
+To make a good bread few ingredients are needed, but one should
+respect the fermentation time of the dough.
 
-Um bom fermento faz a massa levedar e as leveduras aerando a massa, fazem–na se
-avolumar deixando o pão fofo. Um fermento ruim não leveda a massa, e o pão fica
-pesado, difícil de ser digerido.
-
-                                   *   *   *
-
-Em suas viagens de divulgação da Boa Nova, em razão do número de igrejas que
-havia fundado e das grandes distâncias entre elas, o Apóstolo Paulo não mais
-conseguia visitar pessoalmente a todas com a frequência que seria desejável.
-
-Assim, para esclarecer dúvidas e orientar sobre as dificuldades que se
-apresentavam teve a inspiração de escrever cartas, conhecidas como Epístolas.
-
-Em uma dessas cartas, endereçada à igreja de Corinto, ele alerta sobre o
-orgulho, o risco dos desvios no caminho e orienta sobre a necessidade da
-renovação, comparando as atitudes humanas ao processo de panificação.
-
-O Apóstolo de Tarso aconselha a nos libertarmos do fermento velho, do fermento
-da maldade e da malícia, para nos tornarmos nova massa, sem fermento.
-
-Em síntese, conclama a todos a usarmos da sinceridade e da verdade.
-
-O fermento velho a que ele se referia são os vícios, as imperfeições que
-insistimos em manter, negando-nos ao empreendimento da reforma moral tão
-urgente e necessária para a nossa evolução espiritual.
-
-Da mesma forma que um fermento de má qualidade pode arruinar os pães de toda
-uma fornada, dominados pelos vícios, pela maldade, pelo orgulho, pelo egoísmo
-prejudicaremos aos que convivem conosco.
-
-Nossas palavras e atos têm alcance que desconhecemos. Assim como o fermento,
-eles podem se aninhar nas mentes alheias, levedando-as, ou seja,
-multiplicando-se.
-
-Por isso, temos o dever de cuidar da qualidade do que espalhamos ao nosso
-redor, sejam palavras, vibrações ou ações.
+A good yeast makes the mass light and yeasts aerating the dough, make it
+avolute leaving the fluffy bread. A bad yeast does not light the dough, and the bread gets
+heavy, hard to digest.
 
                                    *   *   *
 
-Que tipo de fermento e de pão estamos oferecendo a quem convive conosco? Com
-quais sentimentos estamos alimentando o Espírito de quem nos rodeia?
+In their dissemination trips of the Good News, due to the number of churches that
+had founded and from the great distances between them, the Apostle Paul no longer
+i was able to visit everyone personally as often as it would be desirable.
 
-Afinal, que espécie de pão estamos produzindo? De qualidade macia, gostoso ao
-paladar? Ou um pão amargo, duro, sem a menor condição de fazer bem a quem dele
-se alimente?
+Thus, to clarify doubts and guide the difficulties that
+had the inspiration of writing letters, known as Epistles.
 
-É possível fazer um pão sem fermento. Mas, mesmo nesse caso, a qualidade dos
-ingredientes é importante.
+In one of these letters, addressed to the church of Corinth, he warns about the
+pride, the risk of deviations along the way and guides on the need for
+renewal, comparing human attitudes to the baking process.
 
-Se não dispomos do fermento que multiplica o bem, podemos fazer um pão bem
-fino, mas, com os ingredientes da verdade e da sinceridade, como recomendou
+The Apostle of Tarsus advises us to free ourselves from old leaven, from leaven
+of evil and malice, to become new mass, without yeast.
+
+In short, he calls on everyone to use sincerity and truth.
+
+The old yeast to which he referred are the vices, the imperfections that
+we insist on maintaining, denying ourselves to the undertaking of moral reform so
+urgent and necessary for our spiritual evolution.
+
+In the same way that a poor quality yeast can ruin the breads of all
+a force, dominated by vices, evil, pride, selfishness
+harm to those who live with us.
+
+Our words and deeds have scope that we don't know. Just like yeast,
+they can nest in the other people's minds, taking them away, that is,
+multiplying-se.
+
+Therefore, we have a duty to take care of the quality of what we spread to our
+around, be it words, vibrations, or actions.
+
+                                   *   *   *
+
+What kind of yeast and bread are we offering to those who live with us? With
+what feelings are we nourishing the Spirit of those around us?
+
+After all, what kind of bread are we producing? Soft quality, tasty to
+Taste? Or a bitter, hard bread, without the slightest condition of doing well to those of it
+feeds?
+
+It is possible to make a bread without yeast. But even in this case, the quality of
+ingredients is important.
+
+If we do not have the yeast that multiplies the good, we can make a good bread
+thin, but with the ingredients of truth and sincerity, as recommended
 Paulo.
 
-E sempre podemos aprender a produzir um bom fermento, buscando-o nas palavras e
-no exemplo daquele que é o Pão da Vida, por excelência, nosso Mestre Jesus.
+And we can always learn to produce a good yeast, seeking it in words and
+in the example of the one who is the Bread of Life, par excellence, our Master Jesus.
 
-Assim agindo, permitiremos que o bem fermente dentro de nós, avolumando os bons
-sentimentos e espalhando-os entre aqueles que convivem conosco ou que de nós se
-possam acercar, de alguma forma.
+Thus acting, we will allow good to harm within us, adding the good
+feelings and spreading them among those who coexist with us or that of us
+can get around, somehow.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 108,

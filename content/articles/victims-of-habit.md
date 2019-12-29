@@ -7,84 +7,84 @@ topics:
 - child
 ---
 
-Existem pessoas que encontram muita dificuldade em fazer pequenas mudanças em
-seus hábitos.
+There are people who find it very difficult to make small changes in
+their habits.
 
-Pessoas que têm suas coisas bem arrumadas e nos lugares certos, sempre na mesma
-posição e, de preferência, na mesma ordem.
+People who have their things well tidy and in the right places, always in the same
+position and preferably in the same order.
 
-Seguem sempre pelos mesmos caminhos, freqüentam os mesmos restaurantes e pedem
-os pratos já conhecidos.
+They always follow the same paths, attend the same restaurants and ask for
+the dishes already known.
 
-Encontram sempre os mesmos amigos, torcedores do mesmo time, e conversam com os
-que trabalham em profissões semelhantes.
+They always find the same friends, fans of the same team, and talk to the
+working in similar professions.
 
-Geralmente ouvem a mesma rádio, assistem os mesmos canais de televisão, e
-variam pouco a programação.
+They usually listen to the same radio, watch the same television channels, and
+vary programming little.
 
-De certa forma, isso as faz sentirem-se seguras. Arriscar não é do seu feitio.
+In a way, it makes them feel safe. Risking is not your character.
 
-Por outro lado, pessoas assim acabam sendo vítimas do hábito e têm grande
-dificuldade para resolver problemas. A menos que sejam problemas já conhecidos.
+On the other hand, people like this end up being victims of habit and have great
+difficulty in solving problems. Unless they're already known problems.
 
-Isso gera ansiedade, depressão e baixa auto-estima quando precisam encontrar
-solução para situações inesperadas e sua criatividade é solicitada
+This generates anxiety, depression and low self-esteem when they need to find
+solution to unexpected situations and your creativity is requested
 
-Ah, se esses adultos pudessem se ver quando tinham a desenvoltura dos seus 5 ou
-6 anos de idade...
+Oh, if these adults could see each other when they had the resourcefulness of their 5 or
+6 years old...
 
-Era uma idade em que a criatividade brotava por todos os poros.
+It was an age when creativity sprouted all pores.
 
-Não faltava solução para problema algum. Não havia perigo que não fosse
-afastado com um disparo de água, com seu revólver de brinquedo.
+There was no solution to any problem. There was no danger that it was not
+away with a shot of water, with his toy revolver.
 
-Não havia guerra que não pudesse ser vencida com algumas bolinhas de papel,
-arremessadas com um elástico esticado na ponta dos dedos.
+There was no war that could not be overcome with some paper balls,
+flung with a stretch band stretched at your fingertips.
 
-Agora são executivos, homens e mulheres de negócio...
+Now they're business executives, men and women...
 
-Pessoas que precisam mostrar seriedade.
+People who need to show seriousness.
 
-Todavia, esquecem-se de que seriedade não quer dizer sisudez nem falta de um
-sorriso nos lábios.
+However, they forget that seriousness does not mean politeness or lack of a
+smile on the lips.
 
-Essas reflexões nos fazem lembrar um garoto de setenta e poucos anos, homem
-público, respeitável profissional reconhecido no mundo inteiro, que se diverte
-brincando com um bilboquê, ou andando de balanço.
+These reflections remind us of a seventy-something boy, man
+public, respectable professional recognized worldwide, which has fun
+playing with a bilboquê, or walking on the swing.
 
-Podemos até imaginar a felicidade dos seus netos ao ver o avô brincando como um
-garoto...
+We can even imagine the happiness of his grandchildren by seeing grandpa playing like a
+Boy...
 
-Esse homem é um ilustre professor, psiquiatra, educador e escritor brasileiro.
+This man is an illustrious Brazilian teacher, psychiatrist, educator and writer.
 
-Ninguém imagina que um homem desses não seja um profissional sério só porque
-não assassinou o menino que corria pelos quintais, fazia piruetas e despencava
-dos galhos das árvores de vez em quando.
+No one imagines that a man like that is not a serious professional just because
+did not murder the boy who ran through the backyards, made pirouettes and plummeted
+branches of the trees from time to time.
 
-Não podemos crer que esse profissional seja menos competente só porque todas as
-vezes que se sente inseguro, chama o menino que habita seu ser, e este vem e
-lhe dá a mão.
+We cannot believe that this professional is less competent just because all
+times that feels insecure, calls the boy who inhabits his being, and this comes and
+Give him the hand.
 
-Podemos imaginar justamente o contrário: uma grande capacidade de resolver
-conflitos e problemas.
+We can imagine just the opposite: a great ability to solve
+conflicts and problems.
 
-Uma pessoa assim tem grande criatividade, leveza e satisfação em tudo o que
-faz.
+A person like this has great creativity, lightness and satisfaction in all that
+It does..
 
-Seus escritos exalam um suave perfume de jardim em flor. Suas idéias fluem com
-a suavidade da brisa das manhãs primaveris.
+His writings exude a soft garden scent in bloom. Your ideas flow with
+the softness of the spring morning breeze.
 
-É de pessoas assim que o mundo precisa.
+That's people that the world needs.
 
-Homens e mulheres confiantes, alegres, honestos, descomplicados, leves...
+Confident, cheerful, honest, uncomplicated, light men and women...
 
-### Pense nisso!
+### Think about it!
 
-A seriedade é uma característica do espírito. Um sorriso não a destrói. Um
-rosto fechado não a garante.
+Seriousness is a characteristic of the spirit. A smile doesn't destroy her. A
+closed face does not guarantee it.
 
-Pense nisso, e considere que a criança que habita em você pode lhe ajudar a
-encontrar a felicidade que há muito você vem procurando.
+Think about it, and consider that the child who dwells in you can help you
+find the happiness you've been looking for for for a long time.
 
 ## Source
 Texto da Equipe de Redação do Momento Espírita.

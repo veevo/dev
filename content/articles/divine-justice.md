@@ -9,90 +9,90 @@ topics:
 - mother
 ---
 
- Eles eram jovens, amáveis e simpáticos. Seus semblantes irradiavam alegria.
-Amavam-se com esse primeiro amor que se assemelha a uma árvore florida que
-espera a estação propícia para se transformar em um celeiro de frutos.
+ They were young, kind and friendly. His countenances radiated joy.
+They loved each other with that first love that resembles a flowering tree that
+waits for the propitious station to turn into a fruit barn.
 
-Uniram-se por amor. Ele era um modesto empregado e ela  costureira. Viram-se e
-se amaram. Amaram-se e se uniram.
+They came together for love. He was a modest employee and she seamstress. They turned around and
+They loved themselves. They loved and came together.
 
-Ao se unirem, logo pensaram na bênção de um primeiro filho. A moça, olhando
-gravuras de querubins, pediu a Deus que lhe desse um filho tão lindo como uma
-daquelas figuras angelicais.
+As they came together, they soon thought of the blessing of a first child. The girl, looking
+cherubim engravings, asked God to give him a son as beautiful as a
+of those angelic figures.
 
-Um ano se passou. O amoroso par juntou economias e preparou o necessário para
-vestir um recém-nascido.
+A year has passed. The loving pair joined savings and prepared what is necessary to
+dress a newborn.
 
-Ela costurou roupinhas de cambraia com preciosas rendas, conjuntos brancos com
-finos bordados, gorros, tudo de mais  belo e delicado para receber o seu bebê.
+She sewed cambraia robes with precious lace, white ensembles with
+Fine embroidery, hats, everything more beautiful and delicate to receive your baby.
 
-Esperaram o filho que imaginavam belo e que deveria chegar pedindo beijos com
-seus sorrisos.
+They waited for the son who imagined beautiful and who should come asking for kisses with
+their smiles.
 
-Enfim, chegou o momento do parto. Áurea sentiu as primeiras dores e depois de
-um laborioso período deu à luz um menino.
+Anyway, the time has come for childbirth. Golden felt the first pains and after
+a laborious period gave birth to a boy.
 
-Logo quis vê-lo, mas seu esposo e as pessoas que a rodeavam simplesmente a
-olhavam com tristeza.
+Soon i wanted to see him, but her husband and the people who surrounded her simply to
+they looked sadly.
 
-Entre si trocavam olhares melancólicos e cochichavam algo que ela não conseguia
-entender.
+Among themselves exchanged melancholy looks and whispered something she could not
+Understand.
 
-Por fim, depois de insistir, Áurea acabou por gritar: Vocês não me escutam?
-Quero abraçar meu filho. Por acaso está morto?
+Finally, after insisting, Aurea ended up screaming, Don't you listen to me?
+I want to hug my son. Are you dead by any chance?
 
-Não, disseram-lhe. É que...o menino não tem braços, nem pernas!
+No, they told him. It's just... The boy has no arms, no legs!
 
-Áurea estendeu os próprios braços e respondeu com ansiedade:
+Aurea extended her own arms and answered with anxiety:
 
-Pois tragam-no. Se não tem braços, nem pernas, ele estará mais tempo em meus
-braços.
+Well bring him in, if he has no arms, no legs, he'll be in my more time.
+Arms.
 
-O menino era lindo. Olhos azuis, expressivos, cabelos louros muito abundantes.
-Os pais o amaram. Mas o pai, quando sua esposa não podia ouvir, dizia com
-profunda amargura:
+The boy was beautiful. Blue, expressive eyes, very abundant blond hair.
+His parents loved him. But the father, when his wife could not hear, said with
+deep bitterness:
 
-Eu queria tanto um filho. E ele veio sem braços nem pernas. Que grande
-injustiça cometeu Deus para comigo. Se ao menos eu fosse rico, mas sou tão
-pobre!
+I wanted a son so badly. And he came without arms or legs. What a great
+injustice committed God to me. If only I was rich, but I'm so
+Poor!
 
                                    *   *   *
 
-Ante um quadro tão doloroso, a Doutrina Espírita nos oferece profundas
-elucidações, através da lei dos renascimentos, da tese das múltiplas
-existências, da Lei de Causa e Efeito.
+In the face of such a painful picture, the Spiritist Doctrine offers us deep
+elucidations, through the law of rebirths, of the thesis of the multiple
+existences, of the Law of Cause and Effect.
 
-Ela nos permite abrir uma porta para o nosso ontem, o nosso passado, dentro da
-História da Humanidade terrestre.
+It allows us to open a door to our yesterday, our past, within the
+History of Earthly Humanity.
 
-Em O livro dos Espíritos, os mensageiros espirituais esclarecem a grande
-questão do sofrimento, da dor, da enfermidade, afirmando que não são fatores
-propostos pelo Criador, mas consequências das violações de Suas Leis.
+In The Book of Spirits, spiritual messengers clarify the great
+the issue of suffering, pain, illness, stating that they are not factors
+proposed by the Creator, but consequences of violations of His Laws.
 
-Assim, de acordo com a natureza das faltas cometidas pelo Espírito, ele mesmo
-escolhe as provas que queira sofrer.
+Thus, according to the nature of the faults committed by the Spirit, he himself
+choose the evidence you want to suffer.
 
-Provas que o levem à expiação das faltas cometidas e a progredir mais depressa.
+Evidence that leads him to the atonement of the faults committed and to progress faster.
 
-Deus, na Sua justiça, permite que o culpado retorne ao cenário onde delinquiu,
-para a retificação dos seus erros.
+God, in His righteousness, allows the culprit to return to the scenario where he delinquiu,
+for rectification of your errors.
 
-E como ensinou Jesus: Se  teu olho for causa de escândalo, arranca-o e joga-o
-fora, as deficiências e mutilações do hoje retratam exatamente a qualidade dos
-desacertos do ontem.
+And as Jesus taught: If your eye is cause of scandal, tear it out and throw it
+outside, today's shortcomings and mutilations portray exactly the quality of
+yesterday's unsures.
 
-Mas, como Deus é justiça e também misericórdia, permite que almas devedoras
-nasçam junto a corações amorosos que as aceitam e as ajudam com devoção, em sua
-trajetória de resgates e dores.
+But, as God is justice and also mercy, it allows debtor souls
+with loving hearts that accept them and help them with devotion, in their
+trajectory of rescues and pains.
 
-Por isso mesmo, é comum encontrarmos mães carregando filhos que não andam, sem
-lamentar o esforço que realizam.
+That's why it's common to find mothers carrying children who don't walk without
+regret the effort they make.
 
-Mães que vivem com filhos de ouvidos e lábios fechados e que, no entanto, lhes
-falam à acústica da alma, dizendo-lhes do seu amor.
+Mothers who live with children of ears and closed lips and who nevertheless
+speak to the acoustics of the soul, telling them of their love.
 
-Mães que recebem filhos deficientes de toda ordem e que a eles se dedicam,
-heroínas anônimas, com desprendimento e amor.
+Mothers who receive disabled children of every order and who dedicate themselves to them,
+anonymous heroines, with detachment and love.
 
 ## Source
 Redação do Momento Espírita, com base no cap. Sem braços e sem pernas, do livro

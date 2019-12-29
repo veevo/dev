@@ -19,76 +19,76 @@ topics:
 - prayer
 ---
 
-Pai nosso, que estás no céu, na terra, no fogo, na água e no ar. Pai nosso,
-que estás nas flores, no canto dos pássaros, no coração a pulsar; que estás na
-compaixão, na caridade, na paciência e no gesto de perdão.
+Our father, who is in heaven, on earth, in fire, in water and in the air.
+that you are in the flowers, in the corner of birds, in the heart to pulsate; that you're in the
+compassion, charity, patience and the gesture of forgiveness.
 
-Pai nosso, que estás em mim, que estás naquele que eu amo, naquele que me fere,
-naquele que busca a verdade. Pai nosso, que estás naquele que caminha comigo e
-naquele que já partiu, deixando-me a alma ferida pela saudade.
+Our father, who is in me, who are in the one i love, in the one who hurts me,
+in the one who seeks the truth. Our father, who is in the one who walks with me and
+in the one who has already left, leaving my soul injured by longing.
 
-Santificado seja o Teu nome por tudo o que é belo, bom, justo e gracioso, por
-toda a harmonia da Criação. Sejas santificado por minha vida, pelas
-oportunidades tantas, por aquilo que sou, tenho e sinto e por me conduzir à
-perfeição.
+Sanctified be Your name for all that is beautiful, good, fair and graceful, for
+harmony of Creation. Be sanctified by my life, by the
+opportunities so many, for what I am, I have and feel and for leading myself to
+Perfection.
 
-Venha a nós o Teu reino de paz e justiça, fé e caridade, luz e amor. Reino que
-sou convocado a construir através da mansidão de espírito, reflexo da grandeza
+May Your kingdom of peace and justice, faith and charity come to us, light and love. Kingdom that
+I am summoned to build through meekness of spirit, a reflection of the greatness
 interior.
 
-Seja feita a Tua vontade, ainda que minhas rogativas prezem mais o meu orgulho
-do que as minhas reais necessidades.
+Your will be done, even though my rogatory values my pride more
+than my real needs.
 
-Ainda que muitas vezes eu não compreenda mais do que o silêncio em resposta às
-minhas preces, não Te ouvindo assim dizer: Filho aguarda, tua é toda a
-eternidade.
+Although I often do not understand more than silence in response to
+my prayers, not hearing you like saying, Son waits, thy is all
+Eternity.
 
-O pão nosso de cada dia me dá hoje e que eu possa dividi-lo com meu irmão. As
-condições materiais que ora tenho de nada servem se não me lembro de quem vive
-na aflição.
+Our daily bread gives me today and i can share it with my brother. The
+material conditions that sometimes have nothing good if I don't remember who lives
+in affliction.
 
-Pão do corpo, pão da alma, pão que é vida, verdade e luz. Pão que vem trazer
-alento e alegria: é o Evangelho de Jesus.
+Body bread, soul bread, bread that is life, truth and light. Bread coming to bring
+encouragement and joy: it is the Gospel of Jesus.
 
-Perdoa as minhas ofensas, os meus erros, as minhas faltas. Perdoa quando se
-torna frio meu coração; quando permito que o mal se exteriorize na forma de
-agressão.
+Forgive my offenses, my mistakes, my faults. Forgive when you
+makes my heart cold; when I allow evil to be externalized in the form of
+Aggression.
 
-Que, mais do que falar, eu saiba ouvir. Que, ao invés de julgar, eu busque
-acolher. Que, não cultivando a violência, eu semeie a paz. Que, dizendo não às
-exigências em demasia, possa a todos agradecer.
+That, more than talking, I can hear. That, instead of judging, I seek
+Welcome. That, not cultivating violence, I sow peace. That, saying no to the
+demands too much, may you all thank.
 
-Perdoa-me, assim como eu perdoar àqueles que me ofenderem, mesmo quando meu
-coração esteja ferido pelas amarguras e dissabores da ingratidão.
+Forgive me, just as I forgive those who offend me, even when my
+heart is wounded by the bitterness and displeasures of ingratitude.
 
-Possa eu, Senhor da Vida, lembrar de que nenhuma mágoa é eterna e de que o
-único caminho que me torna sublime é a humilde estrada da reconciliação.
+May I, Lord of Life, remember that no sorrow is eternal and that the
+only path that makes me sublime is the humble road of reconciliation.
 
-Não me deixes cair nas tentações dos erros, vícios e egoísmo, que me tornam
-escravo de minha malevolência.
+Do not let me fall into the temptations of errors, vices and selfishness, which make me
+slave of my malevolence.
 
-Antes, que Tua luz esteja sobre mim, iluminando-me, para que eu te encontre
-dentro de minh’alma, como parte que és de minha essência.
+First, may Your light be upon me, enlightening me, so That I may find you
+within minh'soul, as part of my essence.
 
-E livra-me de todo o mal, de toda violência, de todo infortúnio, de toda
-enfermidade. Livra-me de toda dor, de toda mágoa e de toda desilusão.
+And it delivers me from all evil, from all violence, of all misfortune, of all
+Illness. It delivers me from all the pain, all the sorrow and all the disappointment.
 
-Mas ainda assim, quando tais dificuldades se fizerem necessárias, que eu tenha
-força e coragem de dizer: Obrigado, Pai, por mais esta lição!
+But still, when such difficulties are necessary, that I have
+strength and courage to say, Thank you, Father, for more of this lesson!
 
                                    *  *   *
 
-Tudo o que nos cerca é poesia Divina. Há um traço de Deus em cada ser da
-Criação.
+All that surrounds us is Divine poetry. There is a trait of God in every being of
+Creation.
 
-Busquemos por Ele no desabrochar das flores, no correr das águas, no canto do
-vento, no cintilar das estrelas.
+Let us seek for Him in the blossoming of flowers, in the run of the waters, in the corner of the
+wind, in the flicker of the stars.
 
-Mas, acima disso, busquemos por Ele em nosso interior. Basta que, por um
-instante, fechemos os olhos e O sintamos: lá Ele está, dando rima aos versos de
-nossas vidas...
+But above that, let's look for Him inside. It is enough that, by a
+let us close our eyes and feel Him: there He is, giving rhyme to the verses of
+our lives...
 
- 
+
 ## Source
 Redação do Momento Espírita.
 Disponível no CD Momento Espírita, v. 25, ed. FEP.

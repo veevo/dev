@@ -16,88 +16,88 @@ topics:
 - family
 ---
 
-Melindre tem várias definições. Pode ser definido como amabilidade, delicadeza
-no trato, recato, pudor.
+Melindre has several definitions. Can be defined as kindness, delicacy
+I don't try, modesty, modesty.
 
-No entanto, é quase certo que ao ser utilizado pelas pessoas, o conceito que
-expressa é de facilidade de se magoar, de se ofender, suscetibilidade.
+However, it is almost certain that when used by people, the concept that
+is easy to get hurt, of offending, susceptibility.
 
-Nesse sentido, tem sido comum a sua invocação, nas relações humanas. As menores
-atitudes de um funcionário, de um amigo recebem a adjetivação imediata.
+In this sense, its invocation in human relations has been common. The smallest
+attitudes of an employee, a friend receive immediate adjecactivation.
 
-Por isso, amizades se diluem, desentendimentos acontecem, duplicando mágoas de
-um e de outro lado.
+Therefore, friendships are diluted, disagreements happen, doubling sorrows of
+one and the other side.
 
-Nas várias facetas do trabalho voluntário, melindre tem sido utilizado para
-justificar defecções, traições, desajustes e quebra moral de contratos de
-voluntariado.
+In the various facets of voluntary work, touchhas been used to
+justify defecations, betrayals, misfits and moral breach of contracts of
+Volunteering.
 
-Que ele existe, é verdade. Mas que as pessoas se dão, por vezes, um valor maior
-do que verdadeiramente possuem e aguardam tratamento especial, também é
-verdade.
+That he exists, it's true. But that people sometimes give themselves a higher value
+of what they truly possess and await special treatment, it is also
+Truth.
 
-No entanto, um outro lado da questão se apresenta e tem sido esquecido, quase
-sempre.
+However, another side of the issue presents itself and has been forgotten, almost
+All the time.
 
-Se melindre é a manifestação do orgulho ferido, não menos verdade que medra,
-entre as criaturas, muita falta de tato, delicadeza e gentileza.
+If touchy is the manifestation of wounded pride, no less true than medra,
+among creatures, much lack of touch, delicacy and kindness.
 
-Em nome de uma falsa caridade, de expressar a verdade, amigos e companheiros de
-trabalho se permitem lançar ao rosto do outro tudo que pensam.
+In the name of a false charity, to express the truth, friends and companions of
+work allow themselves to throw to the other's faces everything they think.
 
-E não medem palavras nas suas expressões. É como se tomassem de pedras e as
-jogassem, sem piedade.
+And they don't measure words in your expressions. It's like they're taking stones and
+played mercilessly.
 
-E o que esperam é que o outro aceite tudo. Quando o agredido se insurge, quando
-toma uma atitude, quando fala de respeito, é tomado como aquele que se
+And what they expect is for the other to accept everything. When the assaulted man rises, when
+takes an attitude, when talking about respect, is taken as the one who
 melindra.
 
-Contudo, em nenhum momento o agressor, aquele que foi indelicado e feroz, se
-desculpa. Não, ele está certo. O outro é que é portador de muito orgulho.
+However, at no time did the aggressor, the one who was impolite and ferocious,
+I am sorry. No, he's right. The other is that it carries a lot of pride.
 
-Nesse diapasão, vidas honradas de trabalho têm sido literalmente jogadas no
-lixo. Servidores de anos têm tido seus esforços depreciados, como se fossem
-coisa alguma.
+In this tuning fork, honorable working lives have literally been played in the
+Garbage. Birthday servers have had their efforts depreciated, as if they were
+something at all.
 
-E o que critica maldosamente, o que aponta os erros mínimos é o herói, a pessoa
-correta.
+And what criticizes evilly, what points out the minimal mistakes is the hero, the person
+Correct.
 
-Refaçamos os passos enquanto é tempo. Antes de destruirmos valores afetivos
-preciosos. Antes de atacarmos instituições centenárias com folha irrepreensível
-de dedicação e serviço à comunidade.
+Let's redo the steps while it's time. Before we destroy affective values
+Precious. Before we attack centuries-old institutions with irreproachable sheet
+dedication and service to the community.
 
-Examinemos quantas vezes a culpa nos compete. Quantas vezes teremos sido nós os
-provocadores do afastamento de pessoas de nosso convívio.
+Let's look at how many times the guilt is up to us. How many times have we been
+causeers of the removal of people from our life.
 
-Ou da instituição a que prestamos serviço. Da nossa família, da nossa esfera de
-amizades.
+Or the institution to which we provide service. From our family, from our sphere of
+Friendships.
 
-Recordamos que, certa vez, em reunião de trabalho, um voluntário interrompeu de
-forma agressiva a fala do coordenador.
+We recall that, once, at a working meeting, a volunteer interrupted
+aggressively the speech of the coordinator.
 
-Reclamou e reclamou, ferindo e humilhando-o frente aos demais.
+He complained and complained, hurting and humiliating him in front of others.
 
-O ferido se calou, dolorido. Depois de alguns dias, procurou o agressor em
-particular. A sós com ele, expressou a sua mágoa, com o sincero objetivo de
-modificar a emoção ferida e apaziguar seu mundo íntimo.
+The wounded man shut up, sore. After a few days, he sought the aggressor in
+Particular. Alone with him expressed his sorrow, with the sincere goal of
+modify wounded emotion and appease your intimate world.
 
-O interlocutor, em vez de reconhecer a indelicadeza, reverteu a situação e deu
-o diagnóstico impiedoso: não houvera agressão de sua parte. O outro é que se
+The interlocutor, instead of recognizing the indelicacy, reversed the situation and gave
+the merciless diagnosis: there had been no aggression on your part. The other is that
 melindrara.
 
-Pensemos nisso. Será que a constatação quase diária de melindre nos outros não
-se tornou uma válvula de escape para nós?
+Let's think about it. Does the almost daily finding of touchland in others not
+has become an escape valve for us?
 
-Uma desculpa para a nossa rispidez cotidiana, o nosso relaxamento no trato com
-o semelhante?
+An excuse for our daily rispiity, our relaxation in dealing with
+the similar one?
 
                                      * * *
 
-Quem se melindra, deve trabalhar para se tornar menos suscetível.
+Who melindra should work to become less susceptible.
 
-Mas quem provoca o melindre não pode se esquecer da lei de caridade, da
-afabilidade e da doçura preconizados por Jesus: Bem-aventurados os mansos e
-pacíficos.
+But whoever provokes the touchman cannot forget the law of charity, the
+affability and sweetness advocated by Jesus: Blessed are the meek and
+Peaceful.
 
 ## Source
 Redação do Momento Espírita com base em fato narrado no artigo O problema do

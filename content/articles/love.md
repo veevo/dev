@@ -9,81 +9,81 @@ topics:
 - prayer
 ---
 
-        O amor é de essência divina, bradam os Imortais. O homem, nos ensaios
-do amor, tem muita vez se equivocado.
+        Love is of divine essence, cry out the Immortals. The man, in rehearsals
+of love, has been wrong very often.
 
-        Em nome do amor à verdade deflagrou contendas que atravessaram anos e
-atingiram a muitos.
+        In the name of love for truth, strife broke out that have passed years and
+have reached many.
 
-        Pelo amor a personalidades eminentes, atingiu vidas, destroçando outras
-tantas vidas.
+        For love of eminent personalities, it has hit lives, destroying others
+so many lives.
 
-        Pelo amor a sítios e paragens históricas o homem luta, guerreia e se
-desequilibra.
+        For love to historical places and stops man fights, fought and
+Unbalanced.
 
-        Contudo, o amor é de essência divina. Do que se conclui que, em momento
-algum, por nenhum motivo, pode se tornar arma fratricida ou motivo de
-dissensão.
+        However, love is of divine essence. From what is concluded that, at the moment
+some, for no reason, may become a fractional weapon or reason for
+Dissension.
 
-        O verdadeiro amor simplesmente se doa e não tem limites.
+        True love simply donates and has no limits.
 
-        Recordamo-nos de uma jovem senhora, profissional de mérito, que se
-consorciou com famoso engenheiro.A fortuna lhes sorriu, a fama, o
-reconhecimento público. Viviam felizes, não fosse a depressão que vez ou outra
-acometia a esposa. Tomava-se de tristeza e por horas amargava a solidão.
+        We remember a young lady, a professional of merit, who
+he intersorcied with famous engineer. Fortune smiled at them, fame, the
+public recognition. They lived happily, were it not for depression that time or other
+he affected his wife. He was taking a lot of sadness and for hours bitterly loneliness.
 
-        Nada que lhe pudesse modificar a disposição, nesses momentos. Nem a
-presença do esposo, dos familiares, de amigos.
+        Nothing that could modify his disposition in those moments. Nor does the
+presence of the spouse, family, friends.
 
-        É que ela guardava um segredo e o remorso a atormentava. Nos verdes
-anos da juventude engravidara e, inconseqüente, optara pelo abortamento.
+        It's just that she kept a secret and the remorse tormented her. In the greens
+years of youth had become pregnant and, inconsequential, had opted for abortion.
 
-        Após o casamento, porque não conseguisse engravidar, passou a crer que
-os céus a estavam castigando pelo ato terrível que cometera.
+        After the marriage, because he could not get pregnant, he came to believe that
+the heavens were punishing her for the terrible act she had committed.
 
-        Mas não ousava a ninguém confidenciar o que fizera.
+        But i didn't dare anyone to confide what i had done.
 
-        Até que um dia resolveu abrir a intimidade desconhecida do seu coração
-ao ser amado. Temia perdê-lo, face à revelação.
+        Until one day he decided to open the unknown intimacy of his heart
+upon being loved. I was afraid I'd lose him in the face of revelation.
 
-        Ele a ouviu e tomando-lhe as mãos entre as suas, murmurou: Já
-suspeitava de que algo grave houvesse sucedido em sua vida.Respeitei o seu
-segredo e jamais a amei menos.Agora, muito mais, se for possível um superlativo
-amor. Este é um grande e especial momento em nossas vidas. Desapareceu o único
-impedimento que colocava sombras em nossa união.
+        He heard her and taking his hands among his, murmured:
+suspected that something serious had happened in his life. I respected your
+secret and never loved her less. Now, much more, if a superlative is possible
+Love. This is a great and special moment in our lives. The only one has disappeared
+impediment that cast shadows on our union.
 
-        Você me perdoa?, perguntou lacrimosa.
+        Do you forgive me?" asked tearful.
 
-        Quem ama, não chega a perdoar, respondeu rápido o marido. O fato de
-perdoar anularia o sentimento do amor, porque o amor compreende sempre.
+        Whoever loves, he can't forgive, she answered her husband quickly. The fact that
+forgive would nullify the feeling of love, because love always understands.
 
-        Lamento que este seu gesto de confiança não tivesse se dado antes, pois
-assim me impediu de usufruir a solidariedade de sofrer ao seu lado,
-diminuindo-lhe a dor.
+        I regret that your gesture of trust had not taken itself before, for
+so prevented me from enjoying the solidarity of suffering by his side,
+reducing his pain.
 
-        Segurando-lhe as mãos com redobrada ternura, as beijou: Não soframos
-mais o passado. Construamos o futuro. Compensemos o ato criminoso, amparando os
-filhos alheios, se não pudermos ser pais da própria carne.
+        Holding his hands with redoubled tenderness, kissed them: We do not suffer
+more the past. We built the future. Let us compensate for the criminal act, supporting the
+children of others, if we cannot be parents of their own flesh.
 
-        Refundamos as nossas forças na fornalha sublime do amor, clarificados
-pelo amor de Deus.
+        We rehave our strengths in the sublime furnace of love, clarified
+for God's sake.
 
-        O casal, tendo por testemunhas as estrelas da noite calma, renovou as
-promessas de eterna ventura com dedicação perene.
+        The couple, having by witnesses the stars of the calm night, renewed the
+promises of eternal ventura with perennial dedication.
 
-        Um poema musical de esperança e de mútuo auxílio se expressou, na
-balada suave do amor.
+        A musical poem of hope and mutual assistance was expressed, in the
+soft ballad of love.
 
                                    *   *   *
 
-        O amor cobre a multidão dos erros e equívocos.
+        Love covers the multitude of mistakes and misconceptions.
 
-        Isto significa que faltas graves podem ser ressarcidas com devoção ao
-semelhante, dedicação ao bem e trabalho incessante pelo próximo.
+        This means that serious fouls can be reimbursed with devotion to the
+dedication to good and unceasing work for others.
 
-        Quem semeia espinhos pode vir a amenizar a aspereza do campo então
-cultivado, passando a aromatizar o ar com a semeadura abundante de flores
-coloridas e árvores frutíferas.
+        Who sows thorns can come to soften the roughness of the field then
+cultivated, starting to aromatize the air with the abundant sowing of flowers
+and fruit trees.
 
 ## Source
 Redação do Momento Espírita, com frases extraídas  do cap. 6, pt. 3,

@@ -12,89 +12,89 @@ topics:
 - child
 ---
 
-Você já pensou no que significam as oportunidades em sua vida?
+Have you thought about what opportunities in your life mean?
 
-Ao contrário do que muitos imaginam, as oportunidades nem sempre nos chegam da
-maneira que desejamos, mas sempre nos são oferecidas de acordo com nossas
-necessidades.
+Contrary to what many imagine, opportunities do not always come to us from the
+way we desire, but are always offered to us according to our
+Needs.
 
-A oportunidade de quitar um débito, por exemplo, não deixa de ser uma grande
-chance, que nem sempre sabemos aproveitar.
+The opportunity to pay off a debt, for example, is still a great
+chance, which we don't always know how to enjoy.
 
-Isso aconteceu com uma mulher, de aproximadamente 30 anos, quando descobriu que
-estava grávida e que o corpinho do seu bebê era malformado.
+This happened to a woman, approximately 30 years old, when she discovered that
+was pregnant and that her baby's body was malformed.
 
-Ela, desprezando a grande oportunidade que Deus lhe concedia, disse ao médico
-que tentava convencê-la a deixar nascer a criança:
+She, disregarding the great opportunity God granted her, told the doctor
+who tried to convince her to let the child born:
 
-Farei aborto de qualquer forma, pois jamais deixaria nascer um monstrinho como
-meu filho. Se Deus o mandou para a Terra, eu vou devolvê-lo para o céu.
+I will have an abortion anyway, for I would never let a little monster be born as
+my son. If God sent him to earth, I'm going to return him to heaven.
 
-Desconhecendo ou ignorando a misericordiosa Lei da reencarnação, aquela mulher
-negou o ventre a um Espírito que lhe suplicava uma oportunidade de voltar ao
-corpo físico, embora deformado, em busca da redenção particular que o
-credenciaria a melhores dias.
+Unaware or ignoring the merciful Law of reincarnation, that woman
+denied the womb to a Spirit who begged him for an opportunity to return to the
+physical body, although deformed, in search of the particular redemption that the
+would accredit the best days.
 
-Fechando as portas ao Espírito, negou a si mesma a chance de acolher e amparar
-um afeto de outrora que despencou nas valas do desequilíbrio com sua
-participação e cumplicidade.
+Closing the doors to the Spirit, she denied herself the chance to welcome and support
+an affection of yore that plummeted into the ditches of imbalance with its
+participation and complicity.
 
-Certamente, uma grande oportunidade perdida...
+Certainly, a great missed opportunity...
 
-Uma excelente chance de resgatar um débito contraído perante as Leis Divinas,
-atirada pela janela da insubmissão, sem a menor reflexão.
+An excellent chance to redeem a debt contracted under divine laws,
+thrown through the window of insubmission, without the slightest reflection.
 
-Se aquela mulher tivesse se lembrado de apenas um dos ensinamentos de Jesus de
-Nazaré, não teria cometido tal crime. Bastaria recordar-se de que a cada um
-será dado conforme as suas obras, e teria agradecido a Deus a oportunidade
-bendita.
+If that woman had remembered only one of Jesus' teachings of
+Nazareth, I wouldn't have committed such a crime. It would be enough to remember that each
+will be given according to his works, and would have thanked God for the opportunity
+Blessed.
 
-Logicamente outras oportunidades surgirão, mesmo que através da mensageira que
-mais se tem feito ouvir pelas ovelhas rebeldes: a dor.
+Logically other opportunities will arise, even through the messenger that
+more has been heard by the rebellious sheep: pain.
 
-Mas nem todas as pessoas agem de forma tão inconsequente.
+But not all people act so inconsequentially.
 
-Uma jovem mulher, de 22 anos de idade, recebeu a mesma notícia que a outra, e
-sua atitude foi completamente diferente, diante do obstetra que lhe mostrou os
-exames do feto com má formação.
+A 22-year-old young woman received the same news as the other, and
+his attitude was completely different, before the obstetrician who showed him the
+examinations of the fetus with poor formation.
 
-Disse ela: Eu nem sonho em pensar no aborto. Quero agradecer a Deus a confiança
-depositada em mim, enviando-me um filho tão fraquinho. Vou fazer todo o
-possível para cuidar bem dele.
+She said, I don't even dream of thinking about abortion. I want to thank God for the trust
+deposited in me, sending me such a weak son. I'm going to do all the
+possible to take good care of him.
 
-Sem dúvida, uma oportunidade muito bem entendida e aproveitada.
+Undoubtedly, an opportunity very well understood and taken advantage of.
 
-Resta-nos a pergunta:
+We have the question left:
 
-Quantas oportunidades de redenção não temos levado à conta de castigo Divino, e
-jogado pela janela?
+How many opportunities for redemption have we not taken to the account of Divine punishment, and
+thrown out the window?
 
-Infelizmente, a resposta para esse questionamento quase sempre nos chega tarde
-demais.
+Unfortunately, the answer to this questioning almost always comes to us late
+Too.
 
                                    *   *   *
 
-As deficiências do corpo físico são provocadas pelo próprio Espírito nele
-encarnado.
+The deficiencies of the physical body are caused by the Spirit himself in it
+Incarnate.
 
-Um fumante, por exemplo, que fez uso do cigarro durante muitos anos, pode lesar
-seus pulmões a tal ponto que, na próxima reencarnação, tenha, desde cedo,
-problemas sérios.
+A smoker, for example, who has used cigarettes for many years, can harm
+lungs to such an extent that, in the next reincarnation, has, from an early age,
+serious problems.
 
-Ou, então, um alcoólatra inveterado poderá renascer num novo corpo trazendo
-consigo os velhos problemas de fígado, conquistados na existência anterior, e
-assim por diante.
+Or, else, an inveteterated alcoholic may be reborn in a new body bringing
+with him the old liver problems, conquered in the previous existence, and
+so on.
 
-Por essa razão, uma existência num corpo enfermo ou deficiente é uma excelente
-oportunidade de reparação perante as Leis que regem a vida, se bem aproveitada.
+For this reason, an existence in an ill or deficient body is an excellent
+opportunity to redress in the face of the laws governing life, if well used.
 
-E, por essa razão também, não temos o direito de negar uma nova chance ao
-Espírito necessitado de reajustamento, praticando o abortamento do seu corpo em
-formação.
+And for that reason too, we have no right to deny a new chance to
+Spirit in need of readjustment, practicing the abortion of your body in
+Training.
 
-Ademais, lembremo-nos sempre de que Jesus, o Sábio dos sábios, alertou que é
-preferível entrar na vida sem alguns membros, do que cair novamente por causa
-deles.
+In other hand, let us always remember that Jesus, the Wise of the Wise, warned that it is
+preferable to enter life without some members, than fall again because
+Them.
 
 ## Source
 Redação do Momento Espírita com base no artigo As

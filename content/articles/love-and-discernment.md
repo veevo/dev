@@ -9,96 +9,96 @@ topics:
 - mother
 ---
 
-A mensagem de Jesus revela ao mundo um Deus amoroso e cheio de compaixão.
+Jesus' message reveals to the world a loving God full of compassion.
 
-O Mestre afirma que toda a lei divina resume-se no ato de amar a Deus, ao
-próximo e a si mesmo.
+The Master states that all divine law boils down to the act of loving God,
+close to himself and himself.
 
-Conclui-se que a vivência do amor liberta e pacifica as criaturas.
+It is concluded that the experience of love frees and pacifys creatures.
 
-Certamente por isso é instintivo no ser humano o desejo de amar e ser amado.
+Certainly so is instinctive in the human being the desire to love and be loved.
 
-Nada é mais prazeroso do que passar algumas horas junto às pessoas que nos
-falam de perto ao coração.
+Nothing is more pleasurable than spending a few hours with the people who
+speak closely to the heart.
 
-Nossas afeições mais caras, as que cultivamos com mais carinho, constituem
-consolo nas provações da vida.
+Our most expensive affections, the ones we cultivate most fondly, constitute
+consolation in the trials of life.
 
-Proporcionar alegria a alguém querido causa grande deleite.
+Providing joy to someone dear causes great delight.
 
-Cada qual desenvolve e demonstra afeto na conformidade de seu entendimento e
-possibilidades.
+Each one develops and demonstrates affection in the conformity of its understanding and
+Possibilities.
 
-O cientista que gasta a vida buscando descobrir a cura de doenças evidencia
-amor à humanidade.
+Scientist who spends his life seeking to discover the cure of diseases evidences
+love of humanity.
 
-Talvez ele não tenha palavras doces e afáveis para os seus auxiliares.
-Pode ser que a preocupação em bem cumprir sua tarefa o torne desatento às
-expectativas dos que o rodeiam.
+Maybe he doesn't have sweet and affable words for his aides.
+It may be that the concern in fulfilling your task makes you inattentive to the
+expectations of those around him.
 
-Mas nem por isso sua extrema dedicação deixa de ser valiosa demonstração de
-amor.
+But not so is his extreme dedication no longer a valuable demonstration of
+Love.
 
-O professor sinceramente dedicado ao ensino também exemplifica o amor.
-Quiçá seus pupilos o considerem rígido e preferissem alguém menos exigente.
-É que identificamos mais facilmente o amor com manifestações de ternura.
-A mãe que abraça um filho nos parece amorosa.
+The teacher sincerely dedicated to teaching also exemplifies love.
+Perhaps his pupils consider him rigid and preferred someone less demanding.
+It is that we more easily identify love with manifestations of tenderness.
+The mother who hugs a son seems loving to us.
 
-Já um pai com postura de educador não transmite essa impressão de candura.
-Mas urge reconhecer que a lei do amor não se resume em afagos, sorrisos e
+A father with an educator's posture does not convey this impression of candura.
+But it is urgent to recognize that the law of love is not limited to cuddling, smiles and
 pieguices.
 
-Nossos companheiros de jornada, amigos e parentes, são, antes de tudo, filhos
-de Deus.
+Our fellow journeys, friends and relatives, are, first of all, children
+of God.
 
-Seria pretensão nossa imaginar que possuímos maior capacidade de amar do que a
-divindade.
+It would be our intention to imagine that we have greater capacity to love than
+Divinity.
 
-E o Pai celestial, embora seu infinito amor, não deixa de permitir que as
-criaturas cresçam mediante seu próprio esforço e trabalho.
+And the heavenly Father, though his infinite love, does not fail to allow the
+creatures grow through their own effort and work.
 
-Uma análise criteriosa da vida revela que ela está em permanente transformação
-e aprimoramento.
+A careful analysis of life reveals that it is in permanent transformation
+and improvement.
 
-As espécies animais, as plantas, a conformação do próprio planeta terra, tudo
-reflete movimento e metamorfose.
+Animal species, plants, the conformation of the planet earth itself, everything
+reflects movement and metamorphosis.
 
-As sociedades terrenas gradualmente vão aperfeiçoando seus códigos e valores.
-Assim, a lei do amor inclui a necessidade de burilamento dos seres.
+The thermal societies gradually improve their codes and values.
+Thus, the law of love includes the need for fraud of beings.
 
-O amor a Deus deve pairar acima de todos os outros sentimentos, pois ele é a
-origem e o sustentáculo do universo.
+Love for God must hover above all other feelings, for it is the
+origin and the support of the universe.
 
-Se amamos a Deus, e o mundo que ele criou está em aprimoramento contínuo,
-devemos nos esforçar para entender as leis que o regem e nos aprimorarmos
-também.
+If we love God, and the world he created is in continuous improvement,
+we must strive to understand the laws governing it and improve
+Also.
 
-Do mesmo modo, ao manifestar amor por nosso semelhante, não podemos pretender
-furtá-lo das experiências necessárias ao seu adiantamento.
+Likewise, by expressing love for our fellow fellow, we cannot intend to
+steal from the experiences necessary for your advance.
 
-Essa compreensão da vida leva-nos a admitir a necessidade de mesclar nosso
-afeto com parcelas de racionalidade e discernimento.
+This understanding of life leads us to admit the need to merge our
+affection with plots of rationality and discernment.
 
-O amor a um filho, aluno ou amigo, nem sempre implica concordância com suas
-fantasias e aspirações.
+Love for a child, student or friend does not always imply agreement with your
+fantasies and aspirations.
 
-Com freqüência é necessário renunciar à alegria imediata de agradar nossos
-amores, em prol de seu progresso e de sua felicidade vindoura.
+It is often necessary to renounce the immediate joy of pleasing our
+loves, for the sake of their progress and their coming happiness.
 
-A mãe que se abstém de educar o filho desobediente demonstra mais tibieza do
-que amor.
+The mother who refrains from educating the disobedient son demonstrates more tibieza than
+What's up, honey.
 
-Por outro lado, o mestre que exige dedicação é mais precioso para os alunos do
-que um professor relapso.
+On the other hand, the master who demands dedication is more precious to students of the
+that a teacher relapse.
 
-O exercício do amor às vezes exige sacrifícios, por contrariar os impulsos mais
-imediatos do coração.
+The exercise of love sometimes requires sacrifices, by countering the most
+immediate heart.
 
-Esse sentimento é feito de carinho e ternura, mas também de firmeza e retidão
-de caráter.
+This feeling is made of affection and tenderness, but also of firmness and righteousness
+of character.
 
-Afinal, sendo uma energia sublime, o amor não pode provocar a queda moral do
-ser amado.
+After all, being a sublime energy, love cannot provoke the moral fall of the
+be loved.
 
 ## Source
 Texto da Equipe de Redação do Momento Espírita.

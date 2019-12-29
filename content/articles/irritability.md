@@ -13,95 +13,95 @@ topics:
 - prayer
 ---
 
-Pedro, Elizabeth e José estavam reunidos a tarde toda, envolvidos no trabalho
-da Faculdade, que lhes custara semanas de pesquisa.
+Peter, Elizabeth and Joseph were gathered all afternoon, involved in the work
+college, which had cost them weeks of research.
 
-Cansados, não viam a hora de terminar e entregar a tarefa.
+Tired, they couldn't wait to finish and deliver the task.
 
-Elizabeth fazia os últimos retoques quando os colegas tiveram uma controvérsia.
-Ela recomendou calma para que tudo acabasse bem, mas os rapazes se alteraram em
-demasia.
+Elizabeth made the last touches when her colleagues had a controversy.
+She recommended calm for everything to end well, but the boys changed in
+Too much.
 
-Num momento de irritabilidade, Pedro, ao se levantar da cadeira esbarrou na
-mesa, derrubando tinta sobre a pasta do trabalho quase pronto.
+In a moment of irritability, Peter, as he got up from his chair he bumped into the
+table, dropping ink over the work booklet almost ready.
 
-O clima ficou demasiadamente tenso. Troca de acusações, desespero porque,
-afinal, o prazo era curto para refazer tudo.
+The weather has become too tense. Exchange of accusations, despair because,
+after all, the deadline was short to redo everything.
 
-Na sequência, houve choro, xingamentos, vozes alteradas.
+Following, there was crying, swearing, altered voices.
 
-Teriam que negociar com o professor mais tempo para refazer o trabalho.
+They'd have to negotiate with the teacher more time to redo the job.
 
-Elizabeth disse que os acompanharia, mas que o encargo de falar seria dos dois
-que causaram o acidente.
+Elizabeth said she would accompany them, but that the burden of speaking would be of the two
+caused the accident.
 
-Que situação haviam criado!
+What a situation they had created!
 
                                    *   *   *
 
-A irritação, que manifestamos repentinamente, é um fator de frequentes
-conflitos.
+Irritation, which we suddenly manifest, is a factor of frequent
+Conflicts.
 
-Provocando descargas de adrenalina na corrente sanguínea, altera nosso
-equilíbrio orgânico e, sobretudo, o emocional.
+Causing adrenaline discharges into the bloodstream, it alters our
+organic balance and, above all, the emotional balance.
 
-Muitas vezes, o cansaço é o responsável por essa crise.
+Often, tiredness is responsible for this crisis.
 
-Essa inimiga se manifesta em forma de impaciência e nos torna indelicados e
-rudes.
+This enemy manifests itself in the form of impatience and makes us unkind and
+Rough.
 
-A expressão dura produz igual reação em quem a recebe e revida com descarga
-mental de revolta e antipatia.
+The harsh expression produces equal reaction in those who receive it and hit back with discharge
+mental anger of revolt and dislike.
 
-A primeira atitude que devemos ter, quando percebermos em nós manifestações de
-irritação constante, é examinar-lhe a procedência.
+The first attitude we should have, when we perceive in us manifestations of
+constant irritation, is to examine his origin.
 
-E se o fato se repete e se reprisa, aconselhável buscarmos ajuda especializada
-antes de perdermos amizades caras ao coração ou magoarmos aqueles que nos amam.
+And if the fact is repeated and reprises, it is advisable to seek specialized help
+before we lose expensive friendships to our hearts or hurt those who love us.
 
-Conhecer nossas emoções sempre nos fará perceber o que precisamos modificar em
-nós.
+Knowing our emotions will always make us realize what we need to change in
+We.
 
-Tenhamos em mente que a irritabilidade é espinho cravado nas carnes da emoção,
-que deve ser extirpado.
+Keep in mind that irritability is thorn spiked in the flesh of emotion,
+that must be excised.
 
-Quanto mais permanece, piora o estado de quem o conduz, gerando infecções
-duradouras e perniciosas.
+The more it remains, the worse the state of those who lead it, generating infections
+lasting and pernicious.
 
-Se somos uma pessoa irritável, facilmente demonstramos nosso mau humor e
-insatisfação. Isso porque trazemos essas sementes na intimidade, na qualidade
-de sentimentos agressivos e amargurados.
+If we are an irritable person, we easily demonstrate our bad mood and
+Dissatisfaction. That's because we bring these seeds into intimacy, in quality
+of aggressive and bitter feelings.
 
-Nossa conduta se torna intratável e passamos a ser conhecidos como os que
-estragamos o ambiente em que nos encontramos.
+Our conduct becomes intractable and we come to be known as those who
+we ruin the environment in which we find ourselves.
 
-Tornamo-nos pessoas de difícil trato, nos sentindo felizes quando desagradamos
-ao outro; quando vemos os outros em maus lençóis.
+We become people of hard to treat, feeling happy when we displease
+to the other; when we see others in trouble.
 
-Com tais disposições, naturalmente iremos criando uma aura de antipatia ao
-nosso redor, afastando as pessoas, que declinarão da nossa companhia, em
-qualquer circunstância.
+With such provisions, of course we will create an aura of dislike to the
+around us, driving away people, who will decline from our company, in
+any circumstances.
 
-Tenhamos em mente, portanto, que a verdadeira felicidade não causa dor nem
-sofrimento.
+Let us therefore keep in mind that true happiness does not cause pain or
+Suffering.
 
-Que os sentimentos doentios gastam mais energias para se manifestar do que
-aqueles revestidos de amor verdadeiro.
+That sick feelings spend more energy to manifest than
+those clothed with true love.
 
-Que temos liberdade de escolha para nossas opções, mas teremos que responder
-por todas as escolhas feitas.
+That we have freedom of choice for our options, but we will have to respond
+by all the choices made.
 
-Que é muito mais fácil e gratificante optarmos pelo sentimento que nos
-conduzirá à convivência feliz.
+That it is much easier and more rewarding to opt for the feeling that
+will lead to happy coexistence.
 
-Como somente o amor tem a função de unir, com a possível brevidade, treinemos
-humildade e oração.
+As only love has the function of uniting, with possible brevity, we have trained
+humility and prayer.
 
-A humildade fortalecerá nossa paz íntima e a oração nos dará forças para
-vencermos a fraqueza cruel.
+Humility will strengthen our intimate peace and prayer will give us the strength to
+overcome cruel weakness.
 
-Sigamos nossa caminhada, pacificados, deixando a irritabilidade simplesmente
-como uma experiência no nosso passado.
+Let's follow our walk, pacified, leaving irritability simply
+as an experience in our past.
 
 ## Source
 Redação do Momento Espírita, com pensamentos do cap. CXLVI,

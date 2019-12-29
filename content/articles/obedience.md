@@ -19,95 +19,95 @@ topics:
 - prayer
 ---
 
-Em sua Carta aos Hebreus, o Apóstolo Paulo de Tarso escreveu sobre a obediência
-de Jesus a Deus.
+In his Letter to the Hebrews, the Apostle Paul of Tarsus wrote about obedience
+from Jesus to God.
 
-Salientou que o Cristo manifestou Sua submissão à vontade do Criador até o
-extremo sacrifício.
+He stressed that Christ expressed His submission to the Creator's will until the
+extreme sacrifice.
 
-E que, após a crucificação, tornou-se o meio de salvação para todos os que O
-seguissem.
+And that after the crucifixion, became the means of salvation for all who
+Follow.
 
                                    *   *   *
 
-É interessante refletir a respeito da obediência.
+It is interesting to reflect on obedience.
 
-Todos obedecemos a alguém ou a alguma coisa. Vivemos no mundo, sujeitos a
-normas e regras que nos ditam a maneira adequada de nos conduzirmos, de
-agirmos.
+We all obey someone or something. We live in the world, subject to
+rules and rules that dictate to us the appropriate way of conducting ourselves, in order to
+Act.
 
-Obedecemos a normas a toda hora: no trânsito, na profissão, na escola, na
-sociedade, no trato com os outros.
+We obey standards at all times: in traffic, in the profession, at school, in
+society, in dealing with others.
 
-Contudo, muitos de nós não conseguimos entender que o respeito às leis
-constitui virtude e traz benefícios para nós mesmos.
+However, many of us cannot understand that respect for laws
+constitutes virtue and brings benefits to ourselves.
 
-Não entendemos a necessidade de nos submetermos com dignidade ao cumprimento
-dos deveres que a vida nos apresenta.
+We do not understand the need to submit with dignity to compliance
+of the duties that life presents to us.
 
-Ressentimo-nos com os encargos que nos competem e buscamos abandoná-los.
+We resent the burdens that are incumbent on us and seek to abandon them.
 
-Com essa atitude, atendemos aos impulsos inferiores da natureza e, por
-resistirmos ao trabalho íntimo de autoelevação, nos tornamos rebeldes.
+With this attitude, we meet the lower impulses of nature and, for
+resist ing the intimate work of self-elevation, we become rebellious.
 
-Quase sempre, em nosso coração, transformamos a obediência que, no dizer do
-Apóstolo, nos salvaria, na escravidão que nos condena.
+Almost always, in our hearts, we transform obedience which, in the saying of the
+Apostle, he would save us in the slavery that condemns us.
 
-O Senhor da Vida estabeleceu as gradações do caminho.
+The Lord of Life has established the gradations of the path.
 
-Instituiu a lei do próprio esforço, na aquisição dos supremos valores da vida.
+He instituted the law of his own effort, in the acquisition of the supreme values of life.
 
-Em Sua extrema bondade, elaborou formosos roteiros para que encontremos a
-felicidade e nos plenifiquemos.
+In His extreme kindness, he elaborated a very good way to find the
+happiness and let us plenise.
 
-Determinou que o homem, para ser verdadeiramente livre, aceite os Seus sagrados
-desígnios.
+Determined that man, to be truly free, accept His sacred
+Designs.
 
-Contudo, frequentemente, preferimos atender à nossa condição de inferioridade e
-determinamos para nós uma verdadeira escravidão às nossas paixões.
+However, we often prefer to meet our condition of inferiority and
+we have determined for us a true bondage to our passions.
 
-Importante que examinemos atentamente o campo em que desenvolvemos nossas
-tarefas e nos perguntemos a quem verdadeiramente obedecemos.
+Important that we carefully examine the field in which we develop our
+tasks and ask ourselves to whom we truly obey.
 
-Será que estaremos atendendo, em primeiro lugar, às vaidades humanas?
+Will we be serving human vanity first?
 
-Estaremos, antes e acima de qualquer coisa, agindo conforme as opiniões
-alheias?
+We will be, before and above anything, acting according to the opinions
+Others?
 
-Ou conseguimos acomodar o nosso sentimento no tranquilo cumprimento dos deveres
-que nos competem?
+Or we can accommodate our feeling in the quiet fulfillment of duties
+that we are responsible for?
 
-São frequentes as tentações que o mundo apresenta no caminho de quem deseja
-viver retamente.
+There are often the temptations that the world presents in the way of those who want to
+live righteously.
 
-E temos desculpas para quase tudo, seja o abandono do lar, a traição conjugal,
-a sonegação de impostos ou a pouca dedicação aos filhos.
+And we have excuses for almost everything, be it abandonment of the home, marital betrayal,
+tax evasion or little dedication to children.
 
-Sempre é possível achar alguma justificativa, ainda que insignificante, para
-podermos passar livremente pela porta larga da perdição.
+It is always possible to find some justification, albeit insignificant, for
+we can freely pass through the wide door of perdition.
 
-O problema é que nesse processo comprometemos não só a própria dignidade mas
-também nosso futuro espiritual.
+The problem is that in this process we compromise not only the dignity itself but
+also our spiritual future.
 
-Cada um de nós, através de suas ações, constrói o seu próprio destino e sempre
-chegará o momento de assumirmos as consequências dos atos praticados.
+Each of us, through his actions, builds his own destiny and always
+the time will come for us to assume the consequences of the acts committed.
 
-Em termos morais, não existem atos sem consequências.
+In moral terms, there are no acts without consequences.
 
-O sacrifício das próprias fantasias e vaidades em favor do bem rende plenitude
-e luz, logo adiante.
+The sacrifice of one's own fantasies and vains in favor of good yields fullness
+and light, just ahead.
 
-Já a vivência de paixões, em clima egoísta, traz uma inevitável cota de dores e
-desilusões.
+On the other hand, the experience of passions, in a selfish climate, brings an inevitable quota of pain and
+Disappointments.
 
-Jesus ensinou e exemplificou a vivência do amor, em regime de pureza.
+Jesus taught and exemplified the experience of love, in a regime of purity.
 
-Apenas a obediência aos Seus ensinamentos permite quebrar a escravidão do mundo
-em favor da libertação eterna.
+Only obedience to His teachings allows us to break the bondage of the world
+in favor of eternal liberation.
 
-Pensemos nisso e nos disponhamos a segui-lO, nosso Modelo e Guia.
+Let's think about it and be willing to follow him, our Model and Guide.
 
-Escute o áudio deste texto
+Listen to the audio of this text
 
 # Source
 Redação do Momento Espírita, com base no cap. 16, do

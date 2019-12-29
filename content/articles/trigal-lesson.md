@@ -9,81 +9,81 @@ topics:
 - family
 ---
 
-O trigal maduro parecia um mar imenso a ondular ao sabor do vento que brincava
-com as hastes.
+The ripe trigal looked like an immense sea curling to the taste of the wind that played
+with the rods.
 
-Logo mais, seria a época da colheita e, desejando mostrar ao filho a beleza
-natural, o lavrador o chamou para percorrer os campos.
+Soon again, it would be the harvest season and, wishing to show the son the beauty
+the farmer called him to walk through the fields.
 
-O rapazinho foi se extasiando com a paisagem, sempre mais bela e mais rica.
+The little boy was extasianwith the landscape, always more beautiful and richer.
 
-Observador atento, de vez em quando se detinha um tanto mais em alguns locais.
+Attentive observer, from time to time he held a little more in some places.
 
-Após algum tempo de caminhada, perguntou ao pai:
+After some time of walking, he asked his father:
 
-Meu pai, por que é que algumas espigas de trigo estão inclinadas para o chão,
-enquanto outras estão de cabeça erguida?
+My father, why are some wheat ears leaning to the ground,
+while others are with their heads held high?
 
-O lavrador se abaixou e colheu uma espiga. Justamente uma das que se encontrava
-curvada. Mostrando-a ao filho, explicou:
+The farmer ducked down and harvested a spike. Just one of those that was
+Curved. Showing it to her son, he explained:
 
-Repara, meu filho. Esta espiga, que estava inclinada, quase encostando no chão,
-está perfeita e cheia de grãos. Observa aquela outra, que se levanta com tanto
-orgulho do trigal. Está seca e imprestável.
+Look, my son. This spike, which was tilted, almost touching the ground,
+is perfect and full of grain. Observe that other, which rises with so much
+pride of the trigal. It's dry and useless.
 
-Na nossa vida, isso também acontece, às vezes. Os que apresentamos orgulho
-excessivo somos ocos, nulos, enquanto os humildes são valorosos e úteis.
+In our life, it happens too sometimes. Those who present pride
+we are hollow, null, while the humble are valiator and useful.
 
-O orgulho é um mal que habitualmente gera a ambição, que é o desejo imoderado
-de cargos, honrarias, poder, destaque.
+Pride is an evil that usually generates ambition, which is the immoderate desire
+of positions, honors, power, prominence.
 
-Eis uma grande lição, meu filho. Não se permita, jamais, o orgulho. É um grande
-mal e precisa ser combatido.
+Here's a great lesson, my son. Pride is never allowed. It's a great
+evil and needs to be fought.
 
-Existem algumas regras que podem nos auxiliar a contermos nosso orgulho,
-reconhecendo o que somos, valorizando-nos, mas jamais nos acreditando melhores
-ou superiores aos demais.
+There are some rules that can help us contain our pride,
+recognizing what we are, valuing ourselves, but never believing ourselves better
+or superior to others.
 
-Primeiro item é buscarmos o autoconhecimento. É impossível nos examinarmos
-sinceramente e não reconhecer as próprias falhas.
+First item is to seek self-knowledge. It is impossible to examine ourselves
+sincerely and not recognize their own flaws.
 
-Segundo, pensarmos na insignificância e na transição de todas as coisas que
-constituem motivo de orgulho na Terra.
+Second, let us think about the insignificance and transition of all the things that
+are a source of pride on Earth.
 
-As riquezas, por exemplo. Não são eternas e transitam, com rapidez, de
-determinadas mãos para outras.
+Riches, for example. They are not eternal and quickly transit
+certain hands for others.
 
-Famílias abastadas sofrem derrocadas financeiras, enquanto criaturas que
-pareciam quase nada possuir, se destacam, alcançando tópicos não imaginados.
+Wealthy families suffer financial collapses, while creatures that
+seemed almost nothing to possess, stand out, reaching unimagined topics.
 
-Sem se falar que, com a morte, todos os bens, títulos, haveres, permanecem na
-Terra. Seguem com o Espírito somente as virtudes e paixões, isto é, o bem que
-construímos e o mal que para nós mesmos criamos.
+Not to mention that, with death, all property, titles, possessions, remain in the
+Earth. Only virtues and passions follow with the Spirit, that is, the good that
+we build and the evil we create for ourselves.
 
-Terceiro, recordarmos o exemplo de Jesus, perfeito modelo da humildade.
+Third, let us recall the example of Jesus, a perfect model of humility.
 
-Ele, o Rei Solar, nosso Governador planetário, veio até nós, viveu conosco,
-entregando-se ao trabalho de carpinteiro.
+He, the Solar King, our planetary Governor, came to us, lived with us,
+indulging in carpenter's work.
 
-E para a sua missão de amor, se identificou como o Pastor, que cuida das
-ovelhas. Maior de todos nós, apresentou-se como o Servidor.
+And for his mission of love, he identified himself as the Shepherd, who takes care of the
+Sheep. Largest of all of us, presented itself as the Server.
 
-Finalmente, aceitar posições modestas para desempenho de tarefas anônimas, que
-a muitos beneficiam.
+Finally, accept modest positions for performing anonymous tasks, which
+many benefit.
 
                                    *   *   *
 
-Sigamos nosso Modelo e Guia. Nossa passagem pela Terra é transitória, como
-todas as coisas do mundo.
+Let's follow our Model and Guide. Our passage through the Earth is transitory, as
+all things in the world.
 
-Basta que grandes ventos se apresentem para destruir o que demoramos anos para
-edificar. Os temporais, as enxurradas, o inverno impiedoso ou a estiagem
-demorada são agentes do tempo sobre os quais não temos poder.
+It is enough that great winds come forward to destroy what takes years to
+Build. The storms, floods, merciless winter or drought
+time agents over which we have no power.
 
-Lembremos da fragilidade humana e de que, para viver a cada dia, dependemos
-totalmente da Providência e da Misericórdia Divinas.
+Let us remember human frailty and that in order to live every day, we depend
+providence and divine mercy.
 
-Pensemos nisso e sejamos menos orgulhosos.
+Let's think about it and be less proud.
 
 ## Source
 Redação do Momento Espírita, com base no cap.  

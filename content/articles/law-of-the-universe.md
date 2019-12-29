@@ -12,76 +12,76 @@ topics:
 - family
 ---
 
-Nada fica onde está para sempre. Tudo se renova. Tudo se modifica, mudam suas
-estruturas, muda sua forma de ser.
+Nothing stays where it is forever. Everything is renewed. Everything changes, change your
+structures, changes their way of being.
 
-Essa lei vale para o mundo da matéria e para o mundo do Espírito.
+This law applies to the world of matter and to the world of the Spirit.
 
-O progresso é lei do Universo, é lei natural, e trabalha incansável através das
-eras revolucionando tudo e todos.
+Progress is the law of the Universe, it is natural law, and works tirelessly through the
+you were revolutionizing everything and everyone.
 
-Partimos do estado primitivo e rumamos para a perfeição. Muitas experiências
-são necessárias para nos burilarmos, sempre em transformação.
+We start from the primitive state and go to perfection. Many experiences
+are necessary to circumvent ourselves, always in transformation.
 
-No Universo, nada pode ficar parado.
+In the universe, nothing can stand still.
 
-O tão conhecido daqui não saio, daqui ninguém me tira, não resiste à lei do
-progresso, que nos faz abandonar as velhas posturas, querendo ou não, uma hora
-ou outra.
+The well-known one here, i don't leave, here no one takes me off, can't resist the law of
+progress, which makes us abandon the old postures, whether or not, an hour
+or another.
 
-A chamada força das coisas nos leva, inevitavelmente, à revisão das posturas, à
-renovação da vida, seja na mesma encarnação, ou numa nova, em condições
-totalmente diversas da anterior.
+The so-called force of things inevitably leads us to the review of postures,
+renewal of life, whether in the same incarnation, or in a new one, in conditions
+several from the previous one.
 
-A lei universal nos empurra para diante, não nos deixa dormir no ponto, não nos
-permite a ociosidade, uma vez que é lei educativa, acima de tudo, comandada por
-um Pai amoroso.
+Universal law pushes us forward, does not let us sleep on point, do not
+allows idleness, since it is educational law, above all, commanded by
+a loving Father.
 
-Chegar na Terra em determinada condição espiritual e sair de igual forma é
-derrota para a alma que precisa progredir.
+Getting to earth in a certain spiritual condition and leaving equally is
+defeat to the soul that needs to progress.
 
-Por isso, cada oportunidade deve ser profundamente aproveitada, cada
-aprendizado, cada sofrimento, cada alegria, tudo precisa estar sendo colhido
-por nós e ir nos tornando maiores.
+Therefore, every opportunity must be deeply used, each
+learning, every suffering, every joy, everything needs to be collected
+by us and make us bigger.
 
-Vejamo-nos como aprendizes, como frequentadores de uma grande escola que pode
-dizer, ao final de cada dia letivo: hoje sabemos mais do que ontem.
+Let us see each other as apprentices, as regulars of a large school who can
+say, at the end of each school day: today we know more than yesterday.
 
-Não nos referimos apenas ao conhecimento das coisas, do saber do intelecto, mas
-da sabedoria completa, que passa pela melhoria nas relações com o próximo e
-conosco mesmo.
+We do not only refer to the knowledge of things, of the knowledge of the intellect, but
+of complete wisdom, which involves improving relations with others and
+with ourselves.
 
-O progresso que estamos conquistando é intelectual e moral. Por vezes, na busca
-desenfreada pelo primeiro, descuidamos do segundo, bem mais difícil de ser
-alcançado.
+The progress we are gaining is intellectual and moral. Sometimes in the search
+unbridled by the first, we neglect the second, much more difficult to be
+Achieved.
 
-O intelecto pode ser desenvolvido, na grande maioria das vezes, na solitude. A
-moralidade é construída na vida em sociedade, no contato com o próximo.
+Intellect can be developed, in the vast majority of times, in solitude. The
+morality is built on life in society, in contact with others.
 
-O intelectual nos traz o esclarecimento, a capacidade de usar a razão e
-discernir, fazer melhores escolhas.
+The intellectual brings us enlightenment, the ability to use reason and
+discern, make better choices.
 
-O moral nos permite amar melhor, conviver bem com o outro e conosco mesmo.
+Morale allows us to love better, to live well with each other and with ourselves.
 
-Por isso, da mesma forma que traçamos planos para nossas conquistas do saber:
-que cursos queremos fazer, mestrados, doutorados, áreas de aprofundamento,
-deveríamos igualmente estabelecer metas para a outra área do progresso.
+Therefore, just as we draw plans for our achievements of knowledge:
+what courses we want to take, master's degrees, doctorates, deepening areas,
+we should also set targets for the other area of progress.
 
-Em que aspecto moral queremos nos desenvolver mais nesta vida? Quais as
-necessidades mais urgentes?
+What moral aspect do we want to develop more in this life? What are the
+more urgent needs?
 
-Os cursos de especialização, mestrados e doutorados em virtudes são a própria
-vida e seus desafios. A família, por exemplo, e suas surpresas constantes, suas
-fases, suas carências.
+Specialization courses, master's and doctorates in virtues are the very
+life and its challenges. The family, for example, and their constant surprises, their
+phases, their shortcomings.
 
-Nossa participação social, nosso papel no mundo, tudo isso são formas de nos
-especializarmos nas diversas virtudes da alma e conseguirmos finalizar a
-existência melhores do que quando aqui chegamos.
+Our social participation, our role in the world, all of this are ways of
+specialize in the various virtues of the soul and be able to end the
+existence better than when we got here.
 
-Pensemos nisso. Nosso progresso é também o progresso do mundo. Se desejamos ver
-uma Humanidade melhorada, comecemos por nós.
+Let's think about it. Our progress is also the progress of the world. If we want to see
+an improved humanity, let's start with us.
 
-O progresso da nossa Terra é a soma do progresso individual de todos nós.
+Our Earth's progress is the sum of the individual progress of all of us.
 
 ## Source
 Redação do Momento Espírita.

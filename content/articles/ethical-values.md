@@ -11,102 +11,102 @@ topics:
 - child
 ---
 
-Hoje em dia pode-se perceber a luta inglória travada pelos valores éticos
-contra os interesses egoístas dos cidadãos.
+Nowadays one can perceive the inglorious struggle fought by ethical values
+against the selfish interests of citizens.
 
-Infelizmente esse problema só se resolverá quando a educação tomar para si essa
-responsabilidade.
+Unfortunately this problem will only be solved when education takes this
+Responsibility.
 
-Talvez sem refletir muito a esse respeito, os pais são os primeiros a dar
-exemplos de violação dos princípios éticos que deveriam nortear as ações do
-homem de bem.
+Perhaps without reflecting much on this, parents are the first to give
+examples of violation of ethical principles that should guide the actions of the
+good man.
 
-Um ponto bastante crítico é a questão dos direitos autorais.
+A very critical point is the issue of copyright.
 
-A pirataria de CDs, vídeos, ideias e outros produtos é assustadora.
+Piracy of CDs, videos, ideas and other products is frightening.
 
-A aquisição de peças em oficinas de desmanche de automóveis roubados, mesmo
-sabendo disso, por custar mais barato, ou de outra mercadoria produzida por
-meios ilícitos, também são formas de alimentar essa agressão aos princípios da
-ética.
+The acquisition of parts in stolen car dismantling workshops, even
+knowing this, because it costs cheaper, or other merchandise produced by
+illicit means, are also ways of feeding this aggression to the principles of
+Ethics.
 
-Geralmente o indivíduo que comete essa falta alega que não poderá ser
-responsabilizado por isso, pois não foi ele quem roubou o carro, nem fez as
-cópias ilegais.
+Generally the individual who commits this fault claims that he cannot be
+responsible for it, for it was not he who stole the car, nor did the
+illegal copies.
 
-A esse propósito, Allan Kardec propôs aos Espíritos Superiores a seguinte
-questão:
+In this regard, Allan Kardec proposed to the Superior Spirits the following
+Question:
 
-Aquele que não pratica o mal, mas que se aproveita do mal praticado por outrem,
-é tão culpado quanto este?
+He who does not do evil, but who takes advantage of the evil practiced by others,
+Is it as guilty as this?
 
-Os Benfeitores responderam:
+The Benefactors responded:
 
-É como se o houvera praticado. Aproveitar do mal é participar dele. Talvez não
-fosse capaz de praticá-lo; mas, desde que, achando-o feito, dele tira partido,
-é que o aprova; é que o teria praticado, se pudera, ou se ousara.
+It's like i've been practicing it. Taking advantage of evil is participating in it. Maybe not
+able to practice it; but since, finding it done, it takes advantage of it,
+is that approves it; would have practiced it, if i could, or dare.
 
-Hoje em dia é muito comum se jogar a culpa na Internet, pois alega-se que a
-falta de leis próprias para esse fim e o anonimato favorecem esse tipo de
+Nowadays it is very common if you throw the blame on the Internet, as it is alleged that the
+lack of laws proper to this end and anonymity favor this type of
 crime.
 
-No entanto, o bom senso diz que a Internet apenas mostra o problema ético
-existente, porém, não o cria.
+However, common sense says that the Internet only shows the ethical problem
+however, does not create it.
 
-Se o internauta desonesto gosta de uma mensagem que encontra divulgada em algum
-site, ele a copia e passa a divulgar como se fosse sua ou como sendo de autoria
-desconhecida.
+If the rogue internet user likes a message he finds disclosed in some
+website, it copies it and starts to disclose it as if it were yours or as being authored
+Unknown.
 
-Mas se o internauta é honesto ele repassará a mensagem preservando os créditos
-a quem de direito.
+But if the internet user is honest he will pass the message preserving the credits
+to whom right.
 
-Como se pode perceber, o problema não é do meio de comunicação, mas do
-indivíduo.
+As can be seen, the problem is not in the media, but of the
+Individual.
 
-Ambos os indivíduos são filhos de alguém, foram alunos de alguém, conviveram
-com alguém que foi responsável pela sua educação.
+Both individuals are someone's children, they were someone's students, lived
+with someone who was responsible for his education.
 
-Quando a criança respira os valores éticos em seu lar, dificilmente os
-desprezará quando jovem ou adulta.
+When the child breathes ethical values in his home, hardly the
+despise scorn as a young or adult.
 
-Mas se não recebe essas noções de honradez na infância, raramente as respeitará
-mais tarde.
+But if you don't get these notions of honor in childhood, you will rarely respect them
+Later.
 
-Assim, vale a pena pensar um pouco sobre essas questões tão importantes e tão
-graves.
+So it's worth thinking a little bit about these issues so important and so
+Serious.
 
-E, se houver dúvidas quanto a uma ação estar certa ou errada, quanto a se é um
-bem ou mal, basta seguir a orientação do maior Mestre que a Terra conheceu e
-fazer aos outros o que gostaria que os outros lhe fizessem.
+And if there are doubts as to whether an action is right or wrong, as to whether it is a
+good or evil, just follow the guidance of the greatest Master the earth has known and
+do to others what I would like others to do to him.
 
-Ou seja, colocar-se no lugar daquele a quem se dirige a ação e se perguntar se
-gostaria de estar no seu lugar.
+That is, put yourself in place of the one to whom the action is addressed and ask yourself if
+I'd like to be in your shoes.
 
-Se a resposta for positiva, pode-se agir sem a menor preocupação, mas se for
-negativa, certamente trará dissabores, mesmo que a ação escape às leis dos
-homens.
+If the answer is positive, one can act without the slightest concern, but if it is
+will certainly bring displeasure, even if the action escapes the laws of the
+Men.
 
-Todos nós, sem nenhuma exceção, responderemos por nossos atos perante o
-tribunal da própria consciência e receberemos de acordo com as nossas obras. E
-isso nós já sabemos há mais de dois milênios.
+All of us, without exception, will answer for our acts before the
+court of one's own conscience and we will receive according to our works. And
+this we've known for over two millennia.
 
-Portanto, se você deseja ter uma consciência limpa, não acumule detritos
-morais, pois eles o perturbam e infelicitam, neste mundo ou no além-túmulo.
+So if you want to have a clear conscience, do not accumulate debris
+morals, for they disturb and congratulate him, in this world or in the beyond-grave.
 
 *   *   *
 
-Se você quer ter seus direitos respeitados, respeite os direitos alheios.
+If you want to have your rights respected, respect the rights of others.
 
-Faça ao outros somente o que gostaria que os outros lhe fizessem.
+Do to others only what i would like others to do to you.
 
-E para garantir a felicidade dos seus filhos, passe a eles a herança moral da
-honestidade e da honradez, considerando sempre que a vida não acaba no túmulo,
-e que as nossas ações seguirão conosco como testemunhas silenciosas,
-aplaudindo-nos ou reprovando-nos.
+And to ensure the happiness of your children, pass on to them the moral heritage of the
+honesty and honor, always considering that life does not end in the tomb,
+and that our actions will follow with us as silent witnesses,
+applauding us or disapproving us.
 
-Pense nisso, mas pense agora!
+Think about it, but think about it now!
 
- 
+
 
 ## Source
 Redação do Momento Espírita, com base no item 640 de

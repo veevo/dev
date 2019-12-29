@@ -17,91 +17,91 @@ topics:
 - family
 ---
 
-Morrer. Desse destino, nenhum ser humano escapará. E, no entanto, como tememos
-esse momento! Com que dor a maioria de nós pensa no instante da morte.
+Die. From this fate, no human being will escape. And yet, as we fear
+that moment! With what pain most of us think about the instant of death.
 
-É que fomos ensinados a temer a morte. Ela nos é apresentada como sinônimo de
-lágrimas, instante de trevas, definitiva separação dos seres amados.
+It's just that we were taught to fear death. It is presented to us as synonymous with
+tears, an instant of darkness, definite separation from loved beings.
 
-Abismo e tristeza. Aprendemos que a morte se faz de luto e mistérios, névoa e
-saudade.
+Abyss and sadness. We learn that death is made of mourning and mysteries, fog and
+Miss.
 
-Mas é preciso se preparar para a chegada da hora final. Afinal, a cada dia se
-reduz nossa estada na Terra.
+But you have to prepare for the arrival of the final hour. After all, every day
+reduces our stay on Earth.
 
-Desde que nascemos, cada respiração assinala a diminuição de nosso tempo no
-planeta.
+Since we were born, each breath marks the decrease in our time in the
+Planet.
 
-Porque o ritmo da vida material nos envolve, quase sem perceber, deixamos de
-lado a lembrança de que caminhamos mais um passo em direção à morte.
+Because the rhythm of material life involves us, almost without realizing it, we fail to
+side the reminder that we walk another step towards death.
 
-O fim é apenas do corpo físico, pois a alma – a essência do que somos – esta
-existirá para sempre. Os séculos correrão, mas nós... nós sobreviveremos.
+The end is only of the physical body, for the soul – the essence of who we are – this
+will exist forever. The centuries will run, but we... we will survive.
 
-Nessa longa estrada que é a vida, muito iremos aprender. Outros amores,
-parentes, lugares e situações irão enriquecer a nossa experiência.
+On this long road that is life, we will greatly learn. Other loves,
+relatives, places and situations will enrich our experience.
 
-E muitos outros corpos servirão de instrumento para o nosso aprendizado.
+And many other bodies will serve as an instrument for our learning.
 
-Por isso, nada de demasiado apego ao corpo. Ele é importantíssimo, mas é uma
-ferramenta de trabalho. Nele temos apenas um auxiliar para a nossa educação.
+So no too much attachment to the body. He's very important, but he's a
+working tool. In it we have only one helper for our education.
 
-Com a ajuda desse corpo, vivemos na Terra, construímos uma família e nos
-relacionamos com outros seres humanos. Ele é essencial para a vida em sociedade
-que burila o nosso Espírito.
+With the help of this body, we live on Earth, build a family and
+we relate to other human beings. It is essential for life in society
+that circumvents our Spirit.
 
-É que no contato com as outras pessoas temos a oportunidade de exercitar
-paciência, tolerância, solidariedade e ética.
+It's just that in contact with other people we have the opportunity to exercise
+patience, tolerance, solidarity and ethics.
 
-Enfim, pôr em prática gestos e situações que são puras manifestações de amor.
+Finally, put into practice gestures and situations that are pure manifestations of love.
 
-E não é esse o objetivo maior de nossa vida: descobrir, exercitar e vivenciar o
-amor?
+And this is not the greatest goal of our lives: to discover, exercise and experience the
+Love?
 
-Nada há a temer na morte quando a vida é plena em amor, quando os dias são
-perfumados pela bondade, quando a consciência é reta e o dever cumprido.
+There is nothing to fear in death when life is full in love, when the days are
+fragrant by goodness, when consciousness is straight and duty fulfilled.
 
-Quem vive assim – de coração sossegado e plantando alegrias – aguarda que a
-vida cumpra seu ciclo natural.
+Who lives like this - with a quiet heart and planting joys - awaits that the
+life fulfills its natural cycle.
 
-Para este, a hora da morte é serena. Abrirá os portais de um mundo novo, cheio
-de descobertas: a Casa do Pai Celeste.
+For this one, the time of death is serene. It will open the portals of a new world, full
+of discoveries: the House of the Heavenly Father.
 
-Um homem de bem morre como alguém que descansa após um dia de trabalho bem
-feito. Não tem apego a nada, pois sabe que deve devolver a Deus tudo o que
-recebeu.
+A good man dies as someone resting after a day's job as well
+Done. You have no attachment to anything, for you know you must give God back everything that
+Received.
 
-A renovação é a regra geral da natureza. Quando a morte chega é a hora de
-devolver ao mundo o corpo frágil, que se misturará às águas e à Terra.
+Renewal is the general rule of nature. When death comes, it's time to
+return to the world the fragile body, which will blend into the waters and earth.
 
-Será consumido, alimentará micro-organismos. Outros seres viverão a partir
-dali.
+It will be consumed, it will feed microorganisms. Other beings will live from
+Gave.
 
-E o homem que usou aquele corpo estará longe: abrirá os braços para o infinito.
-Seus olhos contemplarão estrelas, luzes, cores e formas nunca sonhadas.
+And the man who used that body will be far away: he will open his arms to infinity.
+Your eyes will behold stars, lights, colors and shapes never dreamed of.
 
-Seguirá com o coração em festa. Pronto para novas experiências, disposto a
-aprender e a amar.
+You'll keep your heart at a party. Ready for new experiences, willing to
+learn and love.
 
-O poeta Rabindranath Tagore, Prêmio Nobel de Literatura, escreveu sobre a
-própria morte:
+The poet Rabindranath Tagore, Nobel Prize in Literature, wrote about the
+death itself:
 
-É hora de partir, meus irmãos, minhas irmãs.
+It's time to leave, my brothers, my sisters.
 
-Eu já devolvi as chaves de minha porta
+I've already returned the keys to my door
 
-E desisto de qualquer direito à minha casa.
+And I give up any right to my house.
 
-Fomos vizinhos durante muito tempo
+We were neighbors for a long time
 
-E recebi mais do que pude dar.
+And I got more than I could give.
 
-Agora vai raiando o dia
+Now it's going to be up to the day
 
-E a lâmpada que iluminava o meu canto escuro, apagou-se. Veio a intimação e
-estou pronto para a minha jornada.
+And the lamp that lit up my dark corner, went out, came the subpoena and
+I'm ready for my journey.
 
-Não perguntem o que levo comigo: Sigo de mãos vazias e coração confiante.
+Don't ask what I take with me: I follow empty-handed and confident heart.
 
 ## Source
 Redação do Momento Espírita.

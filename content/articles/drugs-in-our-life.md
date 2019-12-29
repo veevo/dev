@@ -12,92 +12,92 @@ topics:
 - child
 ---
 
-Drogas são substâncias entorpecentes, excitantes, alucinógenas utilizadas com a
-finalidade de, primariamente e, em caráter provisório, propiciar ao usuário um
-pretenso estado psíquico que lhe pareça agradável.
+Drugs are narcotic, exciting, hallucinogenic substances used with the
+purpose of primarily and, on a provisional basis, to provide the user with a
+supposed psychic state that seems pleasant to him.
 
-Também são chamadas de drogas substâncias farmacêuticas, cujo fim é o amenizar
-de dores, a cura de enfermidades, o bem estar do convalescente.
+Pharmaceutical substances are also called drugs, the end of which is to soften
+of pain, the healing of diseases, the well-being of convalescent.
 
-No dia a dia, quando algo vai mal, uma das palavras mais utilizadas,
-possivelmente, seja: Droga! Que droga!
+On a day-to-day basis, when something goes wrong, one of the most used words,
+possibly, be it: Damn! What the hell!
 
-A ênfase que se dá na pronúncia, tanto ou mais caracteriza o quanto aquilo é
-ruim.
+The emphasis on pronunciation, as much or more characterizes how much that is
+Bad.
 
-As drogas, farmacêuticas ou não, utilizadas de forma leviana, induzem a estados
-de alteração da consciência. Usuários as denominam viagens.
+Drugs, pharmaceutical or not, used lightly, induce
+change in consciousness. Users call them trips.
 
-Viagens que deixam, de retorno, sequelas graves de ordem física e psíquica.
+Travel that leave, return, serious sequelae of physical and psychic order.
 
-Infelizmente, é bastante expressivo o número de pessoas que as consomem.
+Unfortunately, the number of people who consume them is quite expressive.
 
-As instituições médicas, religiosas, governamentais têm se preocupado com essas
-estatísticas que demonstram o desprezo à vida, a desvalorização de si mesmo.
+Medical, religious, government institutions have been concerned about these
+statistics that demonstrate contempt for life, the devaluation of oneself.
 
-O que será do nosso amanhã, quando a juventude se entrega ao vício, esquecendo
-valores de intelectualidade, conquistas pessoais, enriquecimento do Espírito?
+What will become of our tomorrow, when youth give in to addiction, forgetting
+values of intellectuality, personal achievements, enrichment of the Spirit?
 
-O que será do nosso amanhã, quando crianças, que deveriam estar chutando bola,
-ralando joelho em quedas de bicicleta, corridas, preferem se drogar, para
-sentir o prazer que essas atividades lhes propiciariam, sem contra-indicações?
+What will be our tomorrow, as children, who should be kicking ball,
+grating knee in bicycle falls, races, prefer to get high, to
+to feel the pleasure that these activities would provide to them, without contraindications?
 
-O que será do nosso amanhã, quando adultos se entregam a tal vício,  esquecendo
-da nobreza das lutas para atingir o que sonham?
+What will become of our tomorrow, when adults give in to such an addiction, forgetting
+of the nobility of struggles to achieve what they dream?
 
-O que será, enfim, do nosso amanhã, quando idosos, que deveriam estar nos
-repassando a riqueza das suas experiências, resolvem abraçar as drogas,
-esquecendo valores e afetos?
+What will ultimately be our tomorrow, when the elderly, who should be in the
+passing on the wealth of their experiences, they decide to embrace drugs,
+forgetting values and affections?
 
-O que será...?
+What's going to be...?
 
                                    *   *   *
 
-Enquanto a preocupação cresce nesse sentido, não menos preocupante é o panorama
-de outras drogas que vêm destruindo amizades, instituições, lares.
+While the concern grows in this sense, no less worrying is the
+other drugs that have been destroying friendships, institutions, homes.
 
-Falamos da raiva que vitaliza vinganças mesquinhas, assestando suas lanças
-contra pessoas que nada mais fazem do que pensar no bem do próximo.
+We talk about the anger that vitalizes petty revenge, snarizing their spears
+against people who do nothing more than think of the good of the next.
 
-Recordamos da inveja que destrói programas de excelente qualidade, cujo único
-objetivo é consolar corações, asserenar ânimos, concitar ao otimismo.
+We remember the envy that destroys excellent quality programmes, the only
+goal is to comfort hearts, soothe spirits, to concite optimism.
 
-Tudo porque o invejoso decide que é mais fácil destruir do que se esforçar para
-alcançar o patamar do outro e ombrear com ele, nas mesmas e dignas lutas pelo
-semelhante.
+All because the envious decides that it is easier to destroy than to strive for
+reach the level of the other and shoulder with him, in the same and worthy struggles for the
+Similar.
 
-Lembramos da maldade que estabelece intrigas, espalha a cizânia da mentira,
-destruindo a honra de pessoas nobres e coloca suspeitas em tarefas de total
-renúncia.
+We remember the wickedness that establishes intrigue, spreads the cizânia of lies,
+destroying the honor of noble people and puts suspicions in total tasks
+Resignation.
 
-Essa forma de agir, na surdina, na calada da noite, lançando petardos aqui e
-ali, de forma sutil, é droga  que igualmente produz muitos malefícios.
+This way of acting, in the deaf, in the dead of night, throwing petardos here and
+there, in a subtle way, it is a drug that also produces many harms.
 
-Por tudo isso, se você não se deseja contaminar, nem servir ao mal, pense um
-pouco.
+For all this, if you do not want to contaminate yourself, nor serve evil, think a
+Little.
 
-Se as informações lhe chegam, destilando veneno, sobre pessoas e instituições,
-use seu bom senso.
+If the information comes to you, distilling poison, about people and institutions,
+use your common sense.
 
-Analise o que fazem os que estão sendo acusados, suas obras, seus feitos.
+Analyze what those who are being accused do, their works, their deeds.
 
-Coloque na balança da ponderação o que ouve do acusador, seus atos, suas
-atitudes.
+Put on the balance of weighting what you hear from the accuser, his acts, his
+Attitudes.
 
-Pense que, enquanto o outro está agindo no bem, esse está semeando a intriga, o
-mal.
+Think that while the other is acting in good, this is sowing the intrigue, the
+be.
 
-E então, com lucidez, não se permita inocular pela droga da raiva, da inveja,
-da maldade.
+And then, with lucidity, be not allowed to inoculate by the drug of anger, envy,
+of evil.
 
-Vacine-se com a vigilância e a oração, conforme a orientação de nosso Mestre
+Vacine with vigilance and prayer, as directed by our Master
 Jesus.
 
-Não faça viagens pelo país das sombras. Não se deixe enredar pelo mal.
+Don't make trips around the country of shadows. Don't be entangled by evil.
 
-Sirva sempre ao bem. Vibre no bem. Espalhe o bem e contagie a muitos, com a sua
-disposição de acertar, de ser melhor, em plena consciência de seus pensamentos
-e atos.
+Always serve good. Vibrate in good. Spread good and infect to many, with your
+willingness to get it right, to be better, in full awareness of his thoughts
+and acts.
 
 ## Source
 Redação do Momento Espírita.

@@ -14,89 +14,89 @@ topics:
 - love
 ---
 
-Muito se tem falado, nestes tempos, sobre o autoamor.
+Much has been said in these times about self-love.
 
-E muitos ainda não sabem o que realmente seja o autoamor, confundindo-o com
-egoísmo, com vaidade.
+And many still don't know what self-love really is, confusing him with
+selfishness, with vanity.
 
-O autoamor nada tem a ver com esses sentimentos doentios, que deixam
-transparecer que, no íntimo da pessoa, prevalece o medo, a insegurança, em
-razão dos conflitos que ainda carrega em si.
+Self-love has nothing to do with these sick feelings, which leave
+show that, deep in the person's depths, fear prevails, insecurity, in
+conflicts it still carries itself.
 
-O egoísta não se ama. Ele ama a posse, as suas paixões, os seus desequilíbrios.
+The selfish one doesn't love. He loves possession, his passions, his imbalances.
 
-No entanto, o amor verdadeiro é o combustível da vida. É ele que nos sustenta
-na caminhada do progresso que almejamos.
+However, true love is the fuel of life. He's the one who sustains us.
+in the journey of progress we crave.
 
-O amor é de essência Divina, é o sentimento mais sublime que se pode conceber.
+Love is of divine essence, it is the most sublime feeling that can be conceived.
 
-Reclama-se da falta de amor verdadeiro na face da Terra, porque muitos esperam
-apenas receber amor, poucos se dispõem a vivenciá-lo, a doá-lo.
+It complains about the lack of true love on the face of the earth, because many expect
+only receive love, few are willing to experience it, to donate it.
 
-Muitos nem sequer sabem que aquele que não se ama, não consegue amar a ninguém,
-pois não se dá daquilo que não se tem.
+Many don't even know that the one who doesn't love, can't love anyone,
+because you don't realize what you don't have.
 
-Jesus recomendou que amássemos ao próximo como a nós mesmos.
+Jesus recommended that we love others as ourselves.
 
-Como fazer isso, quando não se possui o parâmetro do amor a si mesmo?
+How to do this, when you don't have the parameter of love yourself?
 
-Muitos pensam que o amor deve ser buscado lá fora, mas é dentro de si mesmo que
-está a fonte desse recurso.
+Many think that love should be sought out there, but it is within itself that
+is the source of this feature.
 
-Deus é Pai de amor e bondade, e como filhos Seus, todos possuímos essa semente,
-esperando ser cultivada para germinar.
+God is the Father of love and goodness, and as his children, we all possess this seed,
+expected to be grown to germinate.
 
-Cada qual deve desenvolver a chance de deixar crescer e florescer o amor que
-traz em si.
+Each one must develop the chance to grow and flourish the love that
+brings in you.
 
-Quando a criatura se ama, ela se respeita, se valoriza, aprende a selecionar
-atitudes e escolhas que lhe façam bem.
+When the creature loves itself, it respects itself, values itself, learns to select
+attitudes and choices that do you good.
 
-Quanto mais se ama, mais se desliga de crenças, de dependências, de pessoas e
-situações prejudiciais.
+The more you love, the more you disconnect from beliefs, dependencies, people and
+harmful situations.
 
-Autoamor dá equilíbrio interior, propicia crescimento intelectual, espiritual,
-emocional, moral.
+Self-love gives inner balance, provides intellectual, spiritual growth,
+emotional, moral.
 
-O autoamor nos detém ante vícios e abusos de qualquer ordem.
+Self-love holds us before vices and abuses of any order.
 
-O autoamor permite engrandecimento e sublimidade nos projetos de vida.
+Self-love allows magnicement and sublimity in life projects.
 
-Para isso, importante buscar o autoconhecimento, avaliar posturas, sentimentos,
-ações, e mudar o que precisa ser mudado.
+For this, it is important to seek self-knowledge, to evaluate postures, feelings,
+actions, and change what needs to be changed.
 
-A meditação, por alguns minutos diários, permite essa viagem interior.
+Meditation, for a few minutes daily, allows this inner journey.
 
-Descobre-se que a maioria dos problemas que se enfrenta não está nos outros,
-mas no nosso próprio íntimo.
+It turns out that most of the problems facing each other are not in others,
+but in our own heart.
 
-A meditação permite que se observe, em nós, as causas e as soluções para os
-nossos problemas.
+Meditation allows us to observe the causes and solutions for
+our problems.
 
-Percebe-se então, quem realmente somos, e o que precisamos mudar em nosso
-interior, propiciando oportunidades de crescimento.
+It is perceived then, who we really are, and what we need to change in our
+providing opportunities for growth.
 
-Mesmo que nos assustemos com o que somos, fujamos da culpa e do remorso.
+Even if we get scared of who we are, we run away from guilt and remorse.
 
-O autoperdão é fundamental nesse processo.
+Self-forgiveness is fundamental in this process.
 
-É importante a aceitação de quem somos para podermos realizar a
+It is important to accept who we are in order to be able to carry out the
 autotransformação.
 
-Usemos o momento atual para agir acertadamente, trabalhando a melhoria que
-almejamos.
+Let us use the current moment to act properly, working on the improvement that
+we crave.
 
-A Doutrina Espírita alerta para que sejamos hoje melhores do que fomos ontem, e
-amanhã, melhores do que somos hoje.
+The Spiritist Doctrine warns that we are better today than we were yesterday, and
+tomorrow, better than we are today.
 
-Conhecendo-nos, nos aceitando, nos melhorando, acabaremos por nos amar.
+Knowing each other, accepting us, getting better, we'll end up loving each other.
 
-Em nos amando, estaremos habilitados a amarmos ao próximo conforme a Lei nos
-pede.
+In loving us, we will be empowered to love others according to the Law in
+Asks.
 
-Amando-nos e amando ao próximo, perto estaremos de amar a Deus!
+Loving and loving others, close we will be to love God!
 
-Escute o áudio deste texto
+Listen to the audio of this text
 
 # Source
 Redação do Momento Espírita.

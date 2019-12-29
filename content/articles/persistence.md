@@ -8,85 +8,85 @@ topics:
 - family
 ---
 
-Um homem investe tudo o que tem numa pequena oficina. Trabalha dia e noite,
-inclusive dormindo no próprio local.
+A man invests everything he has in a small workshop. It works day and night,
+even sleeping on the spot itself.
 
-Para poder continuar nos negócios penhora, com muito pesar, as joias da esposa.
+To be able to continue in the pawn business, with great regret, the jewels of the wife.
 
-Quando apresenta o resultado final de seu trabalho a uma grande empresa,
-dizem-lhe que seu produto não atende ao padrão de qualidade exigido.
+When you present the final result of your work to a large company,
+tell you that your product does not meet the required quality standard.
 
-O homem desiste? Não!
+Does the man give up? No!
 
-Volta para a escola por mais dois anos, sendo vítima de grande gozação por
-parte de seus colegas, e de alguns professores que o tacham de visionário.
+He returns to school for another two years, falling victim to great enjoyment by
+part of his colleagues, and some teachers who think of him as visionary.
 
-O homem fica chateado? Não!
+Is the man upset? No!
 
-Após dois anos, a empresa que o recusara, finalmente fecha contrato com ele,
-porém, durante a guerra, sua fábrica é bombardeada duas vezes, sendo que grande
-parte dela é destruída.
+After two years, the company that had refused him finally closes a contract with him,
+however, during the war, its factory is bombed twice, and great
+part of it is destroyed.
 
-O homem se desespera e desiste? Não!
+Does the man despair and give up? No!
 
-Reconstrói sua fábrica, mas um terremoto novamente a arrasa.
+Rebuilds its factory, but an earthquake again devastates it.
 
-Será essa a gota d’água? O homem desiste? Não!
+Is that the last straw? Does the man give up? No!
 
-Imediatamente após a guerra segue-se uma grande escassez de gasolina em todo o
-país, e esse homem não pode sair de automóvel nem para comprar comida para a
-família.
+Immediately after the war follows a major gasoline shortage throughout the
+country, and this man can't get out of the car or buy food for the
+Family.
 
-Ele entra em pânico e desiste? Não!
+He panics and gives up? No!
 
-Criativo, como de costume, ele adapta um pequeno motor à sua bicicleta, e sai
-às ruas.
+Creative, as usual, he adapts a small engine to his bike, and comes out
+to the streets.
 
-Os vizinhos ficam maravilhados e todos querem também as chamadas bicicletas
-motorizadas.
+The neighbors are amazed and everyone also wants the so-called bicycles
+Motorized.
 
-A demanda por motores aumenta muito, e logo ele fica sem mercadoria. Decide
-então montar uma fábrica para essa novíssima invenção.
+Demand for engines increases a lot, and soon it runs out of merchandise. Decides
+then set up a factory for this brand new invention.
 
-Como não tem capital, resolve pedir ajuda para mais de quinze mil lojas
-espalhadas pelo país. Como a ideia é boa, consegue apoio de mais ou menos cinco
-mil lojas, que lhe adiantam o capital necessário para a indústria.
+As it has no capital, decides to ask for help for more than fifteen thousand stores
+scattered throughout the country. As the idea is good, it gets support of plus or minus five
+1,000 stores, which bring the necessary capital to the industry to it.
 
-Encurtando a história: hoje, a Honda Corporation é um dos maiores impérios da
-indústria automobilística japonesa, conhecida e respeitada em todo o mundo.
+Shortening history: today, Honda Corporation is one of the largest empires of
+Japanese automotive industry, known and respected around the world.
 
-Tudo porque Soichiro Honda, seu fundador, não se deixou abater pelos terríveis
-obstáculos que encontrou pela frente.
-
-                                   *   *   *
-
-Se você vive momentos difíceis, como quase todo o mundo, não se deixe desanimar
-e persista.
-
-A vida reserva um prêmio maravilhoso para aquele que persiste, que tem fé, e
-que não se deixa abalar pelo desânimo.
-
-O que sabemos é uma gota. O que ignoramos é um oceano.
-
-E, se mesmo depois de uma vida inteira de persistência, você não conseguir
-desfrutar do conforto material desejado, saiba que conquistou algo muito maior,
-muito mais duradouro do que os tesouros da Terra.
-
-Você conquistou um dos tesouros do coração a que chamamos virtude.
+All because Soichiro Honda, its founder, did not let himself be slaughtered by the terrible
+obstacles you encountered ahead.
 
                                    *   *   *
 
-De qualquer forma as horas se sucedem. Utilize-as de maneira digna, mesmo que a
-peso de sacrifícios.
+If you experience difficult times, like almost the whole world, don't be discouraged
+and persists.
 
-Quando você transpuser a barreira da dificuldade, constatará a vantagem de
-haver perseverado, descobrindo-se rico de paz, face aos tesouros de amor e
-realização que adquiriu.
+Life holds a wonderful prize for those who persist, who have faith, and
+that is not shaken by discouragement.
 
-Motivo algum deve servir de apoio para o desânimo.
+What we know is a drop. What we ignore is an ocean.
 
-Tudo na vida constitui convite para o avanço e a conquista de valores, na
-harmonia e na glória do bem. 
+And if even after a lifetime of persistence, you can't
+enjoy the desired material comfort, know that you have achieved something much greater,
+much longer lasting than the treasures of the Earth.
+
+You have conquered one of the treasures of the heart that we call virtue.
+
+                                   *   *   *
+
+Anyway, the hours follow. Use them in a dignified manner, even if the
+weight of sacrifices.
+
+When you transpose the barrier of difficulty, you will notice the advantage of
+to have persevered, discovering himself rich in peace, in the face of the treasures of love and
+realization it acquired.
+
+No reason should support discouragement.
+
+Everything in life is an invitation to advance and gain values, in
+harmony and the glory of good. 
 
 ## Source
 Redação do Momento Espírita, com base em texto de autoria

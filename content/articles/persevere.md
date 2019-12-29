@@ -7,72 +7,72 @@ topics:
 ---
  
 
-Sabendo da dificuldade que há no exercício do perdão, Pedro, o Apóstolo,
-pergunta a Jesus quantas vezes é necessário tal exercício, em relação ao
-próximo.
+Knowing the difficulty in exercising forgiveness, Peter the Apostle,
+question to Jesus how often such an exercise is needed, in relation to the
+Next.
 
-A resposta de Jesus convida-nos a um exercício constante, pois que o Mestre
-propõe que o perdão seja exercitado infindas vezes, representado na expressão
-de setenta vezes sete vezes.
+Jesus' answer invites us to a constant exercise, for the Master
+proposes that forgiveness be exercised endlessly, represented in the expression
+seventy times seven times.
 
-O que Jesus dá a entender com essa expressão é que bons hábitos, assim como os
-menos nobres, se incorporam no nosso cotidiano através da insistência, da
-repetição, do exercício contínuo.
+What Jesus gives to understand with this expression is that good habits, as well as
+are incorporated into our daily lives through insistence,
+repetition, of continuous exercise.
 
-Alguém que consiga perdoar quatrocentos e noventa vezes, como aconselha Jesus,
-certamente, já terá incorporado o hábito de tal forma, que difícil lhe será não
-perdoar nas oportunidades seguintes.
+Someone who can forgive four hundred and ninety times, as Jesus advises,
+certainly, you will have already incorporated the habit in such a way that it will be difficult for you to
+forgive in the following opportunities.
 
-Assim se dá com todos os hábitos saudáveis, positivos, bons, que queremos
-incorporar na nossa intimidade emocional.
+This is how it happens with all the healthy, positive, good habits that we want to
+incorporate into our emotional intimacy.
 
-Ninguém se transforma do dia para a noite, nem se santifica em breves momentos,
-apenas porque aceitou conceitos novos ou amadureceu valores de uma forma
-positiva.
+No one becomes overnight, nor sanctifies in brief moments,
+just because it accepted new concepts or matured values in a way
+Positive.
 
-Qualquer pessoa que decida se tornar melhor, precisa de uma companheira
-inseparável: a persistência.
+Anyone who decides to become better, needs a companion
+inseparable: persistence.
 
-Imagine-se querendo libertar-se da dependência do tabaco. Por mais que a
-decisão esteja tomada, por mais que o auxílio médico e terapêutico seja
-requisitado, sem a persistência no intento, não haverá sucesso.
+Imagine wanting to free yourself from tobacco addiction. As much as the
+decision is taken, as much as medical and therapeutic assistance is
+without persistence in intent, there will be no success.
 
-Com os maus hábitos morais ocorre da mesma forma. Se desejamos nos tornar uma
-pessoa menos egoísta, ou menos orgulhosa, ou ainda, se o que nos incomoda é o
-fato de sermos muito arrogantes e gostaríamos de mudar a forma de agir, a
-persistência nos será desejada companheira.
+With bad moral habits occurs in the same way. If we want to become a
+less selfish person, or less proud, or even if what bothers us is the
+that we are very arrogant and would like to change the way we act, the
+persistence will be desired to us companion.
 
-Toda mudança exige esforço, energia, investimento. E é natural ainda que, ao
-percorrer a estrada para novos rumos, aconteçam tropeços, sintamo-nos um pouco
-perdidos ou, às vezes, até uma pontinha de arrependimento... Afinal, antes era
-tão mais fácil, pensamos...
+Every change requires effort, energy, investment. And it is natural even if, at the
+walk the road to new directions, let's stumble, let's feel a little
+lost or sometimes even a tip of repentance... After all, it was before
+so easier, we thought...
 
-Nesses momentos, a perseverança será a ferramenta a nos empurrar à frente, a
-nos estimular o continuar da marcha, a dar a coragem para insistir no processo
-de mudança, de melhoria, de vir a ser.
+In these moments, perseverance will be the tool to push us forward, the
+stimulate us to continue the march, to give the courage to insist on the process
+of change, improvement, to be.
 
-Sempre haverão aqueles a nos desestimular o progresso. Pigmeus morais que o
-são, não tendo coragem de mudar a si, se incomodam em ver que outros se
-esforçam, tentam melhorar.
+There will always be those who discourage progress from us. Moral pygmies that the
+are, not having the courage to change themselves, bother to see that others get
+they strive, try to improve.
 
-Como não têm coragem de fazê-lo, não querem que outros o façam.
+Since they don't have the guts to do it, they don't want others to do it.
 
 *   *   *
 
-Não nos deixemos levar pelo pessimismo de uns ou pelo desencorajamento de
-outros.
+Let us not be carried away by the pessimism of some or by the discouragement of
+Other.
 
-Toda mudança para melhor é desejo de Deus para conosco, pois como nosso Pai,
-deseja o melhor para Seus filhos. Mas como Pai amoroso, sabe que deve partir de
-cada um de nós a iniciativa e o esforço para sermos melhores.
+Every change for the better is God's desire for us, for as our Father,
+wishes the best for His children. But as a loving Father, he knows that he must start from
+each of us the initiative and effort to be better.
 
-Persistir no bem, insistir no esforço da melhora pessoal para que o bem ganhe
-espaço em nossa intimidade é investimento sábio a que todos devemos nos dispor,
-o quanto antes.
+Persist in good, insist on the effort of personal improvement so that good wins
+space in our intimacy is wise investment to which we must all dispose of,
+as soon as possible.
 
-Somente através do esforço pessoal e individual é que conseguiremos trilhar o
-caminho para a construção da felicidade em nossa intimidade, quando sentimentos
-de baixa conta cederão espaço para luz e paz na nossa estrutura emocional.
+Only through personal and individual effort will we be able to follow the
+way to building happiness in our intimacy, when feelings
+will give way to light and peace in our emotional structure.
 
 
 ## Source

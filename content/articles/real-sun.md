@@ -14,79 +14,79 @@ topics:
 - faithlicidade
 ---
 
-Certa vez um pai, muito sensível, percebeu que uma de suas filhas estava
-sofrendo e lhe perguntou o que estava acontecendo com ela.
+Once a very sensitive father realized that one of his daughters was
+suffering and asked her what was going on with her.
 
-A garota respondeu que havia sido criticada pelas amigas por ser uma pessoa
-simples, não gostar de ostentação e por não ter preocupação excessiva com a
-estética.
+The girl replied that she had been criticized by her friends for being a person
+simple, do not like ostentation and because it has no excessive concern with the
+Aesthetic.
 
-Ela estava se sentindo rejeitada e triste.
+She was feeling rejected and sad.
 
-O pai, grande educador, percebendo o sofrimento da filha, disse-lhe, com
-carinho: “Filha, algumas pessoas preferem um bonito sol pintado num quadro,
-outras preferem um sol real, ainda que esteja coberto pelas nuvens.”
+The father, a great educator, realizing his daughter's suffering, told him, with
+affection: "Daughter, some people prefer a beautiful sun painted on a painting,
+others prefer a real sun, even if it is covered by the clouds."
 
-Em seguida perguntou-lhe: “Qual é o sol que você prefere?”
+He then asked him, "What's the sun you prefer?"
 
-Ela pensou um instante e respondeu: “O sol real.”
+She thought for a moment and replied, "The real sun."
 
-E o pai completou: “Mesmo que as pessoas não acreditem no seu sol, ele está
-brilhando. Você tem luz própria.
+And his father added, "Even if people don't believe in his sun, he's
+Shining. You have light of your own.
 
-Um dia, as nuvens que o encobrem se dissiparão e as pessoas irão enxergá-lo.
-Não tenha medo das críticas dos outros, tenha medo de perder a sua luz.”
+One day, the clouds that cover it will dissipate and people will see it.
+Don't be afraid of criticism from others, be afraid of losing your light."
 
-Muitos jovens se sentem reféns da opinião dos outros, e sofrem muito quando são
-criticados, pois seu desejo mais ardente é ser aceito pelos colegas.
+Many young people feel hostages of other people's opinions, and suffer a lot when they are
+criticized, for their most ardent desire is to be accepted by colleagues.
 
-Um fato, também muito corriqueiro na vida dos jovens, e que nem todos conseguem
-superar, é a rejeição.
+A fact, also very common in the lives of young people, and that not everyone can
+overcome, is rejection.
 
-O desprezo, a indiferença, os comentários maldosos, são geradores de muitos
-dissabores na alma juvenil, quando os pais descuidam da orientação e atenção
-adequadas.
+Contempt, indifference, mean comments, are generators of many
+displeasures in the youthful soul, when parents neglect guidance and attention
+Appropriate.
 
-O jovem, ainda imaturo e inseguro, diante de uma situação de grande estresse
-pode enveredar pelo caminho das drogas, da depressão, da degenerescência moral.
+The young man, still immature and insecure, in the face of a situation of great stress
+can go down the path of drugs, depression, moral degeneration.
 
-Por isso se faz importante a atenção dos pais, nesses dias em que as nuvens
-pairam sobre os corações juvenis, obscurecendo-lhes o sol interior.
+That's why parents' attention is important, on those days when clouds
+hover over the youthful hearts, obscuring the inner sun.
 
-Ensine ao seu filho a arte de construir a própria felicidade, ainda que tudo
-pareça conspirar contra.
+Teach your child the art of building his own happiness, albeit all
+seem to conspire against.
 
-Mostre a ele que o que os amigos pensam dele ou deixam de pensar, não
-intensificará a sua luz interior, nem a diminuirá.
+Show him that what his friends think of him or stop thinking, no
+will intensify its inner light, nor will it diminish it.
 
-Diga-lhe que o que faz a diferença é o que ele realmente sente e é.
+Tell him what makes a difference is what he really feels and is.
 
-Ensine seu filho a não se escravizar ao consumismo atormentado, à neurose de
-buscar a beleza física a qualquer custo, a não depender da opinião dos outros
-para ser feliz.
+Teach your child not to enslave himself to tormented consumerism, the neurosis of
+seek physical beauty at any cost, not depending on the opinion of other
+to be happy.
 
-Ensine ao seu filho que a verdadeira beleza está na alma, e não numa silhueta
-bem definida.
+Teach your child that true beauty is in the soul, not in a silhouette
+well defined.
 
-Diga-lhe que a beleza física é passageira, como as flores de um dia, e que o
-Espírito é o ser imortal que sobrevive à matéria e transcende o tempo.
+Tell him that physical beauty is fleeting, like the flowers of a day, and that the
+Spirit is the immortal being who survives matter and transcends time.
 
                                                            *  *  *
 
-“Mesmo que as pessoas não acreditem no seu sol, ele está brilhando. Você tem
-luz própria.
+"Even if people don't believe in your sun, it's shining. You have
+light itself.
 
-Um dia, as nuvens que o encobrem se dissiparão e as pessoas irão enxergá-lo.
-Não tenha medo das críticas dos outros, tenha medo de perder a sua luz.”
+One day, the clouds that cover it will dissipate and people will see it.
+Don't be afraid of criticism from others, be afraid of losing your light."
 
-Acredite nessa verdade, e ajuste o olhar do seu filho para que ele também possa
-ver em si mesmo um sol real brilhando, mesmo que, por vezes, esteja encoberto
-pelas nuvens.
+Believe in this truth, and adjust your son's gaze so that he can also
+see in itself a shining royal sun, even if sometimes it is covered up
+by the clouds.
 
-Pense nisso, e, se guardar algum tipo de medo, que seja o de perder a própria
-luz.
+Think about it, and if you keep some kind of fear, that's losing your own
+Light.
 
- 
+
 ## Source
 Equipe de Redação do Momento Espírita, com base no cap. 6, pt. 1, do livro Pais
 brilhantes, professores fascinantes, de Augusto Cury, ed. Sextante.

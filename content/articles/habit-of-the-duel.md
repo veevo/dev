@@ -12,103 +12,103 @@ topics:
 ---
  
 
-O duelo figura na História da Humanidade como uma prática violenta e injusta.
+The duel is a violent and unfair practice in human history.
 
-Por muito tempo, as legislações admitiram esse genuíno resquício da barbárie.
+For a long time, the legislation has admitted this genuine remnant of barbarism.
 
-Ele consistia na exaltação do mais desmedido e descontrolado orgulho, embora
-travestido de honra.
+It consisted of the exaltation of the most rampant and uncontrolled pride, though
+dressed in honor.
 
-Sua lógica era a de que a honra se lavava com sangue.
+His logic was that honor was washed with blood.
 
-Entretanto, o homem verdadeiramente honrado não precisa matar ninguém, a fim de
-atestar essa sua qualidade.
+However, the truly honored man does not need to kill anyone in order to
+attest to that quality of yours.
 
-A honra é um atributo espiritual de quem cumpre todos os seus deveres,
-inclusive os de humanidade.
+Honor is a spiritual attribute of those who fulfill all their duties,
+including those of humanity.
 
-E é desumano matar alguém, por mais grave que seja a ofensa recebida.
+And it's inhuman to kill someone, no matter how serious the offense received.
 
-Quando se admitia o duelo, era considerado prova de coragem dele participar.
+When the duel was admitted, it was considered proof of courage for him to participate.
 
-Na verdade, tinha-se apenas exibicionismo social e arrogância, sem qualquer
-preocupação ética.
+In fact, there was only social exhibitionism and arrogance, without any
+ethical concern.
 
-O duelista treinado não passava de um homicida.
+The trained duelist was just a murderer.
 
-Ele se lançava na empreitada ciente de sua supremacia.
+He was cast in the endeave aware of his supremacy.
 
-Já o que aceitava o desafio sabendo-se em desvantagem cometia suicídio.
+On the other hand, what accepted the challenge knowing at a disadvantage committed suicide.
 
-Ambos violavam os Códigos Divinos.
+Both violated the Divine Codes.
 
-Teriam tempo de se arrepender do orgulho a que se entregavam.
+They'd have time to regret the pride they gave.
 
-Essa prática infeliz deixava viúvas e órfãos, por cujas dores e provações os
-duelistas no futuro responderiam.
+This unfortunate practice left widows and orphans, for whose pains and trials the
+duelists in the future would respond.
 
-Lentamente a legislação humana evoluiu.
+Slowly human legislation has evolved.
 
-Hoje não mais se admite o duelo.
+Today you no longer admit the duel.
 
-Entende-se que a honra não se conquista ou se mantém à custa de homicídios ou
-suicídios.
+It is understood that honor is not conquered or remains at the expense of murder or
+Suicides.
 
-Mas a criatura humana é sempre herdeira de suas más inclinações.
+But the human creature is always heir to its bad inclinations.
 
-Antigos hábitos do passado espiritual não desaparecem com facilidade.
+Ancient habits of the spiritual past do not disappear easily.
 
-Orgulho, arrogância, prepotência, egoísmo, ódio e ressentimento são vícios que
-ainda pesam fundo na economia moral da Humanidade.
+Pride, arrogance, arrogance, selfishness, hatred and resentment are vices that
+still weigh deep into the moral economy of humanity.
 
-Esses sentimentos cruéis são a herança do que se viveu no pretérito remoto.
+These cruel feelings are the heritage of what has been lived in the remote past.
 
-Superá-los é o dever de todo homem comprometido com ideais de paz e redenção.
+Overcoming them is every man's duty committed to ideals of peace and redemption.
 
-Como visto, hoje não há mais duelos de vida e morte.
+As seen, today there are no more duels of life and death.
 
-Mas as criaturas permanecem se digladiando por bobagens.
+But the creatures keep digladiating themselves for nonsense.
 
-Embora não armados, tais confrontos permanecem bastante nocivos.
+Although unarmed, such clashes remain quite harmful.
 
-Eles tiram a paz e semeiam tragédias.
+They take away peace and sow tragedies.
 
-No lar, no ambiente de trabalho, no meio social, os indivíduos se melindram,
-com grande facilidade.
+In the home, in the workplace, in the social environment, individuals are in touch,
+with great ease.
 
-Ao invés de conversarem e acertarem as diferenças, cultivam mágoas e ódios, à
-semelhança de tesouros.
+Instead of talking and getting the differences right, they cultivate sorrows and hatreds,
+similarity of treasures.
 
-Tão nefasto cultivo um dia explode na forma de violentas discussões.
+So nefarious cultivation one day explodes in the form of violent discussions.
 
-Na falta de coragem para enfrentar o presumido opositor, não são raros os que
-lançam mão da maledicência.
+In the lack of courage to face the presumed opponent, it is not uncommon for those who
+give up the maledicence.
 
-Tornam a vida do desafeto um inferno, ao espalhar em torno de seus passos as
-sementes da desconfiança.
+They make the life of the disaffected hell by spreading around their footsteps the
+seeds of mistrust.
 
-Onde ele antes via sorrisos e simpatia, passa a confrontar má-vontade e cara
-feia.
+Where he before saw smiles and sympathy, he goes on to confront ill will and face
+Ugly.
 
-Há ainda quem duele mentalmente, desejando o mal àquele que supostamente o
-ofendeu.
+There are still those who duele mentally, wishing evil to the one who supposedly
+Offended.
 
-Os pensamentos negativos por vezes atingem o destinatário, se este vibra em
-faixa equivocada e também se entrega a remoques.
+Negative thoughts sometimes reach the recipient if it vibrates in
+misguided track and also gives in to paddles.
 
-Mas sempre empestam a atmosfera espiritual de quem os emite e geram mal-estar e
-enfermidades.
+But they always empest the spiritual atmosphere of those who emit them and generate malaise and
+Diseases.
 
-Ciente dessa realidade, preste atenção a como você reage a provocações e
-desentendimentos.
+Aware of this reality, pay attention to how you react to taunts and
+Disagreements.
 
-Saiba que há mais coragem e sabedoria em relevar do que em revidar as ofensas.
+Know that there is more courage and wisdom in retaking than in countering offenses.
 
-Cesse com o triste hábito de duelar e ofender e passe a perdoar e compreender.
+Stop with the sad habit of duelling and offending and going to forgive and understand.
 
-Uma vida honrada é a melhor resposta a provocações.
+An honorable life is the best response to taunts.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita, com base

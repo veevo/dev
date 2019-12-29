@@ -6,84 +6,84 @@ topics:
 - perseverance
 ---
 
-Abrir a caixa de um quebra-cabeças pela primeira vez, desses de milhares de
-minúsculas peças, é como se deparar com um grande desafio da vida.
+Open the box of a puzzle for the first time, of these thousands of
+tiny pieces, it's like coming across a great challenge of life.
 
-Num primeiro momento, parece impossível. As partes são muito parecidas. Algumas
-delas, somos capazes de jurar, são idênticas em cor, formato e encaixe.
+At first, it seems impossible. The parts are very similar. Some
+of them, we are able to swear, are identical in color, shape and fitting.
 
-Como encontrar cada pedaço de um céu azul da paisagem, se todos são iguais? Por
-que essa peça iria aqui e não ali? Como distinguir cada peça verde de uma
-grande mata se todas têm nuances de cor tão similares?
+How to find every piece of a blue sky of the landscape, if all are the same? For
+that this play would go here and not there? How to distinguish each green piece from a
+great kills if they all have such similar color nuances?
 
-Alguns se desesperam: Isso não é para mim! O que eu estou fazendo aqui? –
-Dizem.
+Some despair: This is not for me! What am I doing here? –
+Say.
 
-Existem aqueles que simplesmente desistem.
+There are those who just give up.
 
-Outros ficam ali, olhando por alguns minutos, atônitos...
+Others stand there, looking for a few minutes, astonished...
 
-Por onde começar?
+Where to start?
 
-Se temos paciência e um pouco de perseverança, observamos a imagem da caixa. A
-pintura, a paisagem bela que daquela confusão poderá sair um dia, quem sabe...
+If we have patience and a little perseverance, we observe the image of the box. The
+painting, the beautiful landscape that of that confusion may come out one day, who knows...
 
-E ela parece nos dizer: Vale a pena tentar! Será compensador!
+And she seems to tell us, "It's worth a try! It will be rewarding!
 
-Olhamos para a caixa, olhamos para as peças. E tornamos a olhar.
+We look at the box, we look at the pieces. And we're looking at it.
 
-Então, um fenômeno interessante começa a acontecer. Conforme vamos focando em
-um ponto da imagem, nosso cérebro vai passando uma revista pelas peças, uma
-revista detalhada.
+So an interesting phenomenon begins to happen. As we focus on
+one point of the image, our brain goes through a magazine through the pieces, a
+detailed magazine.
 
-Aí, aquelas pecinhas que pareciam ser todas iguais, da mesma cor, começam a se
-mostrar um pouco distintas. Elas têm pequenos detalhes que as diferenciam umas
-das outras. Até as cores não são as mesmas.
+Then those little sinhas that seemed to be all the same, of the same color, begin to
+show a little distinct. They have small details that differentiate them from
+of the others. Even the colors are not the same.
 
-No azul encontramos diferentes tons e nessa e naquela há uma pequena mancha na
-ponta que não havíamos visto antes.
+In blue we find different shades and in that and that and there is a small stain on the
+tip we hadn't seen before.
 
-Tudo acontece em função do foco. Estamos focados, atentos, dedicados.
+Everything happens depending on the focus. We are focused, attentive, dedicated.
 
-Nunca conseguiremos resolver problemas e vencer desafios sem foco, sem atenção.
+We will never be able to solve problems and overcome challenges without focus, without attention.
 
-Nesse momento, o peito ansioso acalma. A respiração muda. A visão parece ficar
-mais poderosa. Estamos enxergando coisas que não enxergávamos antes!
+Right now, the anxious chest calms down. Breathing changes. The vision seems to stay
+more powerful. We're seeing things we didn't see before!
 
-Nossa performance melhora. Vislumbramos alguma forma. São quinze, vinte peças
-juntas que nos animam a continuar, até que chega um momento terrível: a procura
-por uma peça específica que parece não estar na mesa.
+Our performance improves. We've seen some form. There are fifteen, twenty pieces
+together that encourage us to continue, until a terrible moment comes: the search for
+by a specific piece that does not seem to be on the table.
 
-É uma peça fundamental, importante para terminar aquela fase, ou uma área
-determinada, e não a encontramos.
+It is a fundamental piece, important to finish that phase, or an area
+determined, and we did not find her.
 
-Tudo para...
+All to...
 
-Voltamos a pensar que não somos capazes de concluir.
+We're not able to conclude again.
 
                                    *   *   *
 
-Assim também acontece com os problemas complexos.
+So it also happens with complex problems.
 
-Nesse caso, temos dois caminhos a seguir. O primeiro é darmos uma pausa,
-mudarmos os pensamentos, sair, arejar a mente, falar sobre outras coisas.
-Darmos tempo ao tempo.
+In that case, we have two paths to go. The first is to take a break,
+change our thoughts, go out, air the mind, talk about other things.
+Take time.
 
-O segundo é pedir ajuda. Afinal, quem disse que temos que resolver nossos
-problemas sozinhos?
+The second is to ask for help. After all, who said we have to solve our
+problems alone?
 
-Não há vergonha nisso. Não é sinal de fraqueza. No exemplo de que nos servimos,
-montar um quebra-cabeças na companhia de alguém é muito mais divertido.
+There's no shame in that. It's no sign of weakness. In the example that we serve,
+Putting together a puzzle in someone's company is much more fun.
 
-Veremos que logo estaremos no caminho novamente e que uma ajuda é sempre muito
-bem-vinda.
+We will see that we will soon be on the way again and that a help is always very
+Welcome.
 
-Por fim, encarando os desafios de frente, passando pelos problemas e passando
-bem, iremos perceber que saímos mais fortes, mais maduros, assim como quem
-termina a montagem de um quebra-cabeças.
+Finally, facing the challenges ahead, going through the problems and passing
+well we will realize that we come out stronger, more mature, as well as who
+finishes the assembly of a puzzle.
 
-E levaremos conosco a lição da concentração, da perseverança, da tranquilidade,
-pelo êxito alcançado, pela dificuldade vencida.
+And we will take with us the lesson of concentration, perseverance, tranquility,
+success achieved, due to the difficulty overcome.
 
 ## Source
 Redação do Momento Espírita.  

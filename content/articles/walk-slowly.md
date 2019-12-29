@@ -7,80 +7,80 @@ topics:
 - prayer
 ---
 
-Ando devagar porque já tive pressa... Pressa de ter tantas coisas, de chegar a
-tantos lugares, pressa do ter, do parecer.
+I walk slowly because I've been in a hurry... Hurry to have so many things, to come to
+so many places, haste of having, of the opinion.
 
-Mas hoje ando a passo lento, pois já entendo que a vida é uma busca de si
-mesmo, do ser: ser melhor, ser amável, ser amigo, ser sensível, ser compassivo,
-ser caridoso...
+But today I'm slow, because I already understand that life is a search for you
+even, of being: being better, being kind, being friendly, being sensitive, being compassionate,
+be charitable...
 
-Hoje compreendo que é preciso paz para poder sorrir, pois o sorriso verdadeiro,
-a felicidade autêntica, vem da paz de espírito, a paz de consciência, de quem
-segue o caminho do bem a todo custo.
+Today I understand that it takes peace to be able to smile, for the true smile,
+authentic happiness, comes from peace of mind, peace of conscience, of whom
+follows the path of good at all costs.
 
-Entendo também que as chuvas são bem-vindas, e que sem elas não há floradas,
-pois é preciso chuva para florir.
+I also understand that the rains are welcome, and that without them there are no blooms,
+because it takes rain to bloom.
 
-A dor nos esculpe a alma, quando bem entendida, quando bem absorvida nos passos
-diários da lida.
+Pain sculpts our souls when well understood, when well absorbed in the footsteps
+journals of the read.
 
-Ando devagar porque já tive pressa... Pressa do sucesso a qualquer custo,
-pressa de ser popular, de ser o primeiro, de agradar a todos...
+I walk slowly because I've been in a hurry... Rush of success at any cost,
+rush to be popular, to be the first, to please everyone...
 
-Mas hoje ando tranquilo, percebendo mais as manhas e as manhãs, o sabor das
-massas e das maçãs, absorvendo a vida em toda sua plenitude.
+But today I walk peaceful, realizing more the mornings and mornings, the taste of
+pasta and apples, absorbing life in its fullness.
 
-O viver pode ser o mesmo, as circunstâncias podem permanecer inalteradas, mas
-minhas lentes são outras. Enxergo tudo de outra forma.
+Living may be the same, circumstances may remain unchanged, but
+my lenses are different. I see everything differently.
 
-E o mais importante de tudo: descobri que para cumprir a vida, para cumprir meu
-papel, minha missão aqui, preciso compreender minha própria marcha.
+And most important of all, I found that to fulfill life, to fulfill my
+role, my mission here, I need to understand my own march.
 
-Sêneca, antigo sábio, afirmou que nenhum vento é a favor para quem não sabe
-para onde ir. Então, compreender a marcha é fundamental. Precisamos saber para
-onde estamos indo, precisamos saber o que é nossa marcha, nossa vida.
+Seneca, ancient sage, stated that no wind is in favor for those who do not know
+where to go. So understanding the march is fundamental. We need to know to
+where we're going, we need to know what our march is, our lives.
 
-Só então posso ir tocando em frente, com simplicidade e devoção, com alegria e
-coração.
+Only then can I go playing forward, with simplicity and devotion, with joy and
+Heart.
 
-Pois todos temos talento, todos carregamos o dom de ser capaz e ser feliz.
+Because we all have talent, we all carry the gift of being able and being happy.
 
-A felicidade não é para poucos, não, é para todos. E cada um a vai encontrando
-no seu tempo, no seu momento, da sua forma.
+Happiness is not for the few, no, it is for everyone. And each one finds her
+in his time, at his time, in his form.
 
-Ando devagar porque já tive pressa... Pressa de partir, já quis desistir de
-tudo, em alguns momentos, mas hoje ando como que em câmera lenta, com a coragem
-de quem quer ficar e ver tudo até o fim.
+I walk slowly because I've been in a hurry... Hurry to leave, I've wanted to give up
+everything in a few moments, but today I walk like that in slow motion, with the courage
+of those who want to stay and see everything to the end.
 
-Carrego esse sorriso porque já chorei demais, mas isso não quer dizer que não
-voltarei a derramar alguma gota dos olhos. Significa apenas que os sorrisos
-serão a regra. A lágrima, exceção.
+I carry that smile because I've cried too much, but that doesn't mean i don't
+I'll spill some drop of my eyes again. It just means that smiles
+will be the rule. The tear, exception.
 
-Ando devagar no passo curto dos meus filhos, pois se resolver andar acelerado,
-os deixarei para trás.
+I walk slowly in my children's short stride, because if it is resolved to ride fast,
+I'll leave you behind.
 
-Ando devagar para perceber o sabiá cantador, pois se torno minha vida uma
-bomba-relógio, passo a não perceber a vida que passa ao largo de meus passos, e
-assim, os sabiás passam a não existir mais.
+I walk slowly to realize the singing wise, for if I turn my life a
+time bomb, step on not realizing the life that passes off my steps, and
+thus, the known ones now exist anymore.
 
-Ando devagar para ainda conseguir olhar onde piso, e não esmagar nada, nem
-ninguém com minha desatenção ou deselegância.
+I walk slowly to still be able to look where i read, and not crush anything, nor
+no one with my inattention or inelegance.
 
-Ando devagar para pensar um tanto mais antes de agir, para escolher as palavras
-certas, para digerir uma ideia nova, para escolher um caminho, para silenciar a
-mim mesmo por alguns instantes.
+I walk slowly to think a little more before acting, to choose the words
+to digest a new idea, to choose a path, to silence the
+myself for a few moments.
 
-Ando devagar... porque já tive pressa.
+I walk slowly... because I've had a hurry.
 
                                    *   *   *
 
-A vida é especialmente rica para que se passe por ela, às pressas, sem atentar
-para os detalhes.
+Life is especially rich for you to pass through it, hastily, without paying attention
+for the details.
 
-O mundo é pleno de belezas para que se o percorra aos saltos, sem nos determos
-a descobrir as belezas das flores, o segredo das matas, o encanto das fontes.
+The world is full of beauties so that one will travel to the jumps, without detaining
+discovering the beauties of flowers, the secret of the woods, the charm of the fountains.
 
-Pensemos nisso!
+Let's think about it!
 
 ## Source
 Redação do Momento Espírita, com base na

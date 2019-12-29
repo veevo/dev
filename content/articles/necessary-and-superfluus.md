@@ -9,74 +9,74 @@ topics:
 ---
 
 
-Quando o homem se aproxima do Evangelho são muitas as perguntas que passa a se
-fazer. Por vezes, a consciência lhe diz que deve tomar certas atitudes e abrir
-mão de outras.
+When man approaches the Gospel there are many questions that
+Do. Sometimes conscience tells you that you must take certain attitudes and open
+hand of others.
 
-Em certos momentos, a mensagem parece estabelecer conflitos com a realidade que
-vive.
+At certain times, the message seems to establish conflicts with the reality that
+Lives.
 
-Tal se dá, por exemplo, no que diz respeito ao que seja necessário ou
-supérfluo. Qual será o ponto exato em que termina um e começa o outro?
+This is, for example, with regard to what is necessary or
+Superfluous. What will be the exact point at which one ends and the other begins?
 
-Viajar será supérfluo? Possuir vários calçados e roupas será errado?
-Permitir-se o lazer e gastar algum dinheiro com ele será supérfluo?
+Will traveling be superfluous? Will having multiple shoes and clothes be wrong?
+Allowing yourself to leisure and spending some money on it will be superfluous?
 
-Lembramo-nos de Madre Teresa de Calcutá. Ao ser convidada a receber o Prêmio
-Nobel a que fez jus, ela pediu permissão para dispensar o banquete, pois
-preferia que a importância a que seria gasta com ele lhe fosse dada para os
-seus pobres.
+We remember Mother Teresa of Calcutta. When invited to receive the Award
+Nobel to which she lived jus, she asked permission to dispense with the banquet, for
+preferred that the importance to which he would be spent on him be given to the
+his poor.
 
-Afirmou, então, que duas colheres de arroz eram suficientes para sua
-alimentação.
+He then stated that two spoons of rice were sufficient for his
+Power.
 
-Para vestir-se, dois sarís era o que tinha.
+To get dressed, two sarís was what he had.
 
-Para sua mente, estava bem claro o que lhe era necessário e o que considerava
-supérfluo.
+To his mind, it was quite clear what was necessary to him and what he considered
+Superfluous.
 
-Convenhamos, entretanto, que necessitamos nos apresentar de acordo com as
-funções e a profissão que exercemos.
+Let us, however, agree that we need to present ourselves in accordance with the
+functions and the profession we exercise.
 
-Dependendo da profissão, não será supérfluo manter um guarda-roupa razoável,
-que nos permita comparecer aos locais com a vestimenta adequada, se isso for
-necessário.
+Depending on the profession, it will not be superfluous to maintain a reasonable wardrobe,
+to allow us to attend the places in the proper clothing, if this is
+Necessary.
 
-Supérflua será a ostentação vaidosa de trajes e grifes.
+Superfluous will be the vain ostentation of costumes and brands.
 
-Alimentarmo-nos é necessário e cada um de nós tem sua cota estabelecida pelo
-seu próprio organismo. Ele nos diz o limite do necessário.
+We feed is necessary and each of us has its quota established by the
+his own body. He tells us the limit of what is necessary.
 
-Quando desvirtuamos as nossas necessidades alimentares, permitindo-nos a gula,
-criamos necessidades artificiais e caímos no supérfluo.
+When we distort our eating needs, allowing us to gluttony,
+we create artificial needs and fall into the superfluous.
 
-Talvez uma boa medida do necessário e do supérfluo possa nos ser dada pelo
-nosso guarda-roupa. Quando as roupas forem tantas que o armário já não as
-consiga guardar, quando ao abrirmos as suas portas caem várias peças, pois que
-não há mais espaço para as ajeitar, eis o supérfluo.
+Perhaps a good measure of the necessary and superfluous can be given to us by the
+our wardrobe. When the clothes are so many that the closet no longer
+can store when when we open your doors fall several pieces, because that
+there is no more room to fix them, here's the superfluous.
 
-Quando o mofo e as traças se apoderam dos nossos guardados, estão dizendo que
-há supérfluos pois se a necessidade ditasse o uso, calçados, bolsas, roupas não
-permaneceriam o tempo suficiente em gavetas e armários para servirem de
-alimento a traças e sofrerem a ação continuada da umidade.
+When mold and moths took hold of our guard, they are saying that
+superfluous because if the need dictated the use, footwear, handbags, clothing does not
+would remain long enough in drawers and cabinets to serve as a
+to moths and suffer the continued action of moisture.
 
-O limite entre o necessário e o supérfluo nada tem de absoluto.
+The boundary between what is necessary and the superfluous has nothing absolute.
 
-Tudo é relativo e cabe à razão colocar cada coisa em seu lugar.
+Everything is relative and it is up to reason to put every thing in its place.
 
-Desenvolvamos em nós o senso moral e o sentimento de caridade que nos permitem
-o acerto, repartindo o que sobra com quem tem pouco ou nada tem.
+Let us develop in us the moral sense and sense of charity that allow us to
+the hit, sharing what's left with those who have little or nothing.
 
- Você sabia...
+ You knew...
 
- ...que a busca do bem-estar pelo homem é um desejo natural?
+ ... that man's pursuit of well-being is a natural desire?
 
-E que a procura do bem-estar só é indevida se esse for conquistado às custas de
-alguém ou colaborar para o enfraquecimento das forças físicas ou morais do
-homem?
+And that the search for well-being is only undue if it is conquered at the expense of
+someone or collaborate to weaken the physical or moral forces of the
+Man?
 
-O maior mérito para o homem é fazer o bem aos outros.
- 
+The greatest merit for man is to do good to others.
+
 
 ## Source
 Redação do Momento Espírita.

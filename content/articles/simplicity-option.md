@@ -11,90 +11,90 @@ topics:
 - serenity
 ---
 
-Muitas pessoas reclamam da correria de suas vidas.
+Many people complain about the rush of their lives.
 
-Acham que têm compromissos demais e culpam a complexidade do mundo moderno.
+They think they have too many commitments and blame the complexity of the modern world.
 
-Entretanto, inúmeras delas multiplicam suas tarefas sem real necessidade.
+However, countless of them multiply their tasks without real need.
 
-Viver com simplicidade é uma opção que se faz.
+Living with simplicity is an option that is made.
 
-Muitas das coisas consideradas imprescindíveis à vida, na realidade, são
-supérfluas.
+Many of the things considered essential to life are actually
+Superfluous.
 
-A rigor, enquanto buscam coisas, as criaturas se esquecem da vida em si.
+Strictly speaking, as they search for things, creatures forget their lives.
 
-Angustiadas por múltiplos compromissos, não refletem sobre sua realidade
-íntima.
+Distressed by multiple commitments, do not reflect on their reality
+Intimate.
 
-Olvidam do que gostam, não pensam no que lhes traz paz, enquanto sufocam em
-buscas vãs.
+They smell what they like, do not think about what brings them peace, while suffocating in
+vain searches.
 
-De que adianta ganhar o mundo e perder-se a si próprio?
+What's the point of winning the world and losing yourself?
 
-Se a criatura não tomar cuidado, ter e parecer podem tomar o lugar do ser.
+If the creature is not careful, having and appearing can take the place of being.
 
-Ninguém necessita trocar de carro constantemente, ter incontáveis sapatos, sair
-todo final de semana.
+No one needs to change cars constantly, have countless shoes, get out
+all end of week.
 
-É possível reduzir a própria agitação, conter o consumismo e redescobrir a
-simplicidade.
+It is possible to reduce one's own agitation, contain consumerism and rediscover the
+Simplicity.
 
-O simples é aquele que não simula ser o que não é, que não dá demasiada
-importância a sua imagem, ao que os outros dizem ou pensam dele.
+The simple is one that does not simulate being what is not, which does not give too much
+importance to his image, to what others say or think of it.
 
-A pessoa simples não calcula os resultados de cada gesto, não tem artimanhas e
-nem segundas intenções.
+The simple person does not calculate the results of each gesture, has no tricks and
+nor ulterior motives.
 
-Ela experiencia a alegria de ser, apenas.
+She experiences the joy of being, only.
 
-Não se trata de levar uma vida inconsciente, mas de reencontrar a própria
-infância.
+It's not about leading an unconscious life, but of finding your own
+Childhood.
 
-Mas uma infância como virtude, não como estágio da vida.
+But a childhood as a virtue, not as an stage of life.
 
-Uma infância que não se angustia com as dúvidas de quem ainda tem tudo por
-fazer e conhecer.
+A childhood that is not distressed by the doubts of those who still have everything for
+make and know.
 
-A simplicidade não ignora, apenas aprendeu a valorizar o essencial.
+Simplicity does not ignore, just learned to value the essentials.
 
-Os pequenos prazeres da vida, uma conversa interessante, olhar as estrelas,
-andar de mãos dadas, tomar sorvete...
+The little pleasures of life, an interesting conversation, look at the stars,
+walk hand in hand, have ice cream...
 
-Tudo isso compõe a simplicidade do existir.
+All this makes up the simplicity of existing.
 
-Não é necessário ter muito dinheiro ou ser importante para ser feliz.
+It is not necessary to have a lot of money or be important to be happy.
 
-Mas é difícil ter felicidade sem tempo para fazer o que se gosta.
+But it's hard to have happiness without time to do what you like.
 
-Não há nada de errado com o dinheiro ou o sucesso.
+There's nothing wrong with money or success.
 
-É bom e importante trabalhar, estudar e aperfeiçoar-se.
+It is good and important to work, study and improve.
 
-Progredir sempre é uma necessidade humana.
+Progress is always a human necessity.
 
-Mas isso não implica viver angustiado, enquanto se tenta dar cabo de infinitas
-atividades.
+But that does not imply living distressed, while trying to destroy endless
+Activities.
 
-Se o preço do sucesso for ausência de paz, talvez ele não valha a pena.
+If the price of success is no peace, maybe it's not worth it.
 
-As coisas sempre ficam para trás, mais cedo ou mais tarde.
+Things always fall behind sooner or later.
 
-Mas há tesouros imateriais que jamais se esgotam.
+But there are immaterial treasures that never run out.
 
-As amizades genuínas, um amor cultivado, a serenidade e a paz de espírito são
-alguns deles.
+Genuine friendships, a cultivated love, serenity and peace of mind are
+some of them.
 
-Preste atenção em como você gasta seu tempo.
+Pay attention to how you spend your time.
 
-Analise as coisas que valoriza e veja se muitas delas não são apenas um peso
-desnecessário em sua existência.
+Analyze the things you value and see if many of them aren't just a burden
+unnecessary in its existence.
 
-Experimente desapegar-se dos excessos.
+Try letting go of excesses.
 
-Ao optar pela simplicidade, talvez redescubra a alegria de viver.
+By opting for simplicity, you might rediscover the joy of living.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

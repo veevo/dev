@@ -14,95 +14,95 @@ topics:
 ---
 
 
-Em conhecida passagem do Evangelho, Jesus orientou Seus Apóstolos a respeito da
-missão que teriam pela frente.
+In a well-known passage from the Gospel, Jesus guided His Apostles about the
+mission they would have ahead of them.
 
-Ele afirmou que os enviava como ovelhas no meio de lobos.
+He claimed he sent them like sheep in the middle of wolves.
 
-Portanto, deveriam ser mansos como as pombas e prudentes como as serpentes.
+Therefore, they should be meek as doves and prudent like snakes.
 
-Dessa narrativa, é possível extrair lições muito úteis.
+From this narrative, it is possible to extract very useful lessons.
 
-Jesus exortou Seus auxiliares mais diretos ao trabalho de evangelização.
+Jesus exhorted His most direct aides to the work of evangelization.
 
-Mas tratou de esclarecê-los quanto às dificuldades que encontrariam.
+But he tried to clarify them about the difficulties they would encounter.
 
-Em sua condição de homens bons e idealistas seriam como ovelhas no meio de
-lobos.
+In his condition good and idealistic men would be like sheep in the midst of
+Wolves.
 
-Essa significativa imagem persiste atual.
+This significant image persists current.
 
-Ainda há muita maldade na Terra.
+There's still a lot of evil on Earth.
 
-Os desonestos, os aproveitadores e os espertalhões continuam em grande número.
+The dishonest, the profiteers and the remain in large numbers.
 
-Embora o progresso verificado em dois mil anos, persiste como tarefa difícil
-viver com pureza e dignidade.
+Although progress in 2,000 years persists as a difficult task
+living with purity and dignity.
 
-Daí, a cada dia, vale lembrar a lição de Jesus.
+Hence, every day, it is worth remembering The Lesson of Jesus.
 
-É preciso seguir em frente, viver e semear o bem.
+You have to move on, live and sow good.
 
-Mas sem ser ingênuo e achar que o mundo é cor-de-rosa.
+But without being naïve and thinking the world is pink.
 
-Constitui perigosa ilusão ver o bem onde não existe ou deixar de identificar o
-mal onde ele se encontra.
+It is a dangerous illusion to see good where there is no or fail to identify the
+evil where he is.
 
-O cristão deve ser leal e generoso, mas não tolo.
+The Christian must be loyal and generous, but not foolish.
 
-Para dar cabo de sua tarefa, precisa ser manso como as pombas e prudente como
-as serpentes.
+To ruin your task, you need to be tame as doves and prudent as
+the snakes.
 
-A mansidão é preciosa para evitar envolvimento com as correntes de ódio e
-intolerância.
+Meekness is precious to avoid involvement with the currents of hatred and
+Intolerance.
 
-A genuína bondade nunca se agasta, mesmo quando incompreendida e vilipendiada.
+Genuine goodness never wears out, even when misunderstood and vilified.
 
-O idealista encontra a justificativa da vida em seu ideal, não no comportamento
-alheio.
+The idealist finds the justification of life in its ideal, not in the behavior
+Oblivious.
 
-Ainda que os resultados demorem ou pareçam não vir, ele segue em frente.
+Even if the results take a while or don't seem to come, it moves on.
 
-Contudo, não basta a mansidão.
+However, meekness is not enough.
 
-Também é preciso usar de prudência.
+You also need to use prudence.
 
-Ou seja, ser prático e saber mensurar os meios de que dispõe para atingir os
-fins.
+That is, be practical and know how to measure the means available to achieve the
+Purposes.
 
-O ideal é importante para ter força em momentos difíceis.
+Ideally, it's important to have strength in difficult times.
 
-Mas é inadiável perceber o mundo em que se vive.
+But it's indenocable to realize the world you live in.
 
-Assim, o cristão é ao mesmo tempo doce e decidido.
+Thus, the Christian is both sweet and decided.
 
-Com doçura e energia, realiza sua tarefa no mundo.
+With sweetness and energy, he carries out his task in the world.
 
-Bondoso e idealista, mas também prático e lúcido.
+Kind and idealistic, but also practical and lucid.
 
-Percebe as dificuldades dos que o rodeiam, mas ainda assim os estima e
-valoriza.
+He realizes the difficulties of those around him, but he still estimates them and
+Values.
 
-Por identificar as necessidades alheias, sem desprezar ninguém, é que pode ser
-sal da terra e luz do mundo.
+By identifying the needs of those of the people of the people, without scorning anyone, it is that it can be
+salt of the earth and light of the world.
 
-Aliás, nesse sentido, a lição de Jesus é muito significativa.
+In fact, in this sense, Jesus' lesson is very significant.
 
-Veja-se que o mestre identificou virtude em uma serpente.
+It is noted that the master identified virtue in a serpent.
 
-Trata-se de um animal habitualmente objeto de repulsa e medo e tomado por
-símbolo de coisas negativas.
+It is an animal usually revulsion and fear and taken by
+symbol of negative things.
 
-Mas o Cristo utilizou uma característica Sua e a realçou de forma positiva.
+But Christ used a characteristic of His and positively highlighted it.
 
-Em face de pessoas difíceis, convém agir assim.
+In the face of difficult people, you have to act like this.
 
-Perceber suas virtudes e incentivá-las.
+Perceive their virtues and encourage them.
 
-Gradualmente, o bem que se estimula e valoriza torna-se pujante, enquanto o mal
-perde a força.
+Gradually, the good that is stimulated and values becomes pujante, while evil
+loses his strength.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

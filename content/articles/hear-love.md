@@ -15,76 +15,76 @@ topics:
 - family
 ---
 
-Residente em Aracaju, no Estado do Sergipe, Reinaldo é vendedor de coco há
-quarenta e dois anos, em diversos parques da cidade.
+Resident in Aracaju, in the State of Sergipe, Reinaldo has been a coconut salesman for
+forty-two years, in several parks in the city.
 
-Seis dias por semana, empurra um pesado carrinho carregado com sua mercadoria,
-garantindo o sustento de sua família.
+Six days a week, push a heavy cart loaded with your merchandise,
+ensuring the support of his family.
 
-Por pouco, sua história não teve um final trágico. Era comum que, vez ou outra,
-dormisse no carrinho, abrigando-se sob uma lona, pois sua residência é distante
-e o transporte público, precário.
+Narrowly, your story didn't have a tragic ending. It was common that, time or time,
+slept in the cart, sheltering under a tarp, for his residence is distant
+and public transport, precarious.
 
-Naquela noite, todavia, o esforçado senhor decidiu que iria para casa. O dia
-fora bastante cansativo e ele desejava repousar com um pouco mais de conforto.
+That night, however, the hard-working gentleman decided he would go home. The day
+it was quite tiring and he wished to rest with a little more comfort.
 
-Durante a madrugada, enquanto descansava, vândalos invadiram a praça onde ele
-deixara seu carrinho. Por pura maldade, atearam fogo nele, queimando,
-inclusive, os produtos que o comerciante comprara para reabastecer seu estoque.
+During the early hours, while resting, vandals invaded the square where he
+he had left his cart. For pure wickedness, they set him on fire, burning,
+including the products the trader had purchased to replenish their inventory.
 
-No dia seguinte, quando chegou à praça para trabalhar, o idoso se desesperou.
-Aos prantos, questionava-se como iria se recuperar daquele prejuízo, como iria
-sustentar sua família a partir dali.
+The next day, when he arrived at the square to work, the elderly despaired.
+In tears, he wondered how he would recover from that injury, how he would
+sustain his family from there.
 
-Por ser bastante conhecido e querido por aqueles que frequentam o parque,
-muitos o tentavam consolar, enquanto outros fotografavam a barbárie, a fim de
-registrar o acontecido.
+Because he is well known and loved by those who frequent the park,
+many tried to comfort him, while others photographed barbarism, in order to
+record what happened.
 
-Por meio das redes sociais, uma dessas fotos chegou à diretora comercial de uma
-empresa.
+Through social networks, one of these photos came to the commercial director of a
+Company.
 
-Percebendo que não bastava apenas compartilhar o sofrimento do próximo sem nada
-fazer para auxiliá-lo, ela iniciou uma campanha virtual para arrecadar doações
-e, dessa forma, devolver àquele senhor o que perdera.
+Realizing that it was not enough just to share the suffering of others with nothing
+do to help him, she started a virtual campaign to raise donations
+and thus return to that gentleman what he had lost.
 
-O prejuízo do trabalhador girava em torno de três mil reais. Em vinte e quatro
-horas de campanha, Simone e seu grupo de apoiadores levantaram quase o dobro
-dessa quantia.
+The worker's loss revolved around 3,000 reais. In twenty-four
+campaign hours, Simone and her group of supporters raised almost twice as much as
+of that amount.
 
-Após três dias, a campanha foi encerrada. Depois de prestar contas da
-arrecadação, a generosa cidadã escreveu àqueles que contribuíram com a causa:
+After three days, the campaign was closed. After reporting by the
+collection, the generous citizen wrote to those who contributed to the cause:
 
-Gratidão a Deus, em primeiro lugar, e a todos que nos apoiaram, para que
-pudéssemos devolver ao senhor Reinaldo a esperança e a alegria de poder voltar
-a trabalhar com dignidade e muita batalha, como sempre o fez.
+Gratitude to God, first of all, and to all who have supported us, that
+we could return to Lord Reinaldo the hope and joy of being able to return to the
+to work with dignity and a lot of battle, as he always did.
 
                                    *   *   *
 
-Atribuído ao filósofo Theodor Lipps, o conceito de empatia define-se pela
-capacidade psicológica de sentir o que o outro sente, caso se vivenciasse a
-mesma situação por ele enfrentada.
+Attributed to the philosopher Theodor Lipps, the concept of empathy is defined by the
+psychological capacity to feel what the other feels, if one experienced the
+same situation he faced.
 
-Jesus, o Mestre por excelência, recomendou-nos a empatia no trato com nossos
-irmãos: Ama a Deus sobre todas as coisas e ao próximo como a ti mesmo.
+Jesus, the Master par excellence, recommended us empathy in dealing with our
+brothers: Love God about all things and others as himself.
 
-Trata-se, primeiramente, de sermos bons ouvintes. Ouvindo, não fazemos
-julgamentos precipitados sobre as ações do outro. Antes, buscamos compreender
-suas razões.
+It's about first being good listeners. Listening, we don't do
+hasty judgments about the actions of the other. Before, we seek to understand
+their reasons.
 
-Ainda, e seguindo as lições do Cristo, termos olhos de ver: enxergar o próximo
-como alguém único, com uma história única, que ora acerta, ora erra em suas
-escolhas.
+Still, and following the lessons of Christ, have eyes to see: see the next
+as a one-time someone, with a unique story, who sometimes hits, sometimes errs in his
+Choices.
 
-Reconhecer, portanto, que todos necessitamos de perdão, de sermos perdoados, o
-que nos exige humildade.
+Recognize, therefore, that we all need forgiveness, to be forgiven, the
+that requires us humility.
 
-Finalmente, exercitar o amor. Perceber no outro a assinatura Divina, o
-Semblante de Deus.
+Finally, exercise love. To perceive in the other the divine signature, the
+God's countenance.
 
-Perceber que somos todos frutos das mesmas mãos e, dessa forma, irmãos; que
-somos uma família divina cujo destino é a verdade, a felicidade, o bem e a paz.
+Realize that we are all fruits of the same hands and thus brothers; That
+we are a divine family whose destiny is truth, happiness, good and peace.
 
-Pensemos nisso!
+Let's think about it!
 
 ## Source
 Redação do Momento Espírita, com base em

@@ -13,98 +13,98 @@ topics:
 - prayer
 ---
 
-A felicidade não é deste mundo constitui uma citação bastante conhecida.
+Happiness is not from this world is a well-known quote.
 
-Ela corresponde a uma realidade, pois raramente no mundo se conjuga tudo o que
-se acha necessário para alguém ser perfeitamente feliz.
+It corresponds to a reality, for rarely in the world all that
+if you think it's necessary for someone to be perfectly happy.
 
-Saúde, mocidade, beleza e dinheiro entram nessa equação.
+Health, youth, beauty and money enter this equation.
 
-Contudo, mesmo na presença de tais fatores objetivos, muitas vezes a criatura
-padece de tormentos íntimos.
+However, even in the presence of such objective factors, the creature often
+suffers from intimate torments.
 
-Veem-se, com frequência, seres aparentemente privilegiados a reclamar da vida.
+You often see being apparently privileged to complain about life.
 
-Consultórios de psicólogos e psiquiatras também são frequentados por aqueles a
-quem se imaginaria felizes e saciados.
+Psychologists and psychiatrists are also frequented by those who
+who would have thought he was happy and sated.
 
-Mas a ampla maioria dos seres humanos debate-se com inúmeros problemas.
+But the vast majority of human beings struggle with numerous problems.
 
-Nos mais variados planos da existência, os dramas se sucedem.
+In the most varied planes of existence, dramas follow.
 
-Dificuldades financeiras, de relacionamento ou de saúde clamam por atenção.
+Financial, relationship or health difficulties call for attention.
 
-Perante as naturais decepções do mundo, por vezes as criaturas se rebelam.
+Faced with the natural disappointments of the world, sometimes creatures rebel.
 
-Quando alcançadas por experiências dilacerantes, imaginam-se abandonadas por
-Deus.
+When achieved by tearing experiences, they imagine themselves abandoned by
+god.
 
-Esse modo de sentir revela uma compreensão muito restrita da vida.
+This way of feeling reveals a very narrow understanding of life.
 
-Ele até seria razoável, caso tudo se esgotasse em uma única existência
+He would even be reasonable if it all exhausted itself in a single existence
 material.
 
-Perante a vida que segue pujante além do túmulo, os problemas materiais
-diminuem de importância.
+Before the life that follows pujante beyond the tomb, the material problems
+decrease in importance.
 
-Em face desse amplo contexto, dificuldades não são tragédias, mas simples
-desafios.
+In the face of this broad context, difficulties are not tragedies, but simple
+Challenges.
 
-Em cada homem reside um anjo em perspectiva.
+In every man resides a prospective angel.
 
-Ele é brindado com as experiências necessárias para atingir o seu augusto
-potencial.
+He is toasted with the experiences necessary to achieve his august
+Potential.
 
-As dores, por maiores que sejam, sempre passam.
+The pain, no greater they may be, always pass.
 
-Mesmo uma enfermidade incurável tem o seu término.
+Even an incurable illness has its termination.
 
-Após a morte do corpo físico, o Espírito prossegue sua jornada.
+After the death of the physical body, the Spirit continues his journey.
 
-Se conseguiu passar com dignidade pelo teste, ressurge mais forte e virtuoso.
+If he managed to pass with dignity through the test, he resurfaces stronger and virtuous.
 
-Caso tenha se permitido reclamações e revoltas, terá de refazer a lição.
+If complaints and riots have been allowed, you will have to redo the lesson.
 
-Convém ter isso em mente ao enfrentar as crises da vida.
+It is appropriate to keep that in mind when facing the crises of life.
 
-Deus é um Pai amoroso e bom.
+God is a loving and good Father.
 
-Ele não se rejubila em torturar Suas criaturas.
+He does not rejoice in torturing His creatures.
 
-As dores do mundo têm finalidades transcendentes.
+The pains of the world have transcendent purposes.
 
-A maioria é providenciada pelos próprios homens, com suas paixões e equívocos.
+Most are provided by men themselves, with their passions and misconceptions.
 
-Todas elas constituem desafios.
+They all pose challenges.
 
-Ninguém deve acalentar o masoquismo e se rejubilar em sofrer.
+No one should cherish masochism and rejoice in suffering.
 
-É preciso lutar para sair de todas as dificuldades e recuperar o bem-estar.
+You have to fight to get out of all the difficulties and regain well-being.
 
-Mas em face de situações inelutáveis, quando nada se pode fazer, é necessário
-pensar na Bondade Divina.
+But in the face of inelutable situations, when nothing can be done, it is necessary to
+think of Divine Goodness.
 
-Ela não se revela apenas quando tudo parece estar sob um céu azul, nas mesas
-fartas e nos sorrisos radiantes.
+It doesn't reveal itself just when everything seems to be under a blue sky, on the tables
+abundant and radiant smiles.
 
-A Bondade de Deus também se manifesta no sofrimento que torna o homem mais apto
-a compreender a dor do semelhante.
+The Goodness of God also manifests itself in the suffering that makes man fitter
+to understand the pain of the similar.
 
-Ela está presente nas situações constrangedoras que minam o orgulho, a vaidade
-e a indiferença.
+It is present in the embarrassing situations that undermine pride, vanity
+and indifference.
 
-A vida na Terra é passageira e se destina ao burilamento do ser.
+Life on Earth is fleeting and is intended for the fraud of being.
 
-O viver terreno propicia resgate de equívocos do pretérito e preparação para
-etapas sublimes do existir imortal.
+Living land provides the rescue of misunderstandings of the past and preparation for
+sublime stages of immortal existence.
 
-Em um mundo material e ainda bastante inferior, os entrechoques e as decepções
-são inevitáveis.
+In a material and still quite inferior world, the shocks and disappointments
+are inevitable.
 
-Apenas uma fé viva na Bondade Divina permite que o homem preserve seu coração
-livre de amargura.
+Only a living faith in Divine Goodness allows man to preserve his heart
+free of bitterness.
 
-Pense nisso.
+Think about it.
 
 ## Source
 Redação do Momento Espírita.

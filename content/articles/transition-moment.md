@@ -17,85 +17,85 @@ topics:
 - sensitivity
 ---
 
-A Espiritualidade Superior noticia que a Terra se encontra em fase de
-transição.
+Higher Spirituality reports that the Earth is in the process of
+Transition.
 
-Em breve, ela terá alterada a sua destinação de educandário cósmico.
+Soon, she will have altered her cosmic eduction.
 
-Por ora, funciona como um mundo de provas e expiações.
+For now, it functions as a world of evidence and atonements.
 
-Nela estagiam Espíritos intelectualmente evoluídos, mas com marcantes problemas
-morais.
+In it they internintellectually evolved spirits, but with remarkable problems
+Moral.
 
-Ainda viciosos e cheios de paixões, necessitam de experiências dolorosas para
-despertar a própria sensibilidade.
+Still vicious and full of passions, they need painful experiences to
+awakening one's own sensitivity.
 
-Contudo, em breve, a Terra passará a mundo de regeneração e paz.
+However, soon, the Earth will pass the world of regeneration and peace.
 
-Há longa data essa modificação vem sendo preparada pela ordem cósmica.
+For a long time this modification has been prepared by cosmic order.
 
-Houve significativa aceleração do progresso material, tecnológico e científico.
+There was a significant acceleration of material, technological and scientific progress.
 
-Ideais de liberdade, igualdade e fraternidade se disseminaram pelo planeta.
+Ideals of freedom, equality and brotherhood spread across the planet.
 
-No plano das ideias, tudo se encontra preparado.
+In terms of ideas, everything is prepared.
 
-Resta que a conduta e o sentimento dos seres humanos se ajustem a esses
-propósitos superiores.
+It remains that the conduct and feeling of human beings fit these
+higher purposes.
 
-Que cessem os escândalos protagonizados pelo egoísmo e pelo orgulho.
+Let the scandals of selfishness and pride cease.
 
-Que terminem as guerras públicas e privadas.
+Let the public and private wars end.
 
-Que se extinga a animosidade, a difamação, a deslealdade.
+That animosity is extainted, defamation, disloyalty.
 
-É preciso que os costumes se purifiquem e aprimorem.
+Customs need to be purified and improved.
 
-Que o trabalho honesto surja como uma bênção.
+May honest work emerge as a blessing.
 
-Que a instrução seja viabilizada para todos e por todos estimada e aproveitada.
+That the instruction be made possible for everyone and everyone estimated and taken advantage of.
 
-Nesse processo de transformação, surgem variadas crises.
+In this process of transformation, various crises arise.
 
-Há quem persista no apego a velhos vícios, como a preguiça e a desonestidade.
+Some persist in attachment to old vices, such as laziness and dishonesty.
 
-Ante tal embate de valores, é necessário posicionar-se.
+In the face of such a clash of values, it is necessary to position itself.
 
-Para merecer viver em clima regenerador e pacífico impõe-se amar a paz e se
-regenerar, pelo abandono de antigas tendências.
+In order to deserve to live in a regenerating and peaceful climate, one must love peace and
+regenerate, by abandoning old trends.
 
-Cruéis, preguiçosos, desonestos e indiferentes à dor do semelhante não terão
-afinidade com esse novo contexto social.
+Cruel, lazy, dishonest and indifferent to the pain of the fellow will not have
+affinity with this new social context.
 
-Criaturas endurecidas necessitam ser trabalhadas por dores profundas, a fim de
-terem despertadas suas sensibilidades.
+Hardened creatures need to be worked out for deep pain in order to
+have awakened their sensitivities.
 
-Em um mundo mais ameno, não encontram recursos de evolução.
+In a warmer world, they find no resources of evolution.
 
-Consequentemente, seus próximos renascimentos ocorrerão em outros planetas,
-mais primitivos.
+Consequently, their next revivals will occur on other planets,
+more primitive.
 
-Justamente por isso, vive-se na Terra um momento de profundas definições.
+Precisely for this, a moment of profound definitions lives on Earth.
 
-Cada homem deve decidir o que deseja para si, em termos de roteiro de evolução.
+Every man must decide what he wants for himself in terms of a roadmap of evolution.
 
-O espetáculo da desonestidade alheia não serve de desculpa para conduta
-semelhante.
+The spectacle of other people's dishonesty serves as an excuse for conduct
+Similar.
 
-É preciso optar entre dignidade e indignidade.
+It is necessary to choose between dignity and indignity.
 
-É passado o tempo das indecisões.
+The time of indecision is passed.
 
-Impõe-se definir o próprio padrão de conduta, no contexto de um mundo em rápido
-processo de modificação.
+It is necessary to define the very standard of conduct, in the context of a rapidly
+modification process.
 
-Conforme a decisão, o destino estará traçado.
+Depending on the decision, the destination will be traced.
 
-Trata-se do livre-arbítrio a moldar o futuro, em todas as suas perspectivas.
+It is free will shaping the future in all its perspectives.
 
-Pense nisso.
+Think about it.
 
- 
+
 ## Source
 Redação do Momento Espírita.
 Em 01.10.2010.

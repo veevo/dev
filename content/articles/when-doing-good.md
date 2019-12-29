@@ -15,92 +15,92 @@ topics:
 ---
 
 
-Vivemos tempos nos quais a indiferença e a intolerância para com as pessoas,
-muitas vezes, criam situações de sérias discórdias.
+We live in times when indifference and intolerance towards people,
+often create situations of serious discord.
 
-Observamos que o respeito devido ao próximo parece estar ficando um tanto
-distante.
+We note that respect for the next seems to be getting a little
+Distant.
 
-No entanto, existem felizes exceções que, além de mostrar respeito, nos
-garantem que o amor ao próximo ainda viceja entre nós.
+However, there are happy exceptions that, in addition to showing respect, in the
+ensure that love for others still vices between us.
 
-Relata uma senhora da capital baiana que um carregador de maca, em um hospital,
-viu uma paciente de oitenta e seis anos chorando de dor.
+Reports a lady from the Bahian capital that a stretcher porter, in a hospital,
+saw an eighty-six-year-old patient crying in pain.
 
-Suas costas, cheias de feridas, necessitavam de um colchão especial.
+His back, full of wounds, needed a special mattress.
 
-Com muito carinho, ele providenciou o colchão. Enquanto o colchão era
-posicionado na cama, ele a segurou em seu colo.
+With great affection, he provided the mattress. While the mattress was
+positioned in bed, he held her in his lap.
 
-Como ela chorasse muito, ele começou a cantar baixinho uma canção. A idosa foi
-se aquietando e adormeceu antes mesmo de voltar a ser acomodada no leito.
+As she cried a lot, he began to sing a song softly. The elderly woman was
+settling down and fell asleep before it was even reaccommodated in bed.
 
-Esse maqueiro é muito conhecido pelo pessoal do hospital, pela atenção e
-carinho com que lida com os pacientes.
+This maqueiro is well known to hospital staff, for the attention and
+affection with which it deals with patients.
 
-Sua dedicação não passou despercebida. O diretor do hospital, buscando
-recompensar sua dedicação, reuniu os seus colegas e propôs que, com pequena
-contribuição de cada um, providenciassem melhorias na pequena casa desse
-servidor.
+His dedication did not go unnoticed. The director of the hospital, seeking
+reward his dedication, brought together his colleagues and proposed that, with little
+contribution of each one, to provide improvements in the small home of this
+Server.
 
-Foi com lágrimas nos olhos que o dedicado maqueiro agradeceu o que considerou
-um presente. Afinal, ele e o filho dormiam em colchões no chão.
+It was with tears in his eyes that the dedicated maqueiro thanked him for what he considered
+gift. After all, he and his son slept on mattresses on the floor.
 
                                    *   *   *
 
-Somos condutores de energias, que são impulsionadas pelos nossos sentimentos
-positivos ou negativos.
+We are energy drivers, who are driven by our feelings
+positive or negative.
 
-Cabe a cada qual escolher como aplicar esse potencial.
+It is up to each one to choose how to apply this potential.
 
-A lei de causa e efeito explica que de tudo o que plantarmos, colheremos.
+The law of cause and effect explains that of everything we plant, we will reap.
 
-Assim, se espalharmos sombras, nas sombras estaremos.
+So if we cast shadows, in the shadows we will be.
 
-Se espalharmos luz, iluminados seremos.
+If we spread light, enlightened we will be.
 
-O Universo é justo com todos. Quem escolhe o que quer plantar e colher, somos
-nós mesmos.
+The universe is fair to everyone. Who chooses what they want to plant and harvest, we are
+Ourselves.
 
-Somos senhores de nossos destinos.
+We are lords of our destinies.
 
-A bondade existe e o amor é o alimento das almas.
+Goodness exists and love is the food of souls.
 
-Necessário ser bom e amar sem distinção para colher dessas bênçãos.
+It is necessary to be good and love without distinction to reap these blessings.
 
-Somos dotados do livre-arbítrio, isto é, da liberdade de decidir, de fazer
-nossas escolhas.
+We are endowed with free will, that is, the freedom to decide, to make
+our choices.
 
-Sendo livres para decidir, cabe-nos escolher as sementes que desejamos
+Being free to decide, it is up to us to choose the seeds we want
 cultivar.
 
-Naturalmente, ao fazermos algo de útil, de bom, não devemos aguardar
-recompensa. Isso nos devem ser movimentos naturais, espontâneos.
+Of course, when we do something useful, of good, we should not wait for
+Reward. This should be natural, spontaneous movements to us.
 
-Contudo, um gesto de carinho, um diálogo, uma frase bem direcionada são
-sementes que espalhamos.
+However, a gesture of affection, a dialogue, a well-directed phrase are
+seeds we spread.
 
-Uma palavra de encorajamento, de estímulo, de esperança, pode reverdecer a alma
-que a escuta.
+A word of encouragement, encouragement, hope, can revere the soul
+that listens to her.
 
-Uma canção executada com amor, junto a um ouvido atento em momentos de dor,
-pode mudar a vida de quem a recebe.
+A song performed with love, next to an attentive ear in moments of pain,
+can change the lives of those who receive it.
 
-Como a semeadura é livre, mas a colheita é obrigatória, poderemos esperar, nos
-caminhos da vida, a colheita compatível com a semente lançada.
+As sowing is free, but harvesting is mandatory, we can wait, in the
+paths of life, the harvest compatible with the seed launched.
 
-Saibamos escolher as sementes que nos trarão colheita de paz, de alegrias e de
-realização espiritual.
+Let us know how to choose the seeds that will bring us a harvest of peace, joys and
+spiritual fulfillment.
 
-Semeemos o bem com a mesma naturalidade que respiramos o ar puro da natureza.
+Let us sow good with the same naturalness as we breathe the pure air of nature.
 
-Façamos ao outro o que gostaríamos que nos fosse feito e, com certeza,
-colheremos do bem que espalharmos, seja em favores, dádivas de atenção que nos
-sejam dirigidas.
+Let us do to the other what we would like to be done to us and, for sure,
+we will reap of the good we will spread, whether in favors, gifts of attention that we
+addressed.
 
-Ou poderemos simplesmente usufruir do ar de bênçãos que nos envolverá.
+Or we can simply enjoy the air of blessings that will involve us.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita, com base no

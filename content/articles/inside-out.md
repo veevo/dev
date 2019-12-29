@@ -9,91 +9,91 @@ topics:
 - child
 ---
 
- 
 
-É grande o número de pessoas que vive à procura de milagres para os mais
-variados males que as aflige.
 
-Dizemos que procuram milagres porque a maioria busca algo que possa ser
-ingerido, injetado, cheirado ou passado na pele e que faça prodígios.
+There is a great number of people who live looking for miracles for the most
+various evils that afflict them.
 
-E as receitas não faltam: Nabo faz bem para isto. Cenoura para aquilo. Café
-cura tal coisa. Tal vitamina previne o envelhecimento. Tal legume faz nascer
-cabelo, tal erva evita a queda. E assim por diante.
+We say they're looking for miracles because most people look for something that might be
+ingested, injected, smelled or passed on the skin and makes wonders.
 
-Estamos sempre procurando algo que resolva nossa vida. E bom seria que uma
-única cápsula fosse suficiente para todos os males que nos tiram o sossego.
+And the recipes are not lacking: Turnip is good for this. Carrot to that. Coffee
+cures such a thing. Such a vitamin prevents aging. Such vegetable gives birth
+hair, such an herb prevents the fall. And so on.
 
-No entanto, nossas buscas são sempre do exterior para o interior, quando o
-ideal seria de dentro para fora.
+We're always looking for something that solves our lives. And good would be that a
+capsule was sufficient for all the evils that take away our peace.
 
-Tentamos retardar o envelhecimento da pele com vitaminas, e esquecemos que o
-melhor remédio para esse caso, é a nossa disposição de ânimo.
+However, our searches are always from the outside to the interior, when the
+ideal would be from the inside out.
 
-O otimismo, a esperança, a alegria, o trabalho voluntário e desinteressado são
-excelentes contra os radicais livres.
+We try to slow skin aging with vitamins, and we forget that the
+best remedy for this case, is our mood for encouragement.
 
-O preconceito, o interesse pessoal, o egoísmo, o ódio, a mágoa provocam rugas
-no corpo e doenças na alma, problemas difíceis de tratar.
+Optimism, hope, joy, voluntary and disinterested work are
+excellent against free radicals.
 
-A ira, a revolta, o desejo de vingança são verdadeiros venenos para o coração.
-Podem provocar graves problemas cardíacos e até levar ao óbito.
+Prejudice, personal interest, selfishness, hatred, hurt cause wrinkles
+in the body and diseases in the soul, problems difficult to treat.
 
-A inveja, o ciúme, a maledicência, a calúnia são bombas que destroem sem deixar
-vestígios.
+Anger, revolt, desire for revenge are real poisons to the heart.
+They can cause serious heart problems and even lead to death.
 
-Eis aí alguns pontos que merecem, sim, atenção e cuidado, pois dizem respeito
-ao nosso bem-estar.
+Envy, jealousy, malevolence, slander are bombs that destroy without leaving
+Traces.
 
-Pouco ou nenhum resultado teremos ingerindo produtos, alimentos ou remédios, se
-não fizermos um tratamento de intimidade, purificando a fonte das emoções.
+Here are some points that deserve, yes, attention and care, because they concern
+to our well-being.
 
-Uma emoção desequilibrada pode causar muito mal ao nosso organismo.
+Little or no results we will have to ingest products, food or medicine, if
+we do not treat intimacy, purifying the source of emotions.
 
-Por isso é importante, se desejamos manter a saúde e o bem-estar, estabelecer
-alguns cuidados básicos que previnem uma série de males.
+An unbalanced emotion can cause our body very badly.
 
-Uma boa leitura, um bom filme, um passeio, caminhadas frequentes, uma boa noite
-de sono, brincar com crianças, rir, saltar de alegria, meditar...
+Therefore, it is important if we want to maintain health and well-being, to establish
+some basic care that preventad a number of evils.
 
-A conversa sadia com amigos, a visita a um enfermo, a uma criança internada,
-alguns minutos de atenção a uma criança órfã são excelente profilaxia para
-diversos males.
+A good read, a good movie, a walk, frequent walks, a good night
+sleep, play with children, laugh, jump with joy, meditate...
 
-Isso é fácil de comprovar. Você deve conhecer pessoas que fazem trabalhos
-voluntários por prazer. Elas são sorridentes, não aparentam a idade que têm e
-geralmente não adoecem.
+The healthy conversation with friends, the visit to an ailing, to an hospitalized child,
+a few minutes of attention to an orphaned child are excellent prophylaxis for
+various evils.
 
-Não têm tempo para falar mal da vida alheia, não guardam mágoa, não carregam
-ódio, não sentem inveja nem ciúme, e estão sempre de bem com a vida.
+That's easy to prove. You must meet people who do jobs
+volunteers for pleasure. They are smiling, do not appear how old they are and
+generally do not get sick.
 
-Essas pessoas também são diferentes no ambiente onde trabalham
-profissionalmente, pois são leves, otimistas, e sua beleza brota de dentro para
-fora.
+They don't have time to speak ill of other people's lives, they don't keep hurt, they don't carry
+hatred, they do not feel envy or jealousy, and are always good with life.
 
-Já as pessoas que só pensam em si mesmas são mal-humoradas, prevenidas, vivem
-armadas contra todos, não confiam em ninguém, e geralmente aparentam mais idade
-do que têm.
+These people are also different in the environment where they work
+professionally, for they are light, optimistic, and their beauty sprouts from within to
+Out.
 
-Por todas essas razões, vale a pena investir no seu bem-estar de forma
-eficiente e duradoura.
+People who only think of themselves are grumpy, prevented, live
+armed against everyone, do not trust anyone, and usually appear older
+of what they have.
 
-Só então os produtos, alimentos e remédios poderão causar os resultados
-esperados, pois terão como contributo uma força que vem de dentro,
-potencializando seus efeitos salutares.
+For all these reasons, it is worth investing in your well-being in a way that
+efficient and lasting.
 
-Os avanços científicos e tecnológicos são alavancas que podem fazer verdadeiros
-milagres em todas as áreas que produzem bem-estar, mas para nos ajudar com
-eficiência, dependem da nossa disposição íntima.
+Only then can products, food and medicine cause the results
+expected, because they will have as a contribution a force that comes from within,
+potentiating its salutary effects.
 
-Pense nisso e comece a se cuidar, de forma correta e eficaz.
+Scientific and technological advances are levers that can make true
+miracles in all areas that produce well-being, but to help us with
+efficiency, depend on our intimate disposition.
 
-Você pode. E só você pode, pois quando se trata de zelar pela fonte da vida que
-existe em sua intimidade, é um trabalho que ninguém poderá fazer por você.
+Think about it and start taking care of yourself, correctly and effectively.
 
-Cuide-se e cuide de sua saúde, começando sempre de dentro para fora...
+You can do it. And only you can, because when it comes to caring for the source of life that
+exists in your intimacy, it is a job that no one will be able to do for you.
 
- 
+Take care and take care of your health, always starting from the inside out...
+
+
 
 ## Source
 Redação do Momento Espírita.

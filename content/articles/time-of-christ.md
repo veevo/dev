@@ -15,77 +15,77 @@ topics:
 - mother
 ---
 
-O tempo do Cristo
+The time of Christ
 
-Para os que vivemos na Terra, nestes tempos de transição planetária, muitos têm
-sido os temores, os amedrontamentos a nos cercar.
+For those who live on Earth in these times of planetary transition, many have
+been the fears, the frighteningness to surround us.
 
-Olhando o panorama terrestre, verificamos que existem dois tempos: o tempo do
-mundo e o tempo do Cristo.
+Looking at the earth's panorama, we found that there are two times: the time of the
+world and the time of Christ.
 
-No tempo do mundo temos as notícias das pessoas capazes de promover a maldade,
-a miséria moral, a agressão.
+In the time of the world we have the news of people able to promote evil,
+moral misery, aggression.
 
-Ao mesmo tempo, registramos a existência de lidadores do bem que trabalham no
-sentido de amparar, orientar e instruir para a felicidade.
+At the same time, we record the existence of good business dealings working in the
+sense of supporting, guiding and instructing happiness.
 
-Podemos considerá-los gerentes das oficinas do amor que o Criador instalou nos
-mais variados pontos do planeta.
+We can consider them managers of the workshops of love that the Creator has installed in the
+most varied points on the planet.
 
-Esses vivem o tempo do Cristo.
+These live the time of Christ.
 
-Também observaremos uma leva grande de pessoas que alardeiam o pessimismo, a
-descrença, a autodesvalorização e a autodestruição. Tudo está ruim: o governo,
-a escola, a diplomacia entre os países, as pessoas.
+We will also observe a large wave of people who trumpet pessimism,
+disbelief, self-devaluation and self-destruction. Everything is bad: the government,
+school, diplomacy between countries, people.
 
-No entanto, veremos igualmente muitas pessoas que fomentam o bom senso, o
-respeito à vida, proclamando as ideias de que o homem é o construtor de sua
-jornada feliz ou infeliz. Ele é o promotor dos quadros do mundo.
+However, we will also see many people who foster common sense, the
+respect for life, proclaiming the ideas that man is the builder of his
+happy or unhappy journey. He's the world's chief painting promoter.
 
-Encontraremos cientistas arquitetando armas perfeitas e processos de
-destruição, bombas e mísseis inteligentes, comandados por computadores
-impecáveis.
+We will find scientists architecting perfect weapons and processes of
+destruction, bombs and smart missiles, commanded by computers
+Impeccable.
 
-Mas, os que se encontram vivendo o tempo do Cristo estão envolvidos em
-desenvolver técnicas de salvação para os seus irmãos. São os que elaboram
-vacinas abençoadas; os que criam instrumentos para inspecionar o organismo
-humano, detectando enfermidades, a fim de que possam ser tratadas com urgência.
+But those who find themselves living the time of Christ are involved in
+develop saving techniques for his brothers. They are the ones who elaborate
+blessed vaccines; those who create instruments to inspect the body
+detecting diseases so that they can be treated urgently.
 
-Outros estão imersos em pesquisas laboratoriais para a descoberta de
-medicamentos de cura de doenças ou o amenizar das dores dos enfermos.
+Others are immersed in laboratory research to discover
+medicines or to ease the pains of the sick.
 
-Os que vivem no tempo do mundo, gritam a favor de práticas abortivas, no
-intuito de destruir a vida, antes que floresça. Alguns o fazem por questões
-meramente político-econômicas, outros em nome de questões médico-sociológicas.
+Those who live in the time of the world, scream in favor of abortion practices, in the
+to destroy life before it flourishes. Some do it for reasons
+merely political-economic, others in the name of medical-sociological issues.
 
-Contudo, almas iluminadas estendem sua ação, oferecendo apoio, abrigo às
-mulheres que foram abandonadas em plena gestação. Em nome do amor, inspiram as
-futuras mães a pensar na semente de vida que lhes pulsa no ventre.
+However, enlightened souls extend their action, offering support, shelter to
+women who were abandoned in the middle of pregnancy. In the name of love, they inspire
+mothers thinking about the seed of life that pulses them in the womb.
 
-E sugerem opções variadas para que ninguém precise manchar com sangue as
-próprias mãos. Como a adoção, por exemplo.
+And they suggest varied options so that no one needs to blood-stain the
+own hands. Like adoption, for example.
 
-Encontramos, no mundo, jovens que se envolvem no alcoolismo, considerado
-inocente, ou nas drogas de graves consequências.
+We find, in the world, young people who engage in alcoholism, considered
+innocent, or in drugs of serious consequences.
 
-Tudo em nome do desconhecimento e da rebeldia. E o que conseguem é a morte
-antecipada, em função do desgaste corporal.
+All in the name of ignorance and rebellion. And what they get is death
+due to body wear.
 
-Fenecem como flores que não chegaram a aguardar a temporada de dar frutos.
+They fenecem like flowers that did not wait for the season to bear fruit.
 
-Identificamos, por outro lado, os jovens que valorizam o corpo. Que cuidam da
-alimentação, que se mantêm distantes de quaisquer excitantes.
+We identify, on the other hand, the young people who value the body. Who take care of the
+food, which remain far from any exciting.
 
-Jovens que estudam, que desejam progredir, trabalhar, servir ao país e ao
-mundo.
+Young people who study, who wish to progress, work, serve the country and
+World.
 
-Jovens que têm sonhos de grandeza moral. Jovens que fazem a diferença no mundo.
+Young people who have dreams of moral greatness. Young people who make a difference in the world.
 
-Esses são os dias que vivemos. Cabe-nos decidir se desejamos estar com os
-tempos do mundo ou com os tempos do Cristo.
+These are the days we live in. It is up to us to decide whether we want to be with the
+times of the world or with the times of Christ.
 
-Pensemos a respeito e abracemos o tempo do Cristo, para nossa própria
-felicidade.
+Let us think about it and embrace the time of Christ, for our own
+Happiness.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 9,

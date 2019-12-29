@@ -18,69 +18,69 @@ topics:
 - child
 ---
 
-Quando ouvimos falar das derradeiras palavras proferidas por Jesus, no topo da
-montanha, antes de deixar o corpo chumbado à cruz, pedindo a Deus que perdoasse
-os Seus agressores, ficamos comovidos.
+When we hear of the last words spoken by Jesus, at the top of the
+mountain, before leaving the body chubby to the cross, asking God to forgive
+their aggressors, we are moved.
 
-Somente um homem singular seria capaz de um gesto grandioso como esse.
+Only a singular man would be capable of a grand gesture like that.
 
-Por certo, nos dias atuais, Jesus continua rogando ao Pai que perdoe aqueles
-que não sabem o que fazem.
+Certainly, these days, Jesus continues to pray to the Father to forgive those
+who don't know what they're doing.
 
-Ainda hoje, mais de vinte séculos transcorridos do drama do Calvário, enormes
-grupos de almas humanas seguem agindo e reagindo na vida, sem saber, ao certo,
-o que fazem e porque fazem.
+Even today, more than twenty centuries elapsed from the drama of Calvary, enormous
+groups of human souls continue to act and react in life, without knowing, for sure,
+what they do and why they do it.
 
-Aqueles que estão enriquecendo materialmente, graças à exploração das drogas,
-da sexolatria, da criminalidade, em cujo cenário de horror tombam crianças,
-jovens, homens e mulheres, será que sabem o que fazem?
+Those who are enriching materially, thanks to the exploitation of drugs,
+of the sexlatria, of crime, in whose horror scenario children fall,
+young people, men and women, do you know what they do?
 
-Será que imaginam que deverão reestruturar e reerguer do caos moral, dos vícios
-perniciosos ou da loucura todos esses que hoje em dia se submetem como
-verdadeiros zumbis inconscientes?
+Do they imagine that they should restructure and rebuild moral chaos, vices
+pernicious or madness all these who nowadays submit as
+true unconscious zombies?
 
-Ao pensarmos nesses que se glorificam no mundo, recheando suas contas bancárias
-com o dinheiro desviado do leite destinado à infância pobre, da saúde do povo
-necessitado, da moradia dos que vivem ao relento, do remédio das massas
-enfermas, da escola de tantos analfabetos, do transporte dos que se demoram a
-pé, será que se dão conta do que fazem?
+As we think of those who glorify themselves in the world, filling their bank accounts
+with money diverted from milk destined for poor childhood, the health of the people
+needy, the housing of those who live to the breath, the remedy of the masses
+the school of so many illiterate, of the transport of those who take time to
+foot, do you realize what you do?
 
-Será que sonham, sequer, com o tempo de devolver, moeda por moeda, ceitil por
-ceitil, no dizer do Cristo, aquilo que usurparam, cínica e friamente, nos dias
-do seu transitório poder?
+Do they even dream of the time to return, coin by coin, ceitil by
+ceitil, in the saying of Christ, what they usurped, cynically and coldly, in the days
+of their transient power?
 
-Se considerarmos esses que, intelectualmente bem dotados, se utilizam do nome
-de Deus e dos ensinos de Jesus Cristo a fim de submeter consciências, de
-exercer domínio sobre os que pensam pouco, conseguindo criar terrível exército
-de fanáticos, capazes de quaisquer violências e barbarismos, em nome Daquele
-que ensinou e viveu o amor, o perdão e a paz, será que sabem o preço de sua
-conduta?
+If we consider those who, intellectually well-endowed, use the name
+god and the teachings of Jesus Christ in order to submit consciences, of
+exercise dominion over those who think little, managing to create terrible army
+of fanatics, capable of any violence and barbarism, in the name of That
+who taught and lived love, forgiveness and peace, do they know the price of their
+Conduct?
 
-Será que supõem que terão necessidade de reconstruir a verdadeira confiança em
-Deus e no Cristo nessas almas que, desavisadas, a perderam?
+Do they assume that they will need to rebuild true trust in
+God and Christ in these souls who, unwarned, have lost it?
 
-Será que cogitam de um reencontro com essas pessoas, após a morte do corpo?
+Do they consider a reunion with these people after the death of the body?
 
-Não, não imaginam, é bem certo. Se tivessem a mínima percepção da gravidade de
-suas práticas, não o fariam...
+No, you don't think so, it's pretty sure. If they had the slightest perception of the severity of
+their practices wouldn't do it...
 
-Como vemos, o eco da voz do Celeste Guia, nascida no alto do Gólgota, encontra
-sentido ante os ouvidos do Pai Celeste, porque muitos, na ânsia de conquistar
-vitórias materiais definitivas num mundo transitório, ferem, exploram,
-amedrontam, usurpam, corrompem, mentem, desnaturam e sorriem, dando-se por
-triunfantes, exatamente porque não sabem o que fazem.
+As we see, the echo of the voice of the Heavenly Guide, born at the top of Gólgota, finds
+before the ears of the Heavenly Father, for many, in the eagerness to conquer
+definitive material victories in a transitional world, hurt, exploit,
+fear, usurp, corrupt, lie, denature and smile, giving themselves by
+triumphant, precisely because they don't know what they do.
 
-Jesus, assim, é o grande amor, pouco amado, que, no momento de profunda dor
-moral, fisicamente abatido e humilhado por aqueles aos quais veio amar, ainda
-suplicou ao Pai o necessário perdão para todos eles.
+Jesus thus is the great love, little loved, which, in the moment of deep pain
+moral, physically slaughtered and humiliated by those whom he came to love, still
+pleaded with the Father for the necessary forgiveness for all of them.
 
                                    *   *   *
 
-Jesus, ao rogar a Deus o perdão para Seus agressores, não pede uma absolvição
-injusta, mas uma nova chance de repararem seus erros.
+Jesus, as he gnawes god forgiveness for His aggressors, does not ask for an acquittal
+unfair, but a new chance to repair their mistakes.
 
-Se assim não fosse, Ele não teria afirmado, em outro momento, que cada um
-receberia conforme as suas obras.
+If it were not, He would not have stated, at another time, that each
+would receive according to his works.
 
 ## Source
 Redação do Momento Espírita , com base no

@@ -16,76 +16,76 @@ topics:
 - prayer
 ---
 
-Um tema muito debatido nos dias atuais, é a violência.
+One theme very debated these days is violence.
 
-Os meios de comunicação trazem, diariamente, reportagens, artigos, entrevistas,
-abordando o tema. Isso faz com que nos preocupemos e pensemos numa possível
-solução para o problema.
+The media bring, daily, reports, articles, interviews,
+addressing the theme. That makes us worry and think of a possible
+solution to the problem.
 
-Mas, afinal de contas, quem promove tanta violência em nosso planeta?
+But, after all, who promotes so much violence on our planet?
 
-Se alguém perguntasse se nós somos violentos, muitos responderíamos, sem mais
-delongas, que não.
+If anyone asked if we were violent, many would answer, without further
+long, that's not.
 
-Todavia, a violência não se resume apenas na crueldade das guerras, na
-brutalidade dos crimes contra os semelhantes. Ela também está nos mínimos
-acontecimentos do cotidiano.
+However, violence is not just about the cruelty of wars, in the
+brutality of crimes against the like. She's also in the minimums
+events of everyday life.
 
-Se observarmos atentamente os fatos corriqueiros do dia a dia, perceberemos
-outras tantas facetas da violência que, até então, não havíamos detectado.
+If we look closely at the everyday facts, we will notice
+so many other facets of violence that until then we had not detected.
 
-No falar, no andar, nos pequenos gestos, o nosso corpo pode deixar à vista a
-violência que trazemos na intimidade.
+In speaking, on the floor, in the small gestures, our body can leave in sight the
+violence we bring in intimacy.
 
-A indiferença, o desleixo, a intolerância, a mentira, a impaciência são formas
-de violência que atingem os que vivem ao nosso derredor.
+Indifference, slouch, intolerance, lying, impatience are forms
+violence that affects those who live to our derredor.
 
-A indiferença com relação aos acontecimentos que nos dizem respeito, quer seja
-no lar, quer seja na sociedade que nos cerca, pode ser causa de violência que,
-embora não esteja evidente, dará ensejo a que ela se manifeste mais tarde.
+The indifference to the events concerning us, whether it is
+in the home, whether in the society that surrounds us, can be the cause of violence that,
+although it is not evident, it will give rise to her later speaking.
 
-O desleixo com as coisas que nos pertencem, ou com as obrigações que nos
-competem, pode ser fator a gerar a violência.
+The slouch with the things that belong to us, or with the obligations that we
+may be a factor in generating violence.
 
-Um simples descaso com o veículo que conduzimos, a falta de revisão, as peças
-desgastadas favorecendo acidentes envolvendo-nos ou a terceiros, é violência.
+A simple disregard with the vehicle we drive, the lack of revision, the parts
+involving accidents involving us or to third parties, it is violence.
 
-O carro desregulado, espalhando fumaça no ar que os outros respiram, ou
-dificultando a visão dos demais motoristas, ou ainda, fazendo ruídos
-insuportáveis, são formas de violência.
+The car deregulated, spreading smoke in the air that others breathe, or
+hindering the sight of other drivers, or even making noises
+unbearable, are forms of violence.
 
-A impaciência no trânsito, em nosso ambiente de trabalho, no lar, no lazer,
-geram situações desagradáveis que favorecem a violência.
+Impatience in traffic, in our work environment, at home, leisure,
+unpleasant situations that favor violence.
 
-Como podemos perceber, a violência tem muitas faces. Algumas manifestas e
-outras ocultas.
+As we can see, violence has many faces. Some manifests and
+other hidden ones.
 
-Vale a pena meditar sobre essas questões e repensar nosso conceito sobre o
-assunto. Observemo-nos e pensemos se não temos sido fomentadores da violência
-que tanto abominamos, sem nos darmos conta disso.
+It is worth meditating on these issues and rethinking our concept about the
+Subject. Let's watch and think if we haven't been fosterers of violence
+that we abhor so much, without realizing it.
 
-Se desejamos, sinceramente, construir um mundo pacificado, não basta apenas não
-praticar a violência. É preciso que alimentemos a paz onde quer que estejamos.
+If we sincerely want to build a pacified world, it is not enough just not to
+practice violence. We need to feed peace wherever we are.
 
-Porque, sendo o mal sempre audacioso, onde não há a serenidade, a paz, ele ali
-se instala.
+For, being evil always audacious, where there is no serenity, peace, it there
+settles in.
 
-Portanto, sejamos nós a disseminar a paz ao nosso derredor, evitando a ação
-nefasta da violência, seja em que nível for.
+Therefore, let us spread peace to our meltdown, avoiding the action
+violence, whatever level it is.
 
-Agindo assim, estaremos contribuindo, efetivamente, para a construção de um
-mundo sem violência.
+Acting like this, we will be effectively contributing to the construction of a
+world without violence.
 
                                    *   *   *
 
-A flor, que rescende perfumes, identifica-se com o ar, como a agradecer a
-concessão da vida.
+The flower, which scents, identifies with the air, as to thank the
+granting of life.
 
-O homem, que conduz a paz como se fora uma lâmpada acesa sobre o coração,
-espalha tranquilidade onde quer que se encontre, e se identifica com o Senhor
-da Vida.
+The man, who leads peace as if a lamp lit over his heart,
+spreads tranquility wherever he is, and identifies himself with the Lord
+of Life.
 
- 
+
 
 ## Source
 Redação do Momento Espírita.

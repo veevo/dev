@@ -14,87 +14,87 @@ topics:
 - child
 ---
 
-Os preparativos para a grande festa estão sendo providenciados há meses.
+Preparations for the big party have been arranged for months.
 
-As escolas de samba preparam, ao longo do ano, as fantasias com que os
-integrantes irão desfilar nas largas avenidas, em meio às arquibancadas
-abarrotadas de espectadores.
+The samba schools prepare, throughout the year, the fantasies with which the
+members will parade on the wide avenues, amid the stands
+crowded with spectators.
 
-Os foliões surgem de diversos pontos do planeta, trazendo na bagagem um sonho
-em comum: “cair na folia”.
+Revelers emerge from various parts of the planet, bringing in their luggage a dream
+in common: "fall on the revelry".
 
-Pessoas respeitáveis, cidadãos dignos, pessoas famosas, se permitem “sair do
-sério”, nesses dias de carnaval.
+Respectable people, worthy citizens, famous people, allow themselves to "get out of the
+serious", in these carnival days.
 
-Trabalhadores anônimos, que andam as voltas com dificuldades financeiras o ano
-todo, gastam o que não têm para sentir o prazer efêmero de curtir dias de
-completa insanidade.
+Anonymous workers, who walk around with financial difficulties the year
+all, spend what they don't have to feel the ephemeral pleasure of enjoying days of
+complete insanity.
 
-Malfeitores comuns se aproveitam da confusão para realizar crimes nefastos,
-confundidos com a massa humana que pula freneticamente.
+Common evildoers take advantage of confusion to carry out nefarious crimes,
+confused with the human mass that leaps frantically.
 
-Jovens e adultos se deixam cair nas armadilhas viscosas das drogas alucinantes.
+Young people and adults fall into the viscous traps of mind-blowing drugs.
 
-Esse é o lado da festa que podemos observar deste lado da vida. Mas há outro
-lado dessa festa tão disputada: o lado espiritual.
+That's the side of the party we can observe on this side of life. But there's another
+side of this long-fought feast: the spiritual side.
 
-Narram os Espíritos superiores que a realidade do carnaval, observada do além,
-é muito diferente e lamentavelmente mais triste. Multidões de Espíritos
-infelizes também invadem as avenidas num triste espetáculo de grandes
-proporções. Malfeitores das trevas se vinculam aos foliões pelos fios
-invisíveis do pensamento, em razão das preferências que trazem no mundo íntimo.
+They narrate the superior Spirits that the reality of carnival, observed from beyond,
+it is very different and woefully sadder. Crowds of Spirits
+unhappy also invade the avenues in a sad spectacle of great
+Proportions. Dark evildoers bind to revelers by the threads
+invisible of thought, because of the preferences they bring in the intimate world.
 
-A sintonia, no Universo, como a gravitação, é lei da vida. Vive-se no lugar e
-com quem se deseja psiquicamente. Há um intercâmbio vibratório em todos e em
-tudo. E essa sintonia se dá pelos desejos e tendências acalentados na
-intimidade do ser e não de acordo com a embalagem exterior.
+Harmony in the universe, like gravitation, is the law of life. You live in place and
+with whom one wishes psychically. There is a vibratory exchange in all and in
+All. And this harmony is given by the desires and trends cherished in the
+intimacy of being and not according to the outer packaging.
 
-E é graças a essa lei de afinidade que os espíritos das trevas se vinculam aos
-foliões descuidados, induzindo-os a orgias deprimentes e atitudes grotescas de
-lamentáveis conseqüências.
+And it is thanks to this law of affinity that the spirits of darkness bind themselves to
+careless revellers, inducing them to depressing and grotesque attitudes of
+regrettable consequences.
 
-Espíritos infelizes se aproveitam da onda de loucura que toma conta das mentes,
-para concretizar vinganças cruéis planejadas há muito tempo.
+Unhappy spirits take advantage of the wave of madness that takes over minds,
+to carry out cruel vendettas planned long ago.
 
-Tramas macabras são arquitetadas no além túmulo e levadas a efeito nesses dias
-em que momo reina soberano sobre as criaturas que se permitem cair na folia.
+Macabre plots are architected in the beyond tomb and carried out in these days
+in which momo reigns sovereign over the creatures that allow themselves to fall into the revelry.
 
-Nem mesmo as crianças são poupadas ao triste espetáculo, quando esses foliões
-das sombras surgem para festejar momo.
+Not even children are spared the sad spectacle when these revelers
+of the shadows arise to celebrate momo.
 
-Quantos crimes acontecem nesses dias...quantos acidentes, quanta loucura...
+How many crimes happen these days... how many accidents, how much madness...
 
-Enquanto nossos olhos percebem o brilho dos refletores e das lantejoulas nas
-avenidas iluminadas, a visão dos espíritos contempla o ambiente espiritual
-envolto em densas e escuras nuvens criadas pelas vibrações de baixo teor.
+While our eyes perceive the brightness of reflectors and sequins in the
+illuminated avenues, the vision of spirits contemplates the spiritual environment
+wrapped in dense and dark clouds created by low-content vibrations.
 
-E as conseqüências desse grotesco espetáculo se fazem sentir por longo prazo.
-Nos abortos realizados alguns meses depois, fruto de envolvimentos levianos,
-nas separações de casais que já não se suportam mais depois das sensações
-vividas sob o calor da festa, no desespero de muitos, depois que cai a
-máscara...
+And the consequences of this grotesque spectacle are felt for the long term.
+In abortions performed a few months later, the result of frivolous involvements,
+in the separates of couples who no longer support each other after the sensations
+lived under the warmth of the feast, in the despair of many, after the
+Mask...
 
-Por todas essas razões vale a pena pensar se tudo isso é válido. Se vale a pena
-pagar o alto preço exigido por alguns dias de loucura.
+For all these reasons it is worth wondering if all this is valid. If it's worth it
+pay the high price required for a few days of madness.
 
-Os noticiários estarão divulgando, durante e após o carnaval, a triste
-estatística de horrores, e esperamos que você não faça parte dela.
+The news will be spreading, during and after carnival, the sad
+statistics of horrors, and we hope you're not part of it.
 
-### Você sabia?
+### Did you know?
 
-Você sabia que muitas das fantasias de expressões grotescas são inspiradas
-pelos espíritos que vivem em regiões inferiores do além?
+Did you know that many of the fantasies of grotesque expressions are inspired
+by the spirits living in lower regions of the beyond?
 
-É mais comum do que se pensa, que os homens visitem esses sítios de desespero e
-loucura durante o sono do corpo físico, através do que chamamos sonho.
+It is more common than thought, that men visit these places of despair and
+madness during physical body sleep, through what we call dream.
 
-Enquanto o corpo repousa o espírito fica semiliberto e faz suas incursões no
-mundo espiritual, buscando sempre os seres com os quais se afina pelas
-vibrações que emite.
+While the body rests the spirit becomes semi-liberated and makes its incursions into the
+world, always seeking the beings with whom it is set up by the
+vibrations it emits.
 
-Assim, é importante que busquemos sintonizar com as esferas mais altas, onde
-vivem espíritos benfeitores que têm por objetivo nos ajudar a vencer a difícil
-jornada no corpo físico.
+Thus, it is important that we seek to tune in with the higher spheres, where
+benefactors living spirits that aim to help us overcome the difficult
+journey in the physical body.
 
 ## Source
 Equipe de redação do Momento Espírita, baseado nos capítulos 6 e 23 do livro

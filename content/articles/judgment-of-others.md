@@ -9,78 +9,78 @@ topics:
 ---
  
 
-Famosos são os julgamentos da História. O de Nuremberg, que o mundo todo
-acompanhou, opinando pela punição dos que, barbaramente, durante a Segunda
-Guerra Mundial, haviam torturado e matado seres humanos.
+Famous are the judgments of history. The one from Nuremberg, which the whole world
+accompanied, opining for the punishment of those who, savagely, during the Second
+World War II, they had tortured and killed human beings.
 
-O de Jesus, em que se verifica a injustiça gritando alto e superando o bom
-senso da justiça e da verdade.
+That of Jesus, in which injustice is verified by shouting loudly and overcoming the good
+sense of justice and truth.
 
-Julgamentos de pessoas famosas que cometeram atos criminosos ou desabonadores.
+Trials of famous people who have committed criminal acts or landslides.
 
-Julgamentos de criminosos que, de alguma forma, envolveram pessoas famosas,
-como o caso do raptor do filho de Lindenberg.
+Trials of criminals that somehow involved famous people,
+as the case of lindenberg's son's kidnapper.
 
-Em tais processos, sempre a opinião pública se inflama e, de alguma forma,
-influencia os próprios jurados, de maneira a que esses condenem ou absolvam.
+In such processes, public opinion always ignites and, in some way,
+influences the jurors themselves, so that they condemn or absolve.
 
-Desde as primeiras idades, quando a chama tênue do pensamento de justiça
-acendeu no homem, ele começou a julgar os seus irmãos.
+From the early ages, when the tenuous flame of thought of justice
+lit up on the man, he began to judge his brothers.
 
-Muitas vezes, o sentimento de justiça ficou empanado pelas paixões e interesses
-mesquinhos, levando o homem a cometer erros, punindo seu semelhante com o
-cerceamento da liberdade, o confisco de bens e a morte.
+Often, the feeling of justice was empanated by passions and interests
+petty, leading man to make mistakes, punishing his fellow with the
+the confiscation of property and death.
 
-Nos dias atuais, prosseguimos a julgar o semelhante com todo rigor, sem
-estabelecer critérios e princípios básicos.
+Nowadays, we continue to judge the fellow with all rigor, without
+establish basic criteria and principles.
 
-Afoitos, opinamos e damos a nossa sentença tão logo a imprensa torne pública a
-conduta dessa ou daquela criatura, embora desconhecendo detalhes e razões.
+Afoitos, we opine and give our sentence as soon as the press makes public the
+conduct of this or that creature, though unaware of details and reasons.
 
-E não tememos aumentar um pouco a intensidade da falta cometida, mesmo para
-justificar a impiedade com que julgamos e a sentença que proferimos.
+And we fear not increasing the intensity of the misconduct, even for
+justify the wickedness with which we judge and the judgment we have delivered.
 
-Por vezes, a inveja por não ter conseguido alcançar a posição social, o cargo
-ou a função do julgado, nos incita ainda mais ao julgamento arbitrário.
+Sometimes envy for failing to achieve the social position, the position
+or the function of the trial, further encourages us to arbitrary judgment.
 
-E, mesmo assim, prosseguimos a nos afirmar cristãos. Seguidores de Jesus que
-ensinou:
+And yet we continue to assert ourselves Christians. Followers of Jesus who
+Taught:
 
-Não julgueis para não serdes julgados, porquanto sereis julgados conforme
-houverdes julgado os outros.
+Do not judge not to be judged, for you will be judged as
+there have been judged the others.
 
-Há necessidade de cultivarmos a indulgência e a empatia. A indulgência para
-olharmos os que erram com olhos de quem sabe que o equivocado é sempre um
-Espírito enfermo.
+There is a need to cultivate indulgence and empathy. The indulgence for
+let's look at those who make mistakes with the eyes of who knows that the mistaken is always a
+Sick spirit.
 
-Não necessita do nosso frio julgamento, mas do nosso auxílio para superar sua
-problemática.
+It does not need our cold judgment, but our assistance to overcome your
+Problem.
 
-A empatia, a fim de nos situarmos no lugar daquele que julgamos e nos
-indagarmos se fôssemos nós os julgados, como nos sentiríamos?
+Empathy in order to stand in the place of what we judge and
+ask if we were judged them, how would we feel?
 
-Fosse nosso filho o julgado, como estaria o nosso coração?
+That was our son judged him, how would our heart be?
 
-A questão do julgamento nos parece fácil, porque os que são trazidos à barra
-pública do Tribunal não passam de números. Sequer nos recordamos que são seres
-humanos.
+The question of judgment seems easy to us, because those brought to the bar
+court's numbers are just numbers. We don't even remember that they are beings
+Human.
 
-Mas são Espíritos imortais, exatamente como nós, e merecem receber justiça, não
-impiedade ou a carga das nossas frustrações.
+But they are immortal spirits, just like us, and deserve to receive justice, not
+wickedness or the burden of our frustrations.
 
                                    *   *   *
 
-A autoridade para censurar está na razão direta da moralidade daquele que
-censura.
+The authority to censor is in the direct reason of the morality of the one who
+Censorship.
 
-Aos olhos de Deus, a única autoridade legítima é a que se apoia no exemplo do
-bem.
+In God's eyes, the only legitimate authority is that based on the example of the
+Well.
 
-A base da Justiça Divina se assenta na misericórdia de nosso Pai Criador.
+The basis of Divine Justice is based on the mercy of our Creator Father.
 
-É por esse motivo que Ele nos concede a reencarnação como bendita oportunidade
-de reparação de nossas faltas, ao tempo que nos faculta crescer e produzir no
-bem.
+That is why He grants us reincarnation as a blessed opportunity
+repair of our faults, at the time it allows us to grow and produce in the
+Well.
 
 ## Source
 Redação do Momento Espírita.

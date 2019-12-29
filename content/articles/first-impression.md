@@ -7,105 +7,105 @@ topics:
 - prayer
 ---
 
-Sempre que conhecemos alguém, imaginamos coisas a seu respeito.
+Every time we meet someone, we imagine things about you.
 
-Habitualmente afirmamos que a primeira impressão é a que fica.
+We usually claim that the first impression is the one that is.
 
-Isso bem reflete a precipitação com que julgamos os outros.
+This well reflects the precipitation with which we judge others.
 
-Será que temos condição de, no primeiro momento, avaliar o caráter alheio?
+Do we have a condition that we evaluate the character of others at first?
 
-É inevitável que, ao travar contato com alguém, façamos uma análise preliminar
-de sua pessoa.
+It is inevitable that by catching contact with someone, we will do a preliminary analysis
+of his person.
 
-Mas é necessário cautela quanto a essa primeira impressão.
+But caution is needed about this first impression.
 
-Pessoas tímidas ou reservadas podem ser consideradas antipáticas ao primeiro
-olhar.
+Shy or reserved persons may be considered unsympathetic to the first
+Look.
 
-Criaturas zombeteiras ou levianas talvez pareçam apenas alegres, num contato
+Mocking or frivolous creatures may seem only cheerful in contact
 superficial.
 
-É preciso manter a mente aberta para uma eventual revisão do impacto inicial
-que alguém nos provoca.
+We need to keep an open mind for a possible review of the initial impact
+that someone provokes us.
 
-Antes de conhecer profundamente uma pessoa, devemos evitar formar opinião firme
-e irrevogável sobre seu caráter.
+Before knowing a person deeply, we must avoid forming firm opinion
+and irrevocable about his character.
 
-Às vezes experimentamos um influxo de imediata e profunda simpatia por um novo
-amigo.
+Sometimes we experience an influx of immediate and deep sympathy for a new
+Friend.
 
-Ainda assim, é conveniente conhecê-lo melhor, antes de abrir a vida e o
-coração.
+Still, it is convenient to know you better, before opening life and
+Heart.
 
-Em relação a algumas pessoas, sentimos imediata antipatia.
+As far as some people are concerned, we feel immediate dislike.
 
-Do mesmo modo, não devemos fechar a porta ao entendimento fraterno, apenas com
-base em um palpite.
+Similarly, we should not close the door to fraternal understanding, only with
+based on a hunch.
 
-É imperioso controlar o primeiro impulso, aprender a ver a essência da pessoa
-antes de rotulá-la como boa ou má.
+It is imperative to control the first impulse, to learn to see the essence of the person
+before labeling it as good or bad.
 
-Ou seja, devemos aprender a utilizar a razão em nossa convivência social.
+That is, we must learn to use reason in our social coexistence.
 
-Nem muita proximidade, nem frio de gelo, antes de conhecer melhor quem chega em
-nossa vida.
+Not much proximity, nor cold ice, before knowing better who arrives in
+our lives.
 
-Ter cautelas emocionais não significa ser mau cristão.
+Having emotional caution so doesn't mean being a bad Christian.
 
-É impossível ignorar a natureza do mundo em que vivemos, onde ainda há muita
-ignorância e violência.
+It is impossible to ignore the nature of the world in which we live, where there is still a lot of
+ignorance and violence.
 
-Muitas vezes, ao simpatizar prontamente com alguém, nos permitimos grandes
-intimidades.
+Often, by readily sympathizing with someone, we allow ourselves to great
+Intimacies.
 
-Recebemos o recém-conhecido em nossa casa, contamos nossos segredos sem
-qualquer cautela.
+We received the newly known in our house, told our secrets without
+any caution.
 
-Mas depois nos sentimos no direito de afirmar que o novo amigo nos decepcionou,
-que não era como aparentava ser.
+But then we felt entitled to claim that the new friend let us down,
+that it wasn't as it appeared to be.
 
-Ocorre que o outro é como é, não como achamos que ele deve ser.
+It turns out that the other is as it is, not as we think it should be.
 
-Ninguém tem obrigação de atender nossas expectativas.
+No one has an obligation to meet our expectations.
 
-As expectativas são nossas. Somos nós que as criamos, em nossa ausência de
-discernimento.
+The expectations are ours. We are the ones who created them, in our absence of
+Discernment.
 
-Quando dizemos que alguém nos decepcionou, devemos pensar que a
-responsabilidade pela decepção é nossa.
+When we say that someone let us down, we should think that the
+responsibility for the disappointment is ours.
 
-Nós é que criamos uma falsa imagem. O outro nada tem a ver com nossa ilusão.
+We're the ones who created a false image. The other has nothing to do with our illusion.
 
-Todos somos falíveis, pois somos humanos.
+We're all fallible, because we're human.
 
-É importante que eduquemos nossas emoções, para não esperar dos outros mais do
-que eles podem dar.
+It is important that we educate our emotions, not to expect from others more than
+that they can give.
 
-Torna-se necessário conhecer bem o próximo antes de qualificá-lo dessa ou
-daquela forma.
+It is necessary to know the next one well before qualifying it from this or
+like that.
 
-Quando o percebermos tal qual é, com seus defeitos e virtudes, será mais fácil
-identificar o modo correto de conviver com ele.
+When we perceive it as it is, with its faults and virtues, it will be easier
+identify the correct way to live with it.
 
-Com critério e discernimento, descobriremos as pessoas com as quais temos real
-afinidade.
+With discretion and discernment, we will discover the people with whom we have real
+Affinity.
 
-Cientes de com quem nos relacionamos, podemos querer bem a todos, sem
-preconceitos ou expectativas irreais.
+Aware of who we relate to, we may want everyone well, without
+prejudices or unrealistic expectations.
 
-Seremos mais úteis ao próximo, quanto mais o compreendermos em sua essência.
+We will be more useful to others, the more we understand it in essence.
 
-Perceber as dificuldades do semelhante, e mesmo assim querer-lhe bem, é sinal
-de maturidade emocional e espiritual.
+Realizing the difficulties of the fellow, and yet wanting him well, is a sign
+of emotional and spiritual maturity.
 
-Cuidemos, pois, com a primeira impressão que o outro nos causa.
+Let us therefore take care of the first impression that the other causes us.
 
-Devemos educar nossas emoções para não sermos governados por impulsos.
+We must educate our emotions so that we are not governed by impulses.
 
-A razão iluminada pelo amor é que deve conduzir nossos atos.
+The reason enlightened by love is that it must conduct our acts.
 
-Pensemos nisso.
+Let's think about it.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 22,

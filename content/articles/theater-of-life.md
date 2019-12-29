@@ -12,80 +12,80 @@ topics:
 ---
 
 
-A vida na Terra pode ser comparada a um imenso teatro, e as pessoas, nas suas
-diferentes vivências, grandes atores.
+Life on Earth can be compared to an immense theater, and people, in their
+different experiences, great actors.
 
-Neste palco colorido e cheio de emoções, ora esbarramos em personagens muito
-bonitas e cheias de charme; ora nos deparamos com cabeças coroadas a esbanjar
-seu orgulho.
+On this colorful stage and full of emotions, sometimes we bump into very
+beautiful and full of charm; sometimes we come across heads crowned to squander
+his pride.
 
-Ora com o sábio observador, com o tolo indiferente e até mesmo, com o feio a se
-esgueirar; ora nos vemos à frente de palhaços brincalhões e de figuras
-carismáticas a se apresentarem como lhes convêm.
+Now with the wise observer, with the fool indifferent and even, with the ugly to
+sneaking; now we see ourselves in front of playful clowns and figures
+charismatic to present themselves as they may fit.
 
-No final da peça que vivenciamos, acabamos percebendo que todos partilhamos os
-mesmos vestuários.
+At the end of the play we experienced, we end up realizing that we all share the
+same garments.
 
-Quando os aplausos cessam, tanto uns como outros, dividimos o mesmo camarim.
+When the applause ceases, both one and the other, we share the same dressing room.
 
-Somos todos os verdadeiros atores dos dramas representados no grande palco.
+We are all the real actors of the dramas represented on the big stage.
 
-O teatro da vida não conta com muito tempo de ensaio para a sua apresentação.
+The theater of life does not have much rehearsal time for its presentation.
 
-Cada qual vem com seu papel previamente planejado, podendo facilitar ou
-complicar durante a representação.
+Each of which comes with its previously planned role, and can facilitate or
+complicate during the representation.
 
-Há atores que, tendo recebido simples papéis, acabam se dedicando tanto que
-roubam a cena, deixando marcas que servem de exemplo para os demais.
+There are actors who, having received simple roles, end up dedicating themselves so much that
+steal the scene, leaving marks that serve as an example for others.
 
-Outros pedem grandes performances, mas o desânimo e a preguiça os fazem
-desmerecer o posto almejado, tendo que esperar por nova programação.
+Others ask for great performances, but discouragement and laziness make them
+deserving the desired post, having to wait for new programming.
 
                                    *   *   *
 
-Assim acontece com cada um de nós, seres humanos, neste mundo.
+So it happens to each of us human beings in this world.
 
-Nosso palco é a Terra, a peça em que atuamos, a presente reencarnação, nossos
-companheiros de palco, os nossos familiares.
+Our stage is the Earth, the play in which we act, the present reincarnation, our
+stage mates, our family members.
 
-Se dentro da mesma cena os atores não apresentarem bom desempenho com relação à
-amizade, ao respeito e à participação positiva de todos, a cena se esfumaça, e
-o sentido real do ato deixa de existir.
+If within the same scene the actors do not perform well in relation to the
+friendship, respect and positive participation of all, the scene smoky, and
+the real sense of the act ceases to exist.
 
-Nossa plateia é a Humanidade, com suas preferências, seus padrões e seus
+Our audience is humanity, with its preferences, its standards and its
 preconceitos.
 
-Se não nos revestirmos de respeito às diferenças, de carinhosa atenção aos
-demais, não teremos aceitação e êxito.
+If we do not have respect for differences, with a loving attention to
+too much, we will not have acceptance and success.
 
-Todos nos vestimos do corpo carnal e dividimos o mesmo camarim das experiências
-comuns.
+We all dress up in the carnal body and share the same dressing room as the experiences
+Common.
 
-Todos almejamos os aplausos do sucesso, mas nem todos nos esforçamos o
-suficiente para merecê-los.
+We all crave the applause of success, but not all of us strive for the
+enough to earn them.
 
-Da mesma forma, perdemos oportunidades e ficamos à espera de novas chances para
-refazer, para recomeçar.
+Similarly, we missed opportunities and waited for new chances to
+redo, to start over.
 
-Sejamos pois, a alma sedenta de bom desempenho, que se tranquilizará após nobre
-atuação, sem ficar a exigir os principais papéis.
+Let us be therefore the thirsty soul of good performance, which will be reassured after noble
+without requiring the main roles.
 
-Abençoemos o cansaço de cada dia, sem escolher leito sofisticado, mas que
-possamos descansar em qualquer banco do caminho, fazendo dele um castelo de
-paz.
+Let us bless the weariness of every day, without choosing sophisticated bed, but that
+we can rest on any bench of the way, making it a castle of
+Peace.
 
-Bendito seja o suor do trabalho árduo, a dor das mãos calejadas que dão mostras
-de ocupação valiosa, que não nos permite a mente vazia.
+Blessed be the sweat of hard work, the pain of the callejada hands that show
+of valuable occupation, which does not allow us the empty mind.
 
-Mantenhamos o silêncio construtivo ao palavrório sem conteúdo.
+Let us keep constructive silence to profanity without content.
 
-Valorizemos o riso que embeleza a face sóbria de uma vida enriquecida de amor.
+We value the laughter that embellishes the sober face of a life enriched with love.
 
-Bem-vindas as muitas perguntas rumo à sabedoria, as muitas buscas de
-oportunidades, que nos farão mais esclarecidos e realizados.
+Welcome the many questions towards wisdom, the many searches for
+opportunities, which will make us more enlightened and realized.
 
-Abençoadas sejam as declarações de amor e amizade que colorirem nossos
-caminhos.
+Blessed are the declarations of love and friendship that color our
+Paths.
 
 ## Source
 Benditos os dias que pudermos tropeçar, cair e nos erguermos, abraçados à

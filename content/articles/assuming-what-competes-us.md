@@ -13,85 +13,85 @@ topics:
 - mother
 ---
 
-Embora o desânimo que toma conta de alguns corações, sempre haverá razão para
-se acreditar na melhora do nosso mundo.
+Although the discouragement that takes over some hearts, there will always be reason to
+if you believe in the improvement of our world.
 
-Basta olhar para o sol, e tudo parece clarear.
+Just look at the sun, and everything seems to lighten up.
 
-Contamos com uma nova geração cheia de conceitos e ideias, almas iluminadas que
-retornam ao mundo para ensinar como realizar o que aspiramos.
+We have a new generation full of concepts and ideas, enlightened souls that
+return to the world to teach how to accomplish what we aspire to.
 
-Vejamos o exemplo do menino de oito anos que, preocupado com tanta gente
-passando fome, montou um centro de doação de alimentos, em sua cidade, na
-Inglaterra.
+Let's look at the example of the eight-year-old boy who, worried about so many people
+starving, set up a food donation center, in his city, in the
+England.
 
-A mãe do pequeno Ronnie Hazlie disse que ele não conseguia acreditar que
-algumas pessoas não tinham o que comer.
+Little Ronnie Hazlie's mother said he couldn't believe that
+some people had nothing to eat.
 
-Recentemente, Ronnie arrecadou significativa quantidade de alimentos, que foi
-doada a organizações da região de Gosport, de Hampshire, segundo o jornal The
+Recently, Ronnie collected a significant amount of food, which was
+donated to organizations in hampshire's Gosport region, according to The
 Telegraph.
 
-A mãe de Ronnie disse que o garoto incomodou todo mundo que conhecia com
-pedidos de doação.
+Ronnie's mother said the boy bothered everyone she knew with
+donation requests.
 
-Criaram um evento no facebook para arrecadar alimentos, e foram recebidas
-contribuições do país inteiro.
+They created a facebook event to collect food, and were received
+contributions from all over the country.
 
                                    *   *   *
 
-Ideias e movimentos pró-ativos vindos de uma criança de apenas oito anos, nos
-reacende a esperança.
+Proactive ideas and movements from a child of just eight years,
+rekindles hope.
 
-Passamos, sim, por momentos de apreensão e medo.
+We've been through moments of apprehension and fear.
 
-A todo instante, nos chegam informações variadas sobre catástrofes, guerras,
-fome, violência.
+At all times, we get varied information about disasters, wars,
+hunger, violence.
 
-Esses fatos geram angústia, depressão, pensamentos negativos. E nos
-questionamos: para onde estamos caminhando?
+These facts generate anguish, depression, negative thoughts. And in the
+we question: where are we going?
 
-Reconhecemos que este é o momento de grandes mudanças no planeta.
+We recognize that this is the time for major changes on the planet.
 
-Existem energias negativas e deletérias pairando na atmosfera espiritual do
-planeta e influenciando as atitudes das pessoas.
+There are negative energies and deleterious hovering in the spiritual atmosphere of the
+planet and influencing people's attitudes.
 
-Manifestam-se exacerbados o orgulho e o egoísmo, em luta pelo ter, pelo poder,
-em detrimento das necessidades prementes da população em geral.
+Pride and selfishness are exacerbated, in a struggle for power,
+to the detriment of the pressing needs of the general population.
 
-No entanto, existem igualmente, grandes avanços nas áreas científica e
-tecnológica, proporcionando alívio para muitas dores.
+However, there are also great advances in the scientific and
+providing relief for many pains.
 
-Observamos que aos poucos vão sendo descobertas curas para certas doenças que
-eram consideradas incuráveis.
+We note that cures are gradually discovered for certain diseases that
+considered incurable.
 
-Embora de forma lenta, nosso mundo vai somando melhorias, tornando a vida
-física mais viável, mais confortável.
+Although slowly, our world adds improvements, making life
+most viable, more comfortable physics.
 
-Mas, com relação ao nosso íntimo, constatamos que ainda estamos buscando
-resultados fora de nós, esquecendo de olhar para nossa intimidade, onde se
-encontram as raízes dos tantos males que se manifestam na Terra.
+But with regard to our heart, we find that we are still seeking
+results out of us, forgetting to look at our intimacy, where if
+find the roots of the so many evils that manifest themselves on Earth.
 
-Ainda não percebemos que trazemos em nós mesmos o antídoto para o que nos
-aflige.
+We still don't realize that we bring in ourselves the antidote to what we
+Ails.
 
-O correto proceder, o trabalho no bem, o pensamento em sintonia com Deus, o
-olhar atento ao nosso redor para cooperar no atendimento às necessidades
-alheias.
+The correct work, the work in good, the thought in harmony with God, the
+look closely around us to cooperate in meeting needs
+Others.
 
-Importante lembrarmos que Jesus é o condutor de nosso planeta. Ele nos afirmou
-que nenhuma das ovelhas que o Pai lhe confiou se perderá.
+It is important to remember that Jesus is the conductor of our planet. He told us
+that none of the sheep the Father entrusted to him will be lost.
 
-Confiemos em Deus, trabalhando, orando e melhorando nosso interior.
+Let us trust in God, working, praying and improving our interior.
 
-Somos moradores desta Terra. Quando melhorarmos nossos hábitos e nos
-dispusermos a amar mais, a colaborar mais, a pensar no outro, não somente em
-nós, estaremos no caminho certo para a construção de um mundo melhor.
+We are residents of this Earth. When we improve our habits and
+to love more, to collaborate more, thinking of the other, not only in
+we will be on the right track for building a better world.
 
-Compreenderemos, enfim, que o mundo melhor depende apenas de cada um de nós. E
-algumas crianças nos recordam disso, com seus exemplos.
+Finally, we will understand that the world is better depends only on each of us. And
+some children remind us of this, with their examples.
 
- 
+
 ## Source
 Redação do Momento Espírita, com relato
 de fato da vida de Ronnie Hazlie.

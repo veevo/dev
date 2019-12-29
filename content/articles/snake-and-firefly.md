@@ -6,103 +6,103 @@ topics:
 - envy
 --- 
 
-Conta uma lenda que certa vez uma serpente começou a perseguir um vaga-lume.
+It tells a legend that once a snake began chasing a firefly.
 
-Ele fugiu rápido, com medo da feroz predadora. A serpente, contudo, nem pensou
-em desistir.
+He fled fast, afraid of the ferocious predator. The serpent, however, did not even think
+in giving up.
 
-O inseto fugiu um dia. Ela não desistiu. Dois dias. E ela continuou a
-persegui-lo.
+The insect ran away one day, she didn't give up. Two days. And she continued to
+chase him.
 
-No terceiro dia, já sem forças, o vaga-lume parou e disse à cobra:
+On the third day, already without strength, the firefly stopped and told the snake:
 
-Posso te fazer três perguntas?
+Can I ask you three questions?
 
-A serpente ficou surpresa com a ousadia de quem ela pretendia devorar.
-Entretanto, respondeu:
+The serpent was surprised by the daring of whom she intended to devour.
+However, he replied:
 
-Não costumo abrir esse precedente para ninguém. Mas já que vou te devorar
-mesmo, pode perguntar...
+I don't usually set that precedent for anyone. But since I'm going to devour you
+even, you can ask...
 
-Pertenço à tua cadeia alimentar?
+Do I belong to your food chain?
 
-Claro que não. - Esclareceu de pronto o ofídio.
+Of course i'm not. - Cleared up the ofium.
 
-Eu já te fiz algum mal? - Indagou o vaga-lume.
+Have I ever done you any harm? - You asked the firefly.
 
-Não. - Disse a serpente.
+No. - Said the snake.
 
-Então, por que você quer acabar comigo?
+Then why do you want to break up with me?
 
-A cobra deu um suspiro e esclareceu:
+The snake breathed a sigh and clarified:
 
-Porque eu não suporto te ver brilhar...
-
-                                   *   *   *
-
-A cada passo, na estrada humana, encontramos a sombra da inveja. Muito
-raramente a pessoa admite que é invejosa, embora se torture intimamente por
-causa desse mal.
-
-O invejoso se sente arder por dentro cada vez que se vê impossibilitado de ter
-o que os outros têm, de fazer o que os outros fazem ou de ser como os outros
-são.
-
-O mais lamentável é que o invejoso por não conseguir ou não desejar se esforçar
-para chegar aonde o outro chegou, tudo faz para o derrubar.
-
-É comum, assim, que o invejoso monte calúnias, divulgue mentiras diversas,
-espalhe malquerenças.
-
-Tudo como se desejasse se vingar daqueles cujo grande erro está em não pedir
-satisfação a ele quanto ao que fazer dos próprios haveres ou da própria
-vontade.
-
-A inveja é essa força perturbadora que enceguece o invejoso.
-
-Tanto que ele não se apercebe de que se lutasse como os outros lutam, se
-trabalhasse como os outros trabalham, por certo poderia conquistar o que é
-fruto da sua inveja.
+Because I can't stand to see you shine...
 
                                    *   *   *
 
-Se você se afirma cristão e pretende se aproximar do Supremo Bem, abandone a
-inveja que somente enfeia as vidas humanas.
+At every step, on the human road, we find the shadow of envy. Very much
+rarely the person admits that it is envious, although tortures himself intimately by
+cause of this evil.
 
-Afaste-se dessa agonia que a inveja impõe.
+The envious feels burning inside every time he finds himself unable to have
+what others have, to do what others do or to be like others
+Are.
 
-Aprenda a comentar positivamente os bons feitos das pessoas.
+The most unfortunate thing is that the envious of not being able or not to wish to strive
+to get where the other one came from, everything does to bring him down.
 
-Cumprimente com honestidade os que se apresentam com qualquer virtude que você
-ainda não possua.
+It is common, therefore, that the envious mount slander, disseminate diverse lies,
+spread malquereances.
 
-Imite os bons exemplos e as providências felizes.
+Everything as if you wish to take revenge on those whose big mistake is in not asking
+satisfaction to him as to what to make of the possessions themselves or the
+Will.
 
-Pense que ninguém é igual a ninguém. Cada qual é portador de possibilidades de
-conquistas diferentes.
+Envy is this disturbing force that waxes the envious.
 
-E que muitos e diversos são os desfechos nos caminhos humanos.
+So much so that he does not realize that he fought as others struggle, if
+worked as others work, surely could conquer what is
+the fruit of his envy.
 
-Uns utilizam as mãos para acariciar as teclas e extrair melodias do teclado.
-Outros as utilizam para debelar enfermidades, através de complicadas cirurgias.
+                                   *   *   *
 
-Uns brilham na oratória. Outros se servem da palavra para o consolo e a
-esperança.
+If you claim to be Christian and intend to approach the Supreme Good, abandon the
+envy that only entangles human lives.
 
-Uns escrevem leis, outros compõem poemas.
+Get away from that agony that envy imposes.
 
-Alguns olham para o céu e descobrem a maravilha do Universo sempre em expansão.
+Learn to comment positively on people's good deeds.
 
-Outros se detêm a explorar a intimidade dos mares, descobrindo a riqueza da
-vida que se renova, constantemente.
+Greet with honesty those who present themselves with any virtue that you
+still don't have it.
 
-Há diplomatas hábeis para as relações internacionais.
+Imitate good examples and happy arrangements.
 
-Também portas adentro dos lares, criaturas valorosas estabelecendo pontes de
-paz, para a harmonia doméstica de todos os dias.
+Think no one's like anyone else. Each of which has possibilities for
+different achievements.
 
-Aprenda a viver contente em toda e qualquer situação.
- 
+And that many and diverse are the outcomes in human ways.
+
+Some use their hands to caress the keys and extract melodies from the keyboard.
+Others use them to debelar diseases, through complicated surgeries.
+
+Some shine in the oratory. Others use the word for comfort and
+Hope.
+
+Some write laws, others make up poems.
+
+Some look up at the sky and discover the wonder of the ever-expanding Universe.
+
+Others are unaware of the intimacy of the seas, discovering the richness of the
+life that is constantly renewed.
+
+There are skilled diplomats for international relations.
+
+Also doors inside homes, valiating creatures establishing bridges of
+peace, for the domestic harmony of every day.
+
+Learn to live happily in any situation.
+
 
 ## Source
 Redação do Momento Espírita, com base no texto A serpente e o vaga-lume, de

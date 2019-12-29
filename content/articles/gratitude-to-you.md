@@ -11,86 +11,86 @@ topics:
 - family
 ---
 
-Quando ouvimos falar em gratidão, uma forte lembrança, misto de saudade, nos
-acode ao pensamento.
+When we hear of gratitude, a strong, mixed memory of longing, in the
+acode to thought.
 
-Recordamos de uma criança que conhecemos. Desde pequenina, padecia de um
-problema físico, que muito a fazia sofrer.
+We remember a child we know. From a young age, i had a
+physical problem, which made her suffer much.
 
-No entanto, acordava pela manhã, com esforço sentava-se na cama, juntava as
-mãozinhas e falava:
+However, he woke up in the morning, with effort sat in bed, joined the
+little hands and said:
 
-Senhor Jesus, obrigada por eu ter acordado em mais este dia e poder ver o sol.
+Lord Jesus, thank you for waking up on this day and being able to see the sun.
 
-Ao receber as refeições, os medicamentos, os cuidados, expressava seu
-agradecimento com palavras positivas.
+Upon receiving meals, medicines, care, expressed his
+thanks with positive words.
 
-E à noite, ao ser preparada para dormir, novamente conversava com Jesus.
+And at night, when he was prepared to sleep, he would talk to Jesus again.
 
-Aí, ela formulava um pedido especial. Queria que enquanto seu corpo estivesse
-adormecido, ela pudesse correr na areia da praia e sentir o abençoado ar
-marinho.
+Then she made a special request. I wish that while your body was
+asleep, she could run on the sand of the beach and feel the blessed air
+Marine.
 
-Certa vez, lhe perguntamos se ela ia mesmo à praia enquanto dormia.
+We asked her once if she really went to the beach in her sleep.
 
-Sorrindo ela respondeu:
+Smiling she replied:
 
-Claro que sim, são os momentos mais lindos da minha vida!
+Of course i do, they're the most beautiful moments of my life!
 
-Quando meu corpo doente dorme, eu posso ir aonde quero.
+When my sick body sleeps, I can go where I want to go.
 
-Ela nos emocionou com sua forma de entender a sua problemática e, ao mesmo
-tempo, ter discernimento para gozar, de forma plena, sua liberdade como
-Espírito.
+She thrilled us with her way of understanding her problem and, at the same time
+to have discernment to fully enjoy their freedom as a
+Spirit.
 
                                    *   *   *
 
-Compete-nos ter muita gratidão pela vida que Deus nos deu, pela família, pelo
-lar, pelo pão, pelo ar...
+It is up to us to have much gratitude for the life that God has given us, for the family, for the
+home, by bread, by air...
 
-Sermos gratos pelos pais que nos permitiram nascer e nos cuidaram, que nos
-deram a oportunidade de estudar, trabalhar.
+To be grateful for the parents who allowed us to be born and cared for us, who
+gave the opportunity to study, work.
 
-Agradecer por nos levantarmos toda manhã e nos dedicarmos às atividades que a
-vida nos oferece; por podermos preencher, durante o dia, mais uma página do
-livro da nossa vida; por termos no coração os ensinamentos do Mestre Jesus,
-Modelo, Guia e Amigo de todas as horas, que nos direciona positivamente em
-nossa jornada.
+Thank you for getting up every morning and dedicating ourselves to the activities that
+life offers us; because we can fill out, during the day, another page of the
+book of our life; because we have in our hearts the teachings of Master Jesus,
+Model, Guide and Friend of all hours, which positively directs us in
+our journey.
 
-Agradecer por contarmos com um guardião espiritual, que nos acompanha
-constantemente na função de protetor, nos inspirando, aconselhando, levantando
-o ânimo.
+Thank you for counting on a spiritual guardian who accompanies us
+constantly in the function of protector, inspiring us, advising, raising
+the mood.
 
-E, com um detalhe importante: sempre respeitando nossa liberdade de escolha.
+And with one important detail: always respecting our freedom of choice.
 
-Agradecer por termos uma família com quem podemos contar nas horas árduas, nas
-angústias, nas incertezas.
+Thank you for having a family with whom we can count on in the arduous hours, in the
+anguish, uncertainties.
 
-Mesmo quando difícil de conviver, ela constitui o remédio necessário para curar
-nossos males internos.
+Even when difficult to live with, it is the necessary remedy to cure
+our internal evils.
 
-Gratidão por termos amigos sinceros que vibram conosco nas horas felizes e nos
-amparam nas horas de necessidades.
+Gratitude for having sincere friends who vibrate with us at happy times and
+supported in the hours of needs.
 
-Verdadeiros tesouros a quem nem sempre valorizamos devidamente.
+True treasures to whom we do not always properly value.
 
-Gratidão aos professores que nos transmitiram ensinamentos que ressoarão em
-nossas almas para sempre.
+Gratitude to the teachers who have given us lessons that will resonate in
+our souls forever.
 
-Seres dos quais só lembramos de agradecer depois de seguirmos rumos distantes.
+Beings we only remember to thank after we go far.
 
-Gratidão pela fé que nos sustenta, nos preparando para a continuidade da
-caminhada, depois desta realidade.
+Gratitude for the faith that sustains us, preparing us for the continuity of
+walk, after this reality.
 
-Essa fé que nos demonstra que a Terra é um grande educandário onde aprendemos a
-valorizar tanta riqueza que recebemos, até mesmo as enfermidades e limitações
-que nos machucam.
+This faith that demonstrates to us that the earth is a great educandary where we learn the
+value so much wealth we receive, even the diseases and limitations
+that hurt us.
 
-Gratidão pelo fiel exemplo de almas em resgate, muitas vezes, presos a uma
-cama, quase imóveis.
+Gratitude for the faithful example of souls in ransom, often trapped in a
+bed, almost immovable.
 
-Mas que podem, durante o sono físico, gozar das liberdades conferidas ao
-Espírito sempre livre.
+But that can, during physical sleep, enjoy the freedoms conferred on the
+Always free spirit.
 
 ## Source
 Redação do Momento Espírita.  

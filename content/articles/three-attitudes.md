@@ -11,107 +11,107 @@ topics:
 - responsibility
 ---
 
- Você se considera uma pessoa egoísta, orgulhosa ou é alguém que sempre busca
-praticar o bem?
+ Do you consider yourself a selfish person, proud or are you someone who always seeks
+practice good?
 
-Talvez a resposta para essa pergunta não seja tão fácil assim, por isso vamos
-fazer uma análise dessas três atitudes considerando alguns quadros e
-circunstâncias da vida diária:
+Maybe the answer to that question isn't that easy, so let's
+do an analysis of these three attitudes considering some frameworks and
+circumstances of daily life:
 
-Na sociedade:
+In society:
 
-O egoísmo faz o que quer.
+Selfishness does what it wants.
 
-O orgulho faz como quer.
+Pride does the way it wants.
 
-O bem faz o que pode, acima das próprias obrigações.
+Good does what it can, above its own obligations.
 
-No trabalho:
+At work:
 
-O egoísmo explora o que acha.
+Selfishness explores what you think.
 
-O orgulho oprime o que vê.
+Pride oppresses what you see.
 
-O bem produz incessantemente.
+Good produces incessantly.
 
-Na equipe:
+On the team:
 
-O egoísmo atrai para si.
+Selfishness attracts to you.
 
-O orgulho pensa em si.
+Pride thinks of you.
 
-O bem serve a todos.
+Good is good for everyone.
 
-Na amizade:
+In friendship:
 
-O egoísmo utiliza as situações.
+Selfishness uses situations.
 
-O orgulho clama por privilégios.
+Pride calls for privileges.
 
-O bem renuncia ao próprio bem.
+Good relinquishs his own good.
 
-Na fé:
+In faith:
 
-O egoísmo aparenta.
+Selfishness appears.
 
-O orgulho reclama.
+Pride complains.
 
-O bem ouve.
+Good listens.
 
-Na responsabilidade:
+In responsibility:
 
-O egoísmo foge.
+Selfishness runs away.
 
-O orgulho tiraniza.
+Tiranize pride.
 
-O bem colabora.
+Good collaborates.
 
-Na dor alheia:
+In other people's pain:
 
-O egoísmo esquece.
+Selfishness forgets.
 
-O orgulho condena.
+Pride condemns.
 
-O bem ampara.
+Good back.
 
-No estudo:
+In the study:
 
-O egoísmo finge que sabe.
+Selfishness pretends to know.
 
-O orgulho não busca saber.
+Pride doesn't seek to know.
 
-O bem aprende sempre, para realizar o melhor.
+Good always learns, to accomplish the best.
 
-Considerando essas três atitudes, você poderá avaliar qual é a que mais se
-destaca nas suas ações diárias.
+Considering these three attitudes, you can assess which one is the one that is the most
+highlights in their daily actions.
 
-Fazendo essa análise você poderá responder se é uma pessoa egoísta, orgulhosa
-ou que age de acordo com o bem.
+By doing this analysis you can answer if you are a selfish, proud person
+or that acts according to good.
 
-Com a avaliação em mãos, considere o seguinte:
+With the evaluation in hand, consider the following:
 
-O egoísmo e o orgulho são dois corredores sombrios que conduzem ao vício, à
-delinquência, à desgraça.
+Selfishness and pride are two dark runners that lead to addiction,
+delinquency, to disgrace.
 
-O bem é ampla e iluminada avenida que nos leva à conquista das virtudes
-sublimes e à felicidade suprema que tanto desejamos.
+Good is wide and illuminated avenue that leads us to the conquest of virtues
+sublime and the supreme happiness we desire so much.
 
-Mas para isso não basta apenas admirar o bem ou divulgá-lo. É preciso, acima de
-tudo, praticá-lo com todas as forças da alma.
+But for that it is not enough just admire good or disclose it. It is necessary, above
+all, practice it with all the forces of the soul.
 
-E a decisão entre uma atitude e outra, cabe exclusivamente a cada um de nós.
+And the decision between one attitude and another rests exclusively with each of us.
 
                                    *   *   *
 
-Não esqueça de que o bem que se faz é o único trabalho que faz bem. E esse
-serviço em favor dos outros é a caridade única em favor de nós mesmos.
+Don't forget that the good you do is the only job that does well. And this
+service in favor of others is the only charity in favor of ourselves.
 
-O bem é a alavanca capaz de libertar o homem dos vícios e elevá-lo aos altos
-planos da harmonia consigo mesmo e com o mundo que o rodeia.
+Good is the lever capable of freeing man from vices and elevating him to the high
+plans of harmony with himself and with the world around him.
 
-Assim, a prática do bem é e sempre será nossa melhor atitude.
+Thus, the practice of good is and will always be our best attitude.
 
- 
+
 
 ## Source
 Redação do Momento Espírita com base na mensagem Três atitudes,

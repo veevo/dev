@@ -13,82 +13,82 @@ topics:
 - mother
 ---
 
-Entre os povos que nos afirmamos deístas, é comum se ouvir expressões que se
-referem a Deus.
+Among the peoples we say deistic, it is common to hear expressions that
+refer to God.
 
-Há quem enuncie o nome de Deus por qualquer motivo. Ou sem motivo algum.
+Some people have the name of God for any reason. Or for no reason at all.
 
-Outros dizem que usar o sagrado nome de Deus, por qualquer questão, é uma
-grande falta de respeito para com o Pai da vida.
+Others say that using God's sacred name, for any reason, is a
+great lack of respect for the Father of life.
 
-Naturalmente, cada qual defende a sua ideia, cheio de razões, de explicações.
-Como se fosse uma questão fundamental para a vida da sociedade.
+Of course, each one defends his idea, full of reasons, of explanations.
+As if it were a fundamental issue for the life of society.
 
-Excetuando-se o nome de Deus, temos o uso dos palavrões, das expressões de
-baixo calão, que encharcam as almas com vibrações negativas, pesadas.
+Except for the name of God, we have the use of profanity, expressions of
+low slang, which soak souls with negative, heavy vibrations.
 
-De outra banda, os ímpetos da alma atormentada, as revoltas desatadas da
-intimidade de cada um, que se apresentam na convivência de muitos, costumam se
-mostrar por meio da 
-pornografia.
+From another band, the urges of the tormented soul, the untied revolts of the
+intimacy of each, who present themselves in the coexistence of many, tend to
+show through the 
+Pornography.
 
-Convenhamos que, observando uma e outra situação, bem melhor será que as
-pessoas se acostumem a falar de Deus.
+Let us agree that, observing one and the other situation, much better will be that the
+people get used to talking about God.
 
-Todo e qualquer comentário sobre o Criador dos mundos trará ondas de harmonia
-para quem o expresse. E também para quem esteja em redor.
+Any commentary on the Creator of the Worlds will bring waves of harmony
+for those who express it. And also for those around.
 
-Uma interjeição simples, expressa numa sílaba, num gesto popular a respeito do
-Pai Criador, será sempre bem-vinda.
+A simple interjection, expressed in a syllable, in a popular gesture about the
+Creator Father, you will always be welcome.
 
-O impacto que a vibração de Deus impõe, traz consigo fluidos positivos e bons
-para a existência de todos nós.
+The impact that God's vibration imposes brings with it positive and good fluids
+for the existence of all of us.
 
-Dessa forma, diante das discussões em torno do falar em Deus ou não utilizar
-Seu precioso nome, cabe a cada um de nós optar por continuar a falar em Deus. A
-falar de Deus, a falar para projetar o Seu nome.
+Thus, in the face of discussions around speaking in God or not using
+His precious name is for each of us to choose to continue to speak of God. The
+speak of God, speaking to project His name.
 
-Não se discute a questão dos hábitos vazios. Dos que falam por falar, sem
-repercussão no moral.
+The issue of empty habits is not discussed. Of those who speak unspeak, without
+repercussion on morale.
 
-Mas isso é problema que não nos deve afetar.
+But that's a problem that shouldn't affect us.
 
-Olhemos os céus e lembremos a glória de Deus. Extasiemo-nos com as estrelas que
-cintilam, cantando a excelência de Deus e pronunciemos Seu nome, em gratidão.
+Let us look at the heavens and remember the glory of God. Let us get out of the stars that
+shone, singing God's excellence, and we pronounce His name in gratitude.
 
-Abramos as janelas, pela manhã, saudando o novo dia, enaltecendo o nome de
-Deus, que nos permite viver mais um dia na Terra.
+Let's open the windows in the morning, greeting the new day, extending the name of
+God, who allows us to live another day on earth.
 
-Abracemos nossos filhos e lhes recordemos o nome de Deus, Providência Excelsa
-que nos sustenta a vida, todos os dias.
+Let us embrace our children and remind them of the name of God, Providence Excelsa
+that sustains our lives every day.
 
-Escrevamos uma mensagem de otimismo a alguém e lembremos de invocar o nome de
-Deus, desejando-lhe paz.
+Write a message of optimism to someone and remember to invoke the name of
+God, wishing you peace.
 
-Oremos em favor de quem padece as dores da solidão, da detenção, da perseguição
-dos homens e lhe lembremos o nome de Deus, causa de todas as causas.
+Let us pray in favour of those who suffer the pains of loneliness, detention, persecution
+of men and let us remind him of the name of God, cause of all causes.
 
-Ante os sofrimentos atormentadores, falemos em Deus, a explicação de todas as
-explicações, de todas as teses.
+In the face of tormenting sufferings, let us speak in God, the explanation of all
+explanations of all theses.
 
-Enlevados pela música que nos conduz a estados especiais da alma, tenhamos em
-mente o nome de Deus, que criou a harmonia, a estesia.
+Taken by the music that leads us to special states of the soul, let us have in
+the name of God, who created harmony, to the estesia.
 
-Encantados pela cadência dos versos de uma poesia, de um poema; agradecidos
-pela luz dos nossos olhos, pelo som da nossa voz, pela amplidão das riquezas
-naturais que nos envolvem, falemos em Deus.
+Enchanted by the cadence of the verses of a poem, a poem; Grateful
+by the light of our eyes, by the sound of our voice, by the vastness of riches
+that involve us, let us speak of God.
 
-Felicitados com o amor de um esposo, de uma mãe, de um irmão, de um amigo,
-agradeçamos a Deus pelo sentimento que nos invade.
+Congratulated on the love of a husband, mother, brother, a friend,
+thank God for the feeling that invades us.
 
-Enfim, busquemos sintonizar Deus com nosso psiquismo, ao mesmo tempo que
-vivenciamos as mais profundas emoções, os sentimentos mais luminosos, as
-estesias mais felizes.
+Anyway, let us seek to tune God into our psyche, while
+we experience the deepest emotions, the brightest feelings, the
+happier theses.
 
                                    *   *   *
 
-O nome de Deus, seja falado, escrito ou pensado, logo que é também sentido,
-imprime em nós imensas alegrias, profundos enlevos e sublime registro da paz.
+The name of God, whether spoken, written or thought, as soon as it is also felt,
+prints in us immense joys, deep enlevos and sublime record of peace.
 
 ## Source
 Redação do Momento Espírita, com base no cap.

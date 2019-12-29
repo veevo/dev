@@ -19,84 +19,84 @@ topics:
 - prayer
 ---
 
-Você já sorriu hoje?
+Have you ever smiled today?
 
-É provável que não tenha percebido o valor do sorriso.
+It's probably not realizing the value of the smile.
 
-Esse conjunto de peroladas gemas que você traz na boca, ao se mostrar no
-impulso da sua alegria, é capaz de mover incríveis obstáculos, de transformar
-ocorrências ou de iluminar vidas.
+This set of goulate gems you bring in your mouth, when showing up in the
+impulse of his joy, is able to move incredible obstacles, to transform
+occurrences or of illuminating lives.
 
-É muito fácil sorrir. O sorriso é muito simples. É como respirar...
+It's very easy to smile. The smile is very simple. It's like breathing.
 
-Compreensível é que você se sinta tímido para realizar uma pequena gentileza
-por falta de hábito; ceder um assento a alguém; carregar um pacote para algum
-idoso, gestante ou para quem esteja com dificuldades; prestar uma informação
-com boa vontade ou silenciar diante de alguma provocação maligna.
+Understandable is that you feel shy to perform a little kindness
+for lack of habit; give someone a seat; load a package for some
+elderly, pregnant woman or for those who are in difficulty; provide information
+willingly or silence before some evil provocation.
 
-Afinal, nas vias terrenas, a esperteza criminosa, a pornografia granfina, a
-violência diária, o desequilíbrio, é que costumam receber aplauso, merecer
-páginas de jornais e virar notícia de televisão quase sempre.
+After all, in the land ways, the criminal cleverness, granfina pornography, the
+daily violence, the imbalance, is that they usually receive applause, deserve
+newspaper pages and turn television news almost always.
 
-Pense, porém, que é imprescindível que a gente aprenda a criar intimidade com a
-bondade.
+Think, however, that it is essential that we learn to create intimacy with the
+Kindness.
 
-Torna-se muito simples fazer o bem, desde que você não esteja assoberbado por
-mágoas, por culpas, por anseios gananciosos ou estados de rebeldia íntima.
+It becomes very simple to do good as long as you are not overwhelmed by
+sorrows, guilt, greedy yearning or intimate rebellious ness.
 
-No esforço de aproveitar cada um dos seus dias, faça o bem que puder, qualquer
-que ele seja, onde você estiver, porque o bem responde sempre com novo bem, que
-se dirige, invariavelmente, às pessoas que lhe deram nascedouro.
+In the effort to enjoy each of your days, do as much good as you can, any
+that he be, wherever you are, because good always responds with new well, that
+it goes invariably to the people who gave him a birth.
 
-Muito bom e fácil de ser desenvolvido é o ato voltado para a bondade, para a
-benignidade, para a gentileza em qualquer nível.
+Very good and easy to be developed is the act focused on goodness, for the
+kindness, for kindness at any level.
 
-Praticar o bem em qualquer das suas dimensões, seja objetiva ou subjetivamente,
-significa acumular alegria e harmonia no próprio coração.
+Practice good in any of its dimensions, whether objectively or subjectively,
+it means accumulating joy and harmony in one's own heart.
 
                                    *   *   *
 
-Onde estejamos, seja onde for, não olvidemos estender o sorriso, por oferta
-sublime da própria alma.
+Wherever we are, wherever we go, let's not look at extending the smile, by offer
+sublime of one's own soul.
 
-Ele é o agente que neutraliza o poder do mal e a oração inarticulada, que inibe
-a extensão das trevas.
+He is the agent who neutralizes the power of evil and inarticulate prayer, which inhibits
+the extent of darkness.
 
-Com ele, apagaremos o fogo da cólera, cerrando a porta ao incêndio da
-crueldade.
+With it, we will put out the cholera fire, surrounding the door to the fire of the
+Cruelty.
 
-Por ele, estenderemos a plantação da esperança, soerguendo almas caídas na
-sombra, para que retornem à luz.
+For him, we will extend the planting of hope, lifting souls fallen in the
+shadow, so that they may return to the light.
 
-Em casa, é a benção da paz, na lareira da confiança.
+At home, it is the blessing of peace, in the heartofment of trust.
 
-No trabalho, é música silenciosa incentivando a cooperação.
+At work, it's silent music encouraging cooperation.
 
-No mundo, é chamamento de simpatia.
+In the world, it's a call of sympathy.
 
-Sorrindo para a dificuldade, a dificuldade transformar-se-á em socorro de nossa
-vida.
+Smiling at the difficulty, the difficulty will turn into the help of our
+Life.
 
-Sorrindo para a nuvem, e ainda mesmo que a nuvem se desfaça em chuva de
-lágrimas em nossos olhos, o pranto será conforto do céu, a fecundar-nos os
-campos do coração.
+Smiling at the cloud, and even if the cloud falls apart in rain of
+tears in our eyes, the weeping will be comfort of heaven, to fertilize us the
+fields of the heart.
 
-Não nos roga o desesperado solução do enigma de sofrimento que lhe persegue o
-destino. Implora-nos um sorriso de amor, que renove as forças, para que
-prossiga em seu atormentado caminho.
+It does not ask us for the desperate solution of the riddle of suffering that haunts you the
+Destination. Implores us a smile of love, which renews the forces, so that
+continue on your tormented path.
 
-E, em verdade, se os famintos e os nus nos pedem pão e agasalho, esperam de nós
-, acima de tudo, o sorriso de ternura e compreensão que lhes acalme chagas
-ocultas.
+And, in fact, if the hungry and the naked ask us for bread and sweater, they expect us
+above all, the smile of tenderness and understanding that calms them wounds
+Hidden.
 
-Não condenemos as criaturas que se arrojam aos precipícios da violência e do
-crime. Ofereçamos o sorriso generoso da fraternidade, que ajuda
-incessantemente, e voltar-se-ão, renovadas, para o roteiro do bem.
+Let us not condemn creatures that dare to the precipices of violence and
+Crime. Let us offer the generous smile of fraternity, which helps
+incessantly, and will turn, renewed, to the roadmap of good.
 
-Sorrindo,trabalhemos e aprendamos, auxiliando e amando sempre.
+Smiling, working and learning, helping and loving always.
 
-Lembremos de que o sorriso é o orvalho da caridade e que em cada manhã, o dia
-renascente no céu é um sorriso de Deus.
+Let us remember that the smile is the dew of charity and that every morning, the day
+renascente in heaven is a smile of God.
 
 ## Source
 Redação do Momento Espírita, com base no cap. 27,

@@ -15,87 +15,87 @@ topics:
 ---
  
 
-Narra-se que, certa vez, uma jovem indiana, desejando que seu filho tivesse
-saúde invejável, decidiu que seria importante para ele deixar de comer açúcar.
+It is narrated that, once, a young Indian woman, wishing her son had
+enviable health, decided that it would be important for him to stop eating sugar.
 
-Acreditava que o açúcar era um produto que agredia o organismo. Afinal, ele
-possibilitava o aparecimento de cáries, além de ser um produto que facultaria à
-criança uns quilos a mais.
+He believed sugar was a product that attacked the body. After all, he
+made it possible to appear in caries, as well as being a product that would provide the
+child a few pounds more.
 
-Por largo tempo ela falou ao filho para deixar de consumir o produto. Mas, a
-criança adorava açúcar e não o dispensava, deliciando-se com os doces mais
-variados.
+For a long time she told her son to stop consuming the product. But, the
+child loved sugar and did not disthink it, delighting in the sweets more
+Varied.
 
-Finalmente, a mãe procurou o Mahatma Gandhi e contou seu problema, pedindo que
-ele, com sua grande autoridade, falasse ao filho. Com certeza, ele seria ouvido
-e atendido pelo menino.
+Finally, the mother sought the Mahatma Gandhi and told her problem, asking that
+he, with his great authority, spoke to his son. Sure, he would be heard
+and attended by the boy.
 
-O sábio não afirmou que ela estava certa, nem errada. Contudo, pediu-lhe um
-prazo de 15 dias. Decorrido o tempo, ela deveria retornar com o filho até ele.
+The wise man didn't say she was right, not even wrong. However, he asked him for a
+15 days. After the time, she should return with her son to him.
 
-A mulher se foi, com a alma embalada pelas mais suaves esperanças. Os dias
-demoraram a passar. Até que chegou o dia marcado para pôr fim à ansiedade da
+The woman is gone, with her soul packed by the softest hopes. The days
+took a while to pass. Until the day was set to put an end to the anxiety of the
 indiana.
 
-Ela tomou o filho pela mão e o levou até a presença de Gandhi, que se demorou a
-falar com o garoto, por mais de uma hora.
+She took her son by the hand and took him to the presence of Gandhi, who was slow to
+talk to the boy for over an hour.
 
-Terminado o diálogo, Gandhi se despediu do pequeno e devolveu-o à sua mãe.
+After the dialogue, Gandhi said goodbye to the little one and returned it to his mother.
 
-A mulher estava muito curiosa. E, assim que pôde, perguntou ao Mahatma porque
-ele a fez esperar quinze dias, para só depois conversar com a criança.
+The woman was very curious. And as soon as he could, he asked Mahatma why
+he made her wait fifteen days, and only then talk to the child.
 
-É muito simples, respondeu Gandhi. Há quinze dias eu também consumia açúcar e
-precisava do prazo para abandonar o hábito, pois se não o fizesse, não teria
-autoridade moral para lhe pedir que o evitasse.
-
-                                   *   *   *
-
-A utilização ou não do açúcar na dieta alimentar não é o mais importante, no
-caso em pauta. O que se deve levar em conta é o fator exemplo.
-
-O ilustre Gandhi não se sentia à vontade para pedir a uma criança que deixasse
-de fazer alguma coisa, se ele mesmo ainda a fazia.
-
-Não desconhecia ele que, enquanto as palavras comovem  multidões, o exemplo as
-arrasta.
-
-Pensemos em quantas vezes temos tentado modificar os hábitos dos outros,
-utilizando-nos simplesmente das recomendações ponderadas, sem nos prendermos ao
-fato de que não estamos exemplificando corretamente.
-
-Assim é no que diz respeito ao uso de drogas como o fumo e o álcool, que
-afirmamos que agridem e matam, que seu uso é maléfico, sem deixarmos, nós
-mesmos, do velho cigarro e dos aperitivos de vez em quando.
-
-Assim é, ainda, com relação à frequência no templo religioso, nas aulas
-específicas de evangelização, quando dizemos aos filhos que são importantes,
-edificantes. Mas, nós mesmos sequer comparecemos ao templo para o estudo e a
-oração.
-
-Dizer e fazer. Duas ações importantes. A segunda, com certeza, de peso seguro
-para a educação mais acertada.
+It's very simple, Gandhi replied. Fifteen days ago I also consumed sugar and
+needed the deadline to abandon the habit, because if i did not, i would not have
+moral authority to ask him to avoid him.
 
                                    *   *   *
 
-Jesus, o Divino Mestre, lecionando aos homens a Lei do trabalho, esmerou-Se
-nele, laborando na Sua infância e juventude na carpintaria do pai.
+The use or not of sugar in the diet is not the most important, in the
+on the agenda. What should be taken into account is the example factor.
 
-Dizendo que deveríamos perdoar setenta vezes sete vezes, perdoou Ele mesmo a
-todos os que O feriram e O trataram com rudeza e desprezo.
+The illustrious Gandhi did not feel comfortable asking a child to leave
+to do something, if he still did it.
 
-Isso porque, excelente pedagogo, Jesus reconhecia o extraordinário valor do
-exemplo, jamais dispensando-o na tarefa educativa dos seres.
+I did not know him that while words move crowds, the example
+Drag.
 
- 
+Let us think about how many times we have tried to change the habits of others,
+using the weighted recommendations, without holding ourselves to the
+fact that we are not exemplifying correctly.
 
-                                                   Redação do Momento Espírita.
-                                                                 Em 27.10.2010.
+So it is with regard to the use of drugs such as smoking and alcohol, which
+we claim that they attack and kill, that their use is evil, without leaving, we
+same, old cigarette and appetizers from time to time.
 
-voltar voltar imprimir imprimir este texto indique indique este texto
-voltar ao topo topo
-© Copyright - Momento Espírita - 2019 - Todos os direitos reservados - No ar
-desde 28/03/1998
+This is also the case with regard to the frequency in the religious temple, in the classes
+specific to evangelization, when we tell children that they are important,
+Uplifting. But, we ourselves don't even attend the temple for study and
+Prayer.
+
+Say and do. Two important actions. The second, sure, safe weight
+for the right est education.
+
+                                   *   *   *
+
+Jesus the Divine Master, teaching men the Law of work,
+in him, working in His childhood and youth in the carpentry of his father.
+
+Saying that we should forgive seventy times seven times, he forgave Himself the
+all who wounded Him and treated Him rudely and contemptuously.
+
+This is because, excellent pedagogue, Jesus recognized the extraordinary value of
+example, never dispensing it with the educational task of beings.
+
+
+
+                                                   Writing of the Spiritist Moment.
+                                                                 On 27.10.2010.
+
+back print print this text indicate this text
+back to the top top
+© Copyright - Spiritist Moment - 2019 - All rights reserved - On the air
+since 28/03/1998
 
 
 
