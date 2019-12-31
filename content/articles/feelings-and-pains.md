@@ -11,7 +11,7 @@ topics:
 - comprehension
 - effort
 - forgiveness
-- faithlicidade
+- faith
 - love
 - respect
 - tolerancia

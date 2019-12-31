@@ -6,7 +6,7 @@ topics:
 - revenge
 - jesus
 - love
-- faithlicidade
+- faith
 - love
 - serenity
 - wisdom

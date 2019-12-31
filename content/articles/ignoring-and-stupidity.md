@@ -9,7 +9,7 @@ topics:
 - stupidity
 - charity
 - forgiveness
-- faithlicidade
+- faith
 - love
 - solidarity
 ---

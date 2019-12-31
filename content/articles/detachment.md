@@ -3,6 +3,7 @@ title: Detachment
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
+- judgment
 - vanity
 - attachment
 - detachment
@@ -10,7 +11,7 @@ topics:
 - consumerism
 - materialism
 - humility
-- faithlicidade
+- faith
 ---
 
 We live in a time of celebrities, easy appeals to wealth, consumerism,

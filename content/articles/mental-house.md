@@ -5,7 +5,7 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - revenge
 - reform-last
-- faithlicidade
+- faith
 - help
 - vigilancia
 - prayer

@@ -14,7 +14,7 @@ topics:
 - compassion
 - comprehension
 - forgiveness
-- faithlicidade
+- faith
 - purity
 - prayer
 ---

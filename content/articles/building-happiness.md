@@ -10,7 +10,7 @@ topics:
 - apprentice
 - comprehension
 - effort
-- faithlicidade
+- faith
 - patience
 - tolerancia
 - tranquility

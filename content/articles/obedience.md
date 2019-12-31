@@ -12,7 +12,7 @@ topics:
 - dignity
 - effort
 - kindness
-- faithlicidade
+- faith
 - love
 - purity
 - respect

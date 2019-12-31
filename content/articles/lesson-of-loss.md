@@ -10,7 +10,7 @@ topics:
 - calm
 - comprehension
 - forgiveness
-- faithlicidade
+- faith
 - love
 - respect
 - solidarity

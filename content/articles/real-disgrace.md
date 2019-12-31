@@ -5,14 +5,14 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - vanity
 - humility
-- faithlicidade
+- faith
 - unhappiness
 - child
 - disgrace
 - courage
 - dignity
 - discipline
-- faithlicidade
+- faith
 - prayer
 - child
 ---

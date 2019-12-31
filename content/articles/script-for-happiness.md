@@ -5,11 +5,11 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - pride
 - humility
-- faithlicidade
+- faith
 - charity
 - ethics
 - justice
-- faithlicidade
+- faith
 - wisdom
 - prayer
 ---

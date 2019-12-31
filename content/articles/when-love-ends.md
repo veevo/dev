@@ -7,7 +7,7 @@ topics:
 - love
 - disaffection
 - companionship
-- faithlicidade
+- faith
 - love
 - prayer
 - family

@@ -6,7 +6,7 @@ topics:
 - addictions
 - drugs
 - courage
-- faithlicidade
+- faith
 - love
 ---
 

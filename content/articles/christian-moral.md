@@ -8,7 +8,7 @@ topics:
 - addictions
 - effort
 - justice
-- faithlicidade
+- faith
 - purity
 - responsibility
 - wisdom

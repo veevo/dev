@@ -9,7 +9,7 @@ topics:
 - gospel
 - charity
 - justice
-- faithlicidade
+- faith
 - love
 - modesty
 - respect

@@ -8,7 +8,7 @@ topics:
 - paul-of-tarsus
 - comprehension
 - fielidade
-- faithlicidade
+- faith
 - love
 - purity
 - waiver

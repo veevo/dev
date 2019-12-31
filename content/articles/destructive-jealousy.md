@@ -10,7 +10,7 @@ topics:
 - unhappiness
 - trust
 - disinterest
-- faithlicidade
+- faith
 - love
 - respect
 ---

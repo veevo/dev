@@ -6,7 +6,7 @@ topics:
 - impatience
 - patience
 - comprehension
-- faithlicidade
+- faith
 - love
 - solidarity
 - family

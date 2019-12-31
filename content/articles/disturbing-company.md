@@ -7,7 +7,7 @@ topics:
 - charity
 - comprehension
 - discipline
-- faithlicidade
+- faith
 - love
 - respect
 ---

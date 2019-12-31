@@ -12,7 +12,7 @@ topics:
 - effort
 - justice
 - kindness
-- faithlicidade
+- faith
 - love
 - serenity
 - prayer

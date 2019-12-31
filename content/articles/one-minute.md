@@ -8,7 +8,7 @@ topics:
 - patience
 - charity
 - forgiveness
-- faithlicidade
+- faith
 - love
 - kindness
 - prayer

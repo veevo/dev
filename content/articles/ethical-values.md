@@ -5,7 +5,7 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - internet
 - ethics
-- faithlicidade
+- faith
 - respect
 - responsibility
 - child

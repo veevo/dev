@@ -14,7 +14,7 @@ topics:
 - apprentice
 - companionship
 - justice
-- faithlicidade
+- faith
 - respect
 - prayer
 ---

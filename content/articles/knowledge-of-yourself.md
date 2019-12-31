@@ -9,7 +9,7 @@ topics:
 - dignity
 - effort
 - justice
-- faithlicidade
+- faith
 - love
 ---
  

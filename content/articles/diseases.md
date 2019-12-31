@@ -12,7 +12,7 @@ topics:
 - family
 - anger
 - gratitude
-- faithlicidade
+- faith
 - love
 - respect
 - child

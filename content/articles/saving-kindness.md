@@ -11,7 +11,7 @@ topics:
 - charity
 - compassion
 - courage
-- faithlicidade
+- faith
 - help
 - love
 - sincerity

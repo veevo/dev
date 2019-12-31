@@ -8,7 +8,7 @@ topics:
 - gospel
 - charity
 - justice
-- faithlicidade
+- faith
 - humility
 - love
 - modesty

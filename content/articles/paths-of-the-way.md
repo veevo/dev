@@ -8,7 +8,7 @@ topics:
 - lucas
 - charity
 - justice
-- faithlicidade
+- faith
 - love
 - respect
 - mother

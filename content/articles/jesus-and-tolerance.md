@@ -3,12 +3,12 @@ title: Jesus and tolerance
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
+- judgment
 - revenge
-- tolerancia
+- tolerance
 - jesus
 - compassion
 - responsibility
-- tolerancia
 ---
 
 In terms of deep psychology, the issue of the judgment of other people's faults

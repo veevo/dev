@@ -8,7 +8,7 @@ topics:
 - comprehension
 - dignity
 - kindness
-- faithlicidade
+- faith
 - love
 - prayer
 ---

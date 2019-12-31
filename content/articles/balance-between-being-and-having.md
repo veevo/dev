@@ -8,7 +8,7 @@ topics:
 - avarice
 - envy
 - dignity
-- faithlicidade
+- faith
 - love
 - child
 - family

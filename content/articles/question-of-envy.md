@@ -7,7 +7,7 @@ topics:
 - badedicencia
 - anger
 - effort
-- faithlicidade
+- faith
 - love
 ---
 

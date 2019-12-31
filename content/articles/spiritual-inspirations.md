@@ -7,7 +7,7 @@ topics:
 - discernment
 - progress
 - inspiration
-- faithlicidade
+- faith
 - help
 - respect
 - prayer

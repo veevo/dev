@@ -11,7 +11,7 @@ topics:
 - childs
 - gospel
 - love
-- faithlicidade
+- faith
 - love
 - purity
 - prayer

@@ -8,7 +8,7 @@ topics:
 - family
 - consumerism
 - materialism
-- faithlicidade
+- faith
 - love
 - responsibility
 - child

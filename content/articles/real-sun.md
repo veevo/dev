@@ -11,7 +11,7 @@ topics:
 - contempt
 - indifference
 - ethics
-- faithlicidade
+- faith
 ---
 
 Once a very sensitive father realized that one of his daughters was

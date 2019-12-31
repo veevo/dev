@@ -7,7 +7,7 @@ topics:
 - pride
 - humility
 - charity
-- faithlicidade
+- faith
 - responsibility
 ---
 

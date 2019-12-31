@@ -8,7 +8,7 @@ topics:
 - humility
 - charity
 - companionship
-- faithlicidade
+- faith
 - help
 - respect
 ---

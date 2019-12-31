@@ -7,7 +7,7 @@ topics:
 - humility
 - gospel
 - charity
-- faithlicidade
+- faith
 - respect
 - family
 ---

@@ -7,7 +7,7 @@ topics:
 - selfishness
 - attachment
 - dignity
-- faithlicidade
+- faith
 - wisdom
 - family
 ---

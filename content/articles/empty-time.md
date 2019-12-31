@@ -8,7 +8,7 @@ topics:
 - humility
 - discipline
 - effort
-- faithlicidade
+- faith
 - prayer
 ---
 

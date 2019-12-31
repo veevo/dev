@@ -6,7 +6,7 @@ topics:
 - idleness
 - freedom
 - sadness
-- faithlicidade
+- faith
 - family
 ---
 

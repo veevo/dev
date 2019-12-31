@@ -13,15 +13,15 @@ topics:
 - compassion
 - charity
 - compassion
-- faithlicidade
+- faith
 - love
 - prayer
 - family
 ---
  
-Jesus havia proferido o maravilhoso Sermão da Montanha há apenas um dia. As
-frases ecoavam no ar, e aqueles que O ouviram ainda vivenciavam as vibrações
-especiais daquele momento.
+Jesus had delivered the wonderful Sermon on the Mountain just one day ago.
+phrases echoed in the air, and those who heard Him still experienced the vibrations
+special so on that moment.
 
 In Capernaum, a noble man named Bartholomew became an siege of Jesus. The beautiful
 words uttered meant to him a true status of conduct, and

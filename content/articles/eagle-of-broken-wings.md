@@ -11,7 +11,7 @@ topics:
 - frames
 - lucas
 - matthew
-- faithlicidade
+- faith
 - love
 - wisdom
 - family

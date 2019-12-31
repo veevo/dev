@@ -9,7 +9,7 @@ topics:
 - jesus
 - alcoholism
 - rebellion
-- faithlicidade
+- faith
 - love
 - respect
 - mother

@@ -11,7 +11,7 @@ topics:
 - jesus
 - waiver
 - effort
-- faithlicidade
+- faith
 - respect
 - prayer
 - family

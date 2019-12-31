@@ -5,12 +5,12 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - vanity
 - humility
-- faithlicidade
+- faith
 - money
 - comprehension
 - dignity
 - kindness
-- faithlicidade
+- faith
 - love
 - prayer
 ---

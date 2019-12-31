@@ -8,7 +8,7 @@ topics:
 - happiness
 - life
 - ethics
-- faithlicidade
+- faith
 - love
 - prayer
 ---

@@ -16,7 +16,7 @@ topics:
 - compassion
 - effort
 - kindness
-- faithlicidade
+- faith
 - love
 - loyalty
 - purity

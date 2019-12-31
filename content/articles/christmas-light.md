@@ -8,7 +8,7 @@ topics:
 - vanity
 - humility
 - lucas
-- faithlicidade
+- faith
 ---
 
 

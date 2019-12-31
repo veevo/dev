@@ -11,7 +11,7 @@ topics:
 - courage
 - effort
 - justice
-- faithlicidade
+- faith
 - love
 - resignation
 - sensitivity

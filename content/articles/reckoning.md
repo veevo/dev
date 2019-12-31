@@ -8,7 +8,7 @@ topics:
 - divine-laws
 - disinterest
 - ethics
-- faithlicidade
+- faith
 ---
 
 Spiritism teaches that Divine Laws are inscribed in nature and

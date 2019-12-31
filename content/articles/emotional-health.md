@@ -14,7 +14,7 @@ topics:
 - effort
 - forgiveness
 - gratitude
-- faithlicidade
+- faith
 - love
 - tranquility
 - prayer

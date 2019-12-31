@@ -10,7 +10,7 @@ topics:
 - sex
 - sensualism
 - justice
-- faithlicidade
+- faith
 - help
 - purity
 - respect

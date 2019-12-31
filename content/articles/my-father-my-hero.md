@@ -12,7 +12,7 @@ topics:
 - courage
 - fielidade
 - forgiveness
-- faithlicidade
+- faith
 - love
 - resignation
 - respect

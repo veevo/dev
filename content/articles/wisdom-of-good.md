@@ -7,7 +7,7 @@ topics:
 - love
 - violence
 - compassion
-- faithlicidade
+- faith
 - love
 - wisdom
 ---

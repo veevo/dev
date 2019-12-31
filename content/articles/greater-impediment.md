@@ -11,7 +11,7 @@ topics:
 - laziness
 - idleness
 - humility
-- faithlicidade
+- faith
 ---
 
 It says ancient narrative, that a wise priest, desiring to teach the way of

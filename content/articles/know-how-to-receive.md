@@ -7,7 +7,7 @@ topics:
 - tolerancia
 - charity
 - gratitude
-- faithlicidade
+- faith
 - help
 - love
 - tolerancia

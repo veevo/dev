@@ -9,7 +9,7 @@ topics:
 - irritation
 - violence
 - calm
-- faithlicidade
+- faith
 ---
 
 What do you do that day when everything seems to go wrong?

@@ -11,7 +11,7 @@ topics:
 - altruism
 - courage
 - forgiveness
-- faithlicidade
+- faith
 - love
 - tolerancia
 - prayer

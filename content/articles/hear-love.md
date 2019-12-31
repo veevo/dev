@@ -3,13 +3,14 @@ title: Hear love
 date: 2019-02-01 19:00:00
 image: "images/masonary-post/post-2.jpg"
 topics: 
+- judgment
 - social networks
 - technology
 - dignity
 - empathy
 - forgiveness
 - gratitude
-- faithlicidade
+- faith
 - humility
 - love
 - family

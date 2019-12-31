@@ -10,7 +10,7 @@ topics:
 - discipline
 - discipline
 - justice
-- faithlicidade
+- faith
 - love
 ---
 

@@ -8,7 +8,7 @@ topics:
 - fathern
 - benefactor
 - apprentice
-- faithlicidade
+- faith
 - love
 - perseverance
 ---

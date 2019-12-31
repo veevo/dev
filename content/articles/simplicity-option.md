@@ -6,7 +6,7 @@ topics:
 - simplicity
 - consumerism
 - materialism
-- faithlicidade
+- faith
 - love
 - serenity
 ---

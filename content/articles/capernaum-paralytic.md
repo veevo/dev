@@ -8,7 +8,7 @@ topics:
 - companionship
 - comprehension
 - discipline
-- faithlicidade
+- faith
 - love
 - respect
 ---
