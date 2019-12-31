@@ -9,12 +9,15 @@ topics:
 - andre-luis
 ---
 
-todo: Book - Nosso Lar (Andre Luis)
+todo: Book - Os Nosso Lar (Andre Luis)
 
-## See Also
+## Related Biographies
 [Andre Luis](../andre-luis)   
 [Emmanuel](../emmanuel)  
+[Aniceto](../aniceto)  
 [Chico Xavier](../chico-xavier)  
+
+## See Also
 [Spiritism](/spiritism)  
 
 ## Source

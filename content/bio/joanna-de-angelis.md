@@ -2,151 +2,263 @@
 title: Joanna de Ângelis
 date: 2019-02-01 19:00:00
 topics: 
-- spiritism
-- divaldo-franco
+- espiritismo
 - joanna-de-angelis
-- francis-de-assis
-- gospel
+- divaldo-franco
+- francisco-de-assis
 - jesus
-- bible
+- biblia
+- evangelho
+- espiritizar
+- honorio
 ---
 
-A Spirit that radiates tenderness and wisdom, awakening us to the experience of love at its highest 
-expression, even if, in order to live it, we are imposed great sum of sacrifices. 
-It is the Spirit that is known by the name Joanna of Angelas and who, on the roads of the centuries, 
-we will meet her in the meek figure of Joan of Cusa, in a disciple of Francis of Assisi, in the great 
-Soror Juana Inés de La Cruz and in the stillborn Joana Angelica de Jesus
+Um Espírito que irradia ternura e sabedoria, despertando-nos para a vivência do
+amor na sua mais elevada expressão, mesmo que, para vivê-lo, seja-nos imposta
+grande soma de sacrifícios. Trata-se do Espírito que se faz conhecido pelo nome
+Joanna de Ângelis e que, nas estradas dos séculos, vamos encontrá-la na mansa
+figura de Joana de Cusa, numa discípula de Francisco de Assis, na grandiosa
+Sóror Juana Inés de La Cruz e na intimorata Joana Angélica de Jesus Conheça
+agora cada um destes personagens que marcaram a história com o seu exemplo de
+humildade e heroísmo.
 
-Now know each of these characters who marked the story with their example of humility and heroism.
+## Joana de Cusa 
+Joana de Cusa, segundo informações de Humberto de Campos, no livro Boa Nova, era
+alguém que possuía verdadeira fé. Narra o autor que: Entre a multidão que
+invariavelmente acompanhava Jesus nas pregações do lago, achava-se sempre uma
+mulher de rara dedicação e nobre caráter, das mais altamente colocadas na
+sociedade de Cafarnaum. Tratava-se de Joana, consorte de Cusa, intendente de
+Ântipas, na cidade onde se conjulgavam interesses vitais de comerciantes e de
+pescadores.  O seu esposo, alto funcionário de Herodes, não lhe compartilhava os
+anseios de espiritualidade, não tolerando a doutrina daquele Mestre que Joana
+seguia com acendrado amor. 
 
-## Joan of Cusa 
-Joana de Cusa, according to information from Humberto de Campos, in the book Boa Nova, was someone who possessed true faith. 
-The author narrates that: Among the crowd that invariably accompanied JESUS in the folds of the lake, it was 
-always a woman of rare dedication and noble character, of the most highly placed in capernaum society. 
+Vergada ao peso das injunções domésticas, angustiada
+pela incompreensão e intolerância do esposo, buscou ouvir a palavra de conforto
+de Jesus que, ao invés de convidá-la a engrossar as fileiras dos que O seguiam
+pelas ruas e estradas da Galileia, aconselhou-a a situá-lo a distância,
+servindo-O dentro do próprio lar, tornando-se um verdadeiro exemplo de pessoa
+cristã, no atendimento ao próximo mais próximo: seu esposo, a quem deveria
+servir com amorosa dedicação, sendo fiel a Deus, amando o companheiro do mundo
+como se fora seu filho.  
 
-It was Joana, consort of Cusa, intendant of Ântipas, in the city where vital interests were considered 
-traders and fishermen.
+Jesus traçou-lhe um roteiro de conduta que lhe facultou viver com resignação o
+resto de sua vida.  Mais tarde, tornou-se mãe.  Com o passar do tempo, as
+atribuições se foram avolumando. O esposo, após uma vida tumultuada e inditosa,
+faleceu, deixando Joana sem recursos e com o filho para criar. Corajosa, buscou
+trabalhar. Esquecendo "o conforto da nobreza material, dedicou-se aos filhos de
+outras mães, ocupou-se com os mais subalternos afazeres domésticos, para que seu
+filhinho tivesse pão. Trabalhou até a velhice.  
 
-Her husband, herod's senior official, did not share her wishes for spirituality, not tolerating the 
-doctrine of that Master that Joan followed with admy. Poured to the weight of domestic injunctions, distressed 
-by the misunderstanding and intolerance of the spouse, sought to hear the word of comfort of JESUS who, instead of inviting her 
-thickening the ranks of those who followed Him through the streets and roads of Galilee, advised her to place him at a distance, 
-serving Him within his own home, becoming a true example of a Christian person, in serving the next 
-closer: her husband, whom she should serve with loving dedication, being faithful to God, loving the companion 
-of the world as if his son was.
+Já idosa, com os cabelos embranquecidos, foi levada ao circo dos martírios,
+juntamente com o filho moço, para testemunhar o amor por Jesus, o Mestre que
+havia iluminado a sua vida acenando-lhe com esperanças de um amanhã feliz.
+Narra Humberto de Campos, no livro citado: Ante o vozerio do povo, foram
+ordenadas as primeiras flagelações.  − Abjura!... − exclama um executor das
+ordens imperiais, de olhar cruel e sombrio.  
 
-JESUS traced him a script of conduct that allowed him to live with resignation for the rest of his life.
-He later became a mother.
+A antiga discípula do Senhor contempla o céu, sem uma palavra de negação ou de
+queixa. Então o açoite vibra sobre o rapaz seminu, que exclama, entre lágrimas:
+− "Repudia a Jesus, minha mãe!... Não vês que nós perdemos?! Abjura!... por mim,
+que sou teu filho!..." Pela primeira vez, dos olhos da mártir corre a fonte
+abundante das lágrimas.  
 
-Over time, the assignments were changing. The husband, after a tumultuous and untold life, passed away, leaving Joana without resources and with her son to raise. Brave, you sought to work. Forgetting "the comfort of material nobility, he dedicated himself to the children of other mothers, he was busy with the most subordinate household chores, so that his little boy had bread. He worked until old age.
-Already old, with her hair bleached, was taken to the circus of martyrdoms, along with the young son, to witness the love for JESUS, the Master who had enlightened his life waving to him with hopes of a happy tomorrow.
-Narrates Humberto de Campos, in the book quoted:
-Before the voice of the people, the first scourges were ordered.
-− Abjura!... − exclaims an executor of imperial orders, of cruel and gloomy gaze.
-The ancient disciple of the Lord contemplates heaven, without a word of denial or grievance. Then the whip vibrates over the half-naked boy, who exclaims, between tears: − "Repudiate JESUS, my mother!... Can't you see we lost?! Abjura!... for me, that I am your son!..."
-For the first time, from the martyr's eyes flows the abundant source of tears. The son's pleas are swords of anguish that rectalate his heart.
-After remembering its entire existence, he replies:
-"- Shut up, my son! JESUS was pure and did not damin the sacrifice. Let us know how to suffer at the painful time, because, above all the transitory happiness in the world, we must be faithful to GOD!"
-Soon after, the flames consume their aged body, freeing it into the company of their Master, whom he knew how to serve and with whom he learned to sublimate love.
+As rogativas do filho são espadas de angústia que lhe retalham o coração.  Após
+recordar sua existência inteira, responde: "- Cala-te, meu filho! Jesus era puro
+e não desdenhou o sacrifício. Saibamos sofrer na hora dolorosa, porque, acima de
+todas as felicidades transitórias do mundo, é preciso ser fiel a DEUS!" Logo em
+seguida, as labaredas consomem o seu corpo envelhecido, libertando-a para a
+companhia do seu Mestre, a quem tão bem soube servir e com quem aprendeu a
+sublimar o amor.
 
-## Francisco of Assisi 
-Centuries later, Francis the Poor Man of God, the Sun of Assisi, reorganizes King Galileo's Love Army; 
-she also applies to living with him the simplicity of the Gospel of Jesus, which she loves and understands, 
-chanting the song of universal brotherhood.
+## Francisco de Assis 
+Séculos depois, Francisco, o Pobrezinho de Deus, o Sol de Assis, reorganiza o
+Exército de Amor do Rei Galileu; ela também se candidata a viver com ele a
+simplicidade do Evangelho de Jesus, que a tudo ama e compreende, entoando a
+canção da fraternidade universal.
 
-Soror Juana Inés de La Cruz 
-In the 17th century, it reappears on the world stage, for another life dedicated to Good. It is reborn in 1651, in the tiny San Miguel Nepantla, about eighty kilometers from Mexico City, under the name juana de Asbaje Y Ramirez de Santillana, daughter of basque father and indigenous mother.
+## Sóror Juana Inés de La Cruz 
+No século XVII, ela reaparece no cenário do mundo, para mais uma vida dedicada
+ao Bem. Renasce em 1651, na pequenina San Miguel Nepantla, a uns oitenta
+quilômetros da cidade do México, com o nome de Juana de Asbaje Y Ramirez de
+Santillana, filha de pai basco e mãe indígena.
 
-After 3 years of age, fascinated by the lyrics, to see her sister learn to read and write, deceives the teacher and tells her that her mother had asked her to literacy. The teacher, accustomed to the precocity of the child, who already answered the questions that her sister ignored, begins to teach him the first letters.
+Após 3 anos de idade, fascinada pelas letras, ao ver sua irmã aprender a ler e
+escrever, engana a professora e diz-lhe que sua mãe mandara pedir-lhe que a
+alfabetizasse. A mestra, acostumada com a precocidade da criança, que já
+respondia às perguntas que a irmã ignorava, passa a ensinar-lhe as primeiras
+letras.
 
-He started doing verses at the age of five.
+Começou a fazer versos aos 5 anos.
 
-At the age of 6, Juana perfectly dominated the pátrio language, as well as having sewing skills and other chores common to women of the time. I knew there was a University in Mexico and it was persoperated by the idea that in the future i could learn more and more among doctors. In conversation with his father, he confided his prospects for the future. Don Manuel, as a good Spaniard, laughed and said jokingly:
+Aos 6 anos, Juana dominava perfeitamente o idioma pátrio, além de possuir
+habilidades para costura e outros afazeres comuns às mulheres da época. Soube
+que existia no México uma Universidade e empolgou-se com a ideia de, no futuro,
+poder aprender mais e mais entre os doutores. Em conversa com o pai,
+confidenciou suas perspectivas para o futuro. Dom Manuel, como um bom espanhol,
+riu-se e disse gracejando:
 
-− Only if you dress up as a man, because there only rich boys can study. Juana was surprised by the novelty, and soon ran to her mother insistently asking her to dress as a man from now on, because she did not want, under any circumstances, to stay out of university.
+− Só se você se vestir de homem, porque lá só os rapazes ricos podem estudar.
+Juana ficou surpresa com a novidade, e logo correu à sua mãe solicitando
+insistentemente que a vestisse de homem desde já, pois não queria, em hipótese
+alguma, ficar fora da Universidade.
 
-In the Capital, at the age of 12, Juana learned Latin in 20 classes and Portuguese, alone. In addition, nahuatl spoke, an indigenous language. The Marquis de Mancera, wanting to create a brilliant court in European tradition, invited the 13-year-old prodigy girl to his wife's lady-in-waiting.
+Na Capital, aos 12 anos, Juana aprendeu latim em 20 aulas e português, sozinha.
+Além disso, falava nahuatl, uma língua indígena. O Marquês de Mancera, querendo
+criar uma corte brilhante, na tradição europeia, convidou a menina-prodígio de
+13 anos para dama de companhia de sua mulher.
 
-At the Court he charmed everyone with her beauty, intelligence and grace, becoming known and admired for his poetry, essays and humorous pieces. One day, the Viceroy decided to test the knowledge of the vivacious girl and gathered 40 experts from the University of Mexico to question her on the most diverse subjects. The audience watched, astonished, to that 15-year-old answering, for hours, the bombing of teachers' questions. And both the audience and the experts themselves applauded her, in the end, being pleased the Viceroy.
+Na Corte encantou a todos com sua beleza, inteligência e graciosidade,
+tornando-se conhecida e admirada pelas suas poesias, seus ensaios e peças
+bem-humoradas. Um dia, o Vice-rei resolveu testar os conhecimentos da vivaz
+menina e reuniu 40 especialistas da Universidade do México para interrogá-la
+sobre os mais diversos assuntos. A plateia assistiu, pasmada, àquela jovem de 15
+anos responder, durante horas, ao bombardeio das perguntas dos professores. E
+tanto a plateia como os próprios especialistas aplaudiram-na, ao final, ficando
+satisfeito o Vice-rei.
 
-But his thirst for knowledge was stronger than the illusion of continuing to shine in court.
+Mas a sua sede de saber era mais forte que a ilusão de prosseguir brilhando na
+Corte.
 
-In order to devote himself more to his studies and penetrate deep into his inner world, in an unceasing search for union with the divine, eager to understand God through his creation, he decided to enter the Convent of the Descalças Carmelites at the age of 16. Unaccustomed to ascetic rigidity, he fell ill and returned to court. Following the guidance of his confessor, he went to the order of St. Jerome da Conceição, who has fewer religious obligations, being able to devote himself to letters and science. He took the name of Soror Juana Inés de La Cruz.
+A fim de se dedicar mais aos seus estudos e penetrar com profundidade no seu
+mundo interior, numa busca incessante de união com o divino, ansiosa por
+compreender Deus através de sua criação, resolveu ingressar no Convento das
+Carmelitas Descalças, aos 16 anos de idade. Desacostumada com a rigidez
+ascética, adoeceu e retornou à Corte. Seguindo orientação de seu confessor, foi
+para a ordem de São Jerônimo da Conceição, que tem menos obrigações religiosas,
+podendo dedicar-se às letras e à ciência. Tomou o nome de Sóror Juana Inés de La
+Cruz.
 
-In her comfortable cell, surrounded by numerous books, terrestrial globes, musical and scientific instruments, Juana studied, wrote her poems, essays, dramas, religious pieces, Christmas carols and sacred music. She was often visited by European and New World intellectuals, exchanging knowledge and experiences.
+Na sua confortável cela, cercada por inúmeros livros, globos terrestres,
+instrumentos musicais e científicos, Juana estudava, escrevia seus poemas,
+ensaios, dramas, peças religiosas, cantos de Natal e música sacra. Era
+frequentemente visitada por intelectuais europeus e do Novo Mundo,
+intercambiando conhecimentos e experiências.
 
-The beautiful nun was known and admired by all, and her writings were popularized not only among religious, but also among students and masters of universities from various places. It was known as the Library Nun.
+A linda monja era conhecida e admirada por todos, sendo os seus escritos
+popularizados não só entre os religiosos, como também entre os estudantes e
+mestres das Universidades de vários lugares. Era conhecida como a Monja da
+Biblioteca.
 
-He was immortalized also for defending the woman's right to be intelligent, able to teach and preach freely.
+Se imortalizou também por defender o direito da mulher de ser inteligente, capaz
+de lecionar e pregar livremente.
 
-In 1695, there was an epidemic of plague in the region. Juana rescued during the day and night her religious sisters who, along with most of the population, were sick. They were gradually dying one of their assisted and when there was no more religious, she, slaughtered and sick, overturned, at the age of 44.
+Em 1695, houve uma epidemia de peste na região. Juana socorreu durante o dia e a
+noite as suas irmãs religiosas que, juntamente com a maioria da população,
+estavam enfermas. Foram morrendo, aos poucos, uma a uma das suas assistidas e
+quando não restava mais religiosas, ela, abatida e doente, tombou vencida, aos
+44 anos de idade.
 
-## Soror Joan a Angelica de Jesus
+## Sóror Joana Angélica de Jesus 
+Passados 66 anos do seu regresso à Pátria Espiritual, retornou, agora na cidade
+de Salvador, na Bahia, em 1761, como Joana Angélica, filha de uma abastada
+família. Aos 21 anos de idade, ingressou no Convento da Lapa, como franciscana,
+com o nome de Sóror Joana Angélica de Jesus, fazendo profissão de Irmã das
+Religiosas Reformadas de Nossa Senhora da Conceição. Foi irmã, escrivã e
+vigária, quando, em 1815, tornou-se Abadessa e, no dia 20 de fevereiro, de 1822,
+defendendo corajosamente o Convento, a casa do Cristo, assim como a honra das
+jovens que ali moravam, foi assassinada por soldados que lutavam contra a
+Independência do Brasil.
 
-After 66 years of her return to the Spiritual Homeland, he returned, now in the city of Salvador, Bahia, in 1761, as Joana Angélica, daughter of a wealthy family. At the age of 21, he entered the Convent of Lapa, as franciscan, with the name of Soror Joana Angelica de Jesus, making a profession as Sister of the Reformed Religious of Our Lady of Conception. She was a sister, clerk and vicar, when, in 1815, she became Abadessa and, on February 20, 1822, courageously defending the Convent, the house of Christ, as well as the honor of the young people who lived there, was murdered by soldiers fighting against the Independence of the Brazil.
+Nos planos divinos, já havia uma programação para esta sua vida no Brasil, desde
+antes, quando reencarnara no México como Sóror Juana Inés de La Cruz. Daí, sua
+facilidade extrema para aprender português. É que, nas terras brasileiras,
+estavam reencarnados, e reencarnariam, brevemente, Espíritos ligados a ela,
+almas comprometidas com a Lei Divina, que faziam parte de sua família espiritual
+e aos quais desejava auxiliar.
 
-In the divine plans, there was already a schedule for this life in Brazil, since before, when he reincarnated in Mexico as Sóror Juana Inés de La Cruz. Hence, its extreme ease to learn Portuguese. It is that, in Brazilian lands, they were reincarnated, and would soon reincarnate Spirits linked to it, souls committed to the Divine Law, who were part of their spiritual family and to whom they wished to help.
+Dentre esses afeiçoados a Joanna de Ângelis, destacamos Amélia Rodrigues,
+educadora, poetisa, romancista, dramaturga, oradora e contista que viveu no fim
+do século passado ao início deste.
 
-Among these fondness joanna de Ângelis, we highlight Amélia Rodrigues, educator, poet, novelist, playwright, speaker and contista who lived at the end of the last century to the beginning of this century.
+## Joanna na Espiritualidade 
+Quando, na metade do século passado, "as potências do Céu" se abalaram, e um
+movimento de renovação se alastrou pela América e pala Europa, fazendo soar aos
+"quatro cantos" a canção da esperança com a revelação da vida imortal, Joanna de
+Ângelis integrou a equipe do Espírito de Verdade, para o trabalho de implantação
+do Cristianismo redivivo, do Consolador prometido por Jesus.
 
-## In Spirituality 
-When, in the middle of the last century, "the powers of Heaven" were shaken, and a renewal movement 
-spread across America and Europe, making the song of hope sound to the "four corners" with the 
-revelation of immortal life, Joanna de Ângelis joined the Spirit of Truth team for the work 
-implementation of Redivivo Christianity, the Comforter promised by Jesus.
+E ela, no livro Após a Tempestade, em sua última mensagem, referindo-se aos
+componentes de sua equipe de trabalho diz:
 
-And she, in the book After the Storm, in her last message, referring to the components of her team 
-work says:
+Quando se preparavam os dias da Codificação Espírita, quando se convocavam
+trabalhadores dispostos à luta, quando se anunciavam as horas preditas, quando
+se arregimentavam seareiros para Terra, escutamos o convite celeste e nos
+apressamos a oferecer nossas parcas forças, quanto nós mesmos, a fim de servir,
+na ínfima condição de sulcadores do solo onde deveriam cair as sementes de luz
+do Evangelho do Reino.
 
-> When preparing the days of Spiritist Coding, when workers were called willing 
-to the struggle, when the foresaid hours were announced, when seareiros were regimented to Earth, we listened 
-the heavenly invitation and hurried to offer our sparse strength, as we ourselves, in order to serve, 
-in the tiny condition of soil sulcators where the seeds of light of the Gospel of the Kingdom should fall.
+Em O Evangelho segundo o Espiritismo, vamos encontrar duas mensagens assinadas
+por Um Espírito amigo. A primeira, no Cap. IX, item 7, com o título A paciência,
+escrita em Havre, 1862. A segunda, no Cap. XVIII, itens 13 e 15, intitulada
+Dar-se-á àquele que tem, psicografada no mesmo ano que a anterior, na cidade de
+Bordéus. Se observarmos bem, veremos a mesma Joanna que nos escreve hoje,
+ditando no passado uma bela página, como o modelo das nossas atitudes, em
+qualquer situação.
 
-In [The Gospel according to Spiritism](/books/gospel-according-spiritism), we will find two messages 
-signed by A friendly Spirit. The first one at Cap. IX, item 7, with the title Patience, written in 
-Havre, 1862. The second, in Cap. 18, items 13 and 15 entitled It will be given to the one who has, psychographed 
-in the same year as the previous year, in the city of Bordeaux. If we look closely, we'll see the same Joanna who 
-he writes to us today, dictating in the past a beautiful page, as the model of our attitudes, in any situation.
+No mundo Espiritual, Joanna estagia numa bonita região, próxima da Crosta
+terrestre.
 
-In the Spirit World, Joanna interned in a beautiful region near the Earth's Crust.
+Quando vários Espíritos ligados a ela, antigos cristãos equivocados se
+preparavam para reencarnar, reuniu a todos e planejou construir na Terra, sob o
+céu da Bahia, no Brasil, uma cópia, embora imperfeita, da Comunidade onde
+estagiava no Plano Espiritual, com o objetivo de, redimindo os antigos cristãos,
+criar uma experiência educativa que demonstrasse a viabilidade de se viver numa
+comunidade, realmente cristã, nos dias atuais. Espíritos gravemente enfermos,
+não necessariamente vinculados aos seus orientadores encarnados, viriam em
+condições de órfãos, proporcionando oportunidade de burilamento, ao tempo em
+que, eles próprios, se iriam liberando das injunções cármicas mais dolorosas e
+avançando na direção de Jesus.
 
-When several Spirits linked to it, deered ancient Christians prepared to reincarnate, he gathered 
-to all and planned to build on Earth, under the sky of Bahia, in Brazil, a copy, although imperfect, of the 
-Community where he interned in the Spiritual Plan, with the aim of, relinifying the ancient Christians, 
-create an educational experience that demonstrated the feasibility of living in a community, really 
-Christian, nowadays. Seriously ill spirits, not necessarily linked to their advisors 
-incarnated, would come in conditions of orphans, providing opportunity for fraud, at the time when, 
-themselves, they would release themselves from the most painful karmic injunctions and advancing towards Jesus.
+Engenheiros capacitados foram convidados para traçarem os contornos gerais dos
+trabalhos e instruírem os pioneiros da futura Obra.
 
-Trained engineers were invited to outline the general contours of the work and instruct 
-the pioneers of the future Work. When it was all sketched, Joanna sought to get in touch with 
-Francisco de Assisi, requesting that you examine your plans and assist in the realization of them, in the Material Plan.
+Quando estava tudo esboçado, Joanna procurou entrar em contato com Francisco de
+Assis, solicitando que examinasse os seus planos e auxiliasse na concretização
+dos mesmos, no Plano Material.
 
-The Poor Little Man of God agreed with the Mentor and offered to collaborate with the Work, provided that in this 
-Community was never to owe love the unfortunates of the world, or denied Charity to the 'Children of Calvary', 
-nor if the presumption that is verrmine was established destroying the best buildings of moral feeling.'
+O Pobrezinho de Deus concordou com a Mentora e se prontificou a colaborar com a
+Obra, desde que nessa Comunidade jamais fosse olvidado o amor aos infelizes do
+mundo, ou negada a Caridade aos 'Filhos do Calvário', nem se estabelecesse a
+presunção que é vérmina a destruir as melhores edificações do sentimento moral'.
 
-Almost a century was spent, when the Lord's workers began materialization on earth in 1947 
-of Joanna's plans, which inspired and guided, seconded by dedicated Spiritual Technicians who spread 
-ozone special by the troubled psychosphere of the chosen region, where the Mansion of the Way would be built, 
-name alluding to the House of the Way of early Christians.
+Quase um século foi passado, quando os obreiros do Senhor iniciaram na Terra, em
+1947, a materialização dos planos de Joanna, que inspirava e orientava,
+secundada por Técnicos Espirituais dedicados que espalhavam ozônio especial pela
+psicosfera conturbada da região escolhida, onde seria construída a Mansão do
+Caminho, nome dado em alusão à Casa do Caminho dos primeiros cristãos.
 
-In the meantime, the collaborators were reincarnating in different places, in different times, with 
-varied instruction and diverse experiences to gradually, and when necessary, be "called" to meet the 
-commitments made in the Spirituality. Not everyone, however, would reside in the Community, but from 
-where they met, they would send their help, extend the gospel message, solidarity and vigilantes, 
-linked to common work.
+Nesse ínterim, os colaboradores foram reencarnando em lugares diversos, em
+épocas diferentes, com instrução variada e experiências diversificadas para, aos
+poucos, e quando necessário, serem "chamados" para atender aos compromissos
+assumidos na espiritualidade. Nem todos, porém, residiriam na Comunidade, mas,
+de onde se encontrassem, enviariam a sua ajuda, estenderiam a mensagem
+evangélica, solidários e vigilantes, ligados ao trabalho comum.
 
-The growing institution always committed to assisting the suffering sains of the Earth, the ones listed 
-in the trials, those who are one step away from madness and suicide.
+A Instituição crescendo sempre comprometida a assistir os sofredores da Terra,
+os tombados nas provações, os que se encontram a um passo da loucura e do
+suicídio.
 
-Thanks to the activities developed, both materially and spiritually, with emergency therapy to newly 
-disembodied and special care, the Mansion of the Way acquired a vibration of spirituality that supplants 
-human vibrations of the who reside there and collaborate there.
+Graças às atividades desenvolvidas, tanto no plano material como no plano
+espiritual, com a terapia de emergência a recém-desencarnados e atendimentos
+especiais, a Mansão do Caminho adquiriu uma vibração de espiritualidade que
+suplantas humanas vibrações dos que ali residem e colaboram.
 
-## Source
+## Fonte
 [O Consolador (pt-BR)](http://www.oconsolador.com.br/linkfixo/biografias/joanna.html)  
-Written by [Hermínio C. Miranda](/profiles/herminio-miranda), to the book, 
-["After The Storm"](/books/joanna-de-angelis/after-the-storm) by Joanna De Ângelis.  
-Originally published by Livraria Espírita Alvorada Editora in Bahia, Brazil.  
+
+Written by [Hermínio C. Miranda](/profiles/herminio-miranda), to the book,
+["After The Storm"](/books/joanna-de-angelis/after-the-storm) by Joanna De
+Ângelis  Published originally by Livraria Espírita Alvorada Editora in Bahia,
+Brazil.  The translation (from which this extract was taken) was published by
+this publisher in conjunction with the Christian Spirit Center - Elon College,
+North Carolina.
+
+## Bibliografias Relacionadas
+[Espírito Andre Luis](../andre-luis)   
+[Espírito Emmanuel](../emmanuel)  
+[Espírito Honório](../honorio)  
+[Chico Xavier](../chico-xavier)  
+
+## Veja Também
+[Espiritismo](/espiritismo)  

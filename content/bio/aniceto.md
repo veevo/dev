@@ -9,13 +9,16 @@ topics:
 - andre-luis
 ---
 
+
 todo: Book - Os Mensageiros (Andre Luis)
 
-## See Also
-[Andre Luis](../andre-luis)   
-[Emmanuel](../emmanuel)  
+## Bibliografias Relacionadas
+[Espírito Andre Luis](../andre-luis)   
+[[Espírito Emmanuel](../emmanuel)  
 [Chico Xavier](../chico-xavier)  
-[Spiritism](/spiritism)  
 
-## Source
+## Veja Também
+[Espiritismo](/espiritismo)  
+
+## Fonte
 todo
