@@ -16,6 +16,7 @@ topics:
 - respect
 - vigilancia
 - wisdom
+- mercy
 ---
 
 Some people have strange concepts about spirits.

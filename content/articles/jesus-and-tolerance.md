@@ -9,6 +9,7 @@ topics:
 - jesus
 - compassion
 - responsibility
+- mercy
 ---
 
 In terms of deep psychology, the issue of the judgment of other people's faults

@@ -7,6 +7,7 @@ topics:
 - prayer
 - humility
 - prayer
+- mercy
 ---
 
 Humility is one of the most difficult virtues to be conquered.

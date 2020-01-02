@@ -14,6 +14,7 @@ topics:
 - justice
 - faith
 - love
+- mercy
 ---
 
 Is it possible to extend love even to enemies? This sublime feeling,

@@ -5,6 +5,7 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - discretion
 - jesus
+- mercy
 ---
 
 Narrates the Gospel of Matthew that when Jesus' enemies tried him

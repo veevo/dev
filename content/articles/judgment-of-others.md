@@ -7,8 +7,8 @@ topics:
 - empathy
 - trial
 - prayer
+- mercy
 ---
- 
 
 Famous are the judgments of history. The one from Nuremberg, which the whole world
 accompanied, opining for the punishment of those who, savagely, during the Second

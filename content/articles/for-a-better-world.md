@@ -16,6 +16,7 @@ topics:
 - respect
 - prayer
 - child
+- mercy
 ---
 
 How to wait for the improvement of the world, if so little care exists towards the

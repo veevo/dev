@@ -17,10 +17,12 @@ topics:
 - love
 - prayer
 - family
+- mercy
 ---
  
 Jesus had delivered the wonderful Sermon on the Mountain just one day ago.
 phrases echoed in the air, and those who heard Him still experienced the vibrations
+- mercy
 special so on that moment.
 
 In Capernaum, a noble man named Bartholomew became an siege of Jesus. The beautiful

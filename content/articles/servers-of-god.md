@@ -12,6 +12,7 @@ topics:
 - effort
 - love
 - prayer
+- mercy
 ---
 
 In general, the expression servant of God refers us to religious, closed

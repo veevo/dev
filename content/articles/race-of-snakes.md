@@ -8,6 +8,7 @@ topics:
 - courage
 - dignity
 - responsibility
+- merit
 ---
 
 There are people who are confused in the environment where they live to such an extent that they lose their

@@ -7,6 +7,7 @@ topics:
 - humility
 - love
 - family
+- mercy
 ---
 
 The ripe trigal looked like an immense sea curling to the taste of the wind that played

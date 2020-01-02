@@ -6,6 +6,7 @@ topics:
 - gluttony
 - charity
 - respect
+- merit
 ---
 
 

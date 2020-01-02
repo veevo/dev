@@ -16,6 +16,7 @@ topics:
 - resignation
 - sensitivity
 - prayer
+- mercy
 ---
  
 

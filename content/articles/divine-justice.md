@@ -7,6 +7,7 @@ topics:
 - justice
 - god
 - mother
+- mercy
 ---
 
  They were young, kind and friendly. His countenances radiated joy.

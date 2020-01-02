@@ -12,6 +12,7 @@ topics:
 - respect
 - responsibility
 - child
+- merit
 ---
 
 One day, the Man of Nazareth warned us and the Evangelist Matthew recorded, with

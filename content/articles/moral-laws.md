@@ -14,6 +14,7 @@ topics:
 - love
 - respect
 - prayer
+- merit
 ---
 
 The law of universal gravitation is one of the laws governing the physical

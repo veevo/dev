@@ -12,6 +12,7 @@ topics:
 - justice
 - faith
 - love
+- merit
 ---
 
 

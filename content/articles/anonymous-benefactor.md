@@ -8,6 +8,7 @@ topics:
 - prayer
 - family
 - mother
+- merit
 ---
 
 Don't know your left hand what your right hand does. The words of the

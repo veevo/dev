@@ -18,6 +18,7 @@ topics:
 - tranquility
 - child
 - family
+- mercy
 ---
 
 How's our tolerance?

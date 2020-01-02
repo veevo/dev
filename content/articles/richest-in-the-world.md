@@ -9,6 +9,7 @@ topics:
 - humility
 - respect
 - prayer
+- merit
 ---
 
 It is common to hear stories involving illustrious people from our present day.

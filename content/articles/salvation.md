@@ -15,6 +15,7 @@ topics:
 - loyalty
 - responsibility
 - prayer
+- mercy
 ---
 
 

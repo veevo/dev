@@ -12,6 +12,7 @@ topics:
 - effort
 - responsibility
 - sensitivity
+- merit
 ---
 
 

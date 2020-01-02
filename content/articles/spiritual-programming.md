@@ -6,6 +6,7 @@ topics:
 - discernment
 - reincarnation
 - child
+- mercy
 ---
 
 Before rebirth in the flesh, each Spirit elaborates a schedule to fulfill.

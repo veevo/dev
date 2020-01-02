@@ -6,6 +6,7 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - jesus
 - oração
+- mercy
 ---
 
 Fasting and prayer

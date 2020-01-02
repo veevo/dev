@@ -12,6 +12,7 @@ topics:
 - faith
 - love
 - solidarity
+- mercy
 ---
  
 

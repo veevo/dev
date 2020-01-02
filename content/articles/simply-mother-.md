@@ -8,6 +8,8 @@ topics:
 - family
 - prayer
 - mother
+- mercy
+- merit
 ---
 
 God, in His Creation, made in infinity, a beautiful garden. Through the Universe launched

@@ -6,8 +6,8 @@ topics:
 - empathy
 - pity
 - prayer
+- mercy
 ---
- 
 
 Piety is the virtue that brings us closer to angels.
 

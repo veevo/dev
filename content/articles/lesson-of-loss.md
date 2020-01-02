@@ -15,6 +15,7 @@ topics:
 - respect
 - solidarity
 - family
+- mercy
 ---
 
 What would we do if, suddenly, by some circumstances, we had in the

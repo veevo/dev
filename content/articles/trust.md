@@ -18,6 +18,7 @@ topics:
 - love
 - responsibility
 - wisdom
+- merit
 ---
 
 Trust in one's own forces fills man with courage and willingness to

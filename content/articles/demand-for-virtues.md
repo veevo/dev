@@ -5,6 +5,7 @@ image: "images/masonary-post/post-2.jpg"
 topics: 
 - discretion
 - virtues
+- merit
 ---
  
 
@@ -71,6 +72,7 @@ And if living in society is a natural condition of human beings, important that
 let us try to live well with other people.
 
 Let us do this important exercise in seeking virtues.
+
 And the merit will be greater the more difficult it is to find them and give them the
 due value.
 
