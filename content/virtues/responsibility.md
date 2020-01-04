@@ -14,6 +14,5 @@ The state or fact of having a duty to deal with something or of having control o
 	- trustworthiness, common sense, sense, maturity, reliability, dependability
 	- duty, task, function, job, role, business
 	- authority, control, power, leadership
-	- province
 	- obligation, duty
 	- responsibleness

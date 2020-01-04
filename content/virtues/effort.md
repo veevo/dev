@@ -14,8 +14,6 @@ A vigorous or determined attempt.
 	- exertion, energy, work, endeavor, application, labor, power, muscle, toil, strain, sweat, elbow grease
 	- attempt, try, endeavor, crack, shot, stab, essay
 	- achievement, accomplishment, attainment, result, feat, undertaking, enterprise, work, triumph, success, coup
-	- elbow grease, travail, exertion, sweat
 	- attempt, endeavor, try
-	- feat, exploit
 	- campaign, cause, crusade, drive, movement
 

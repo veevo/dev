@@ -13,8 +13,8 @@ influences; sensitivity.
 	  sensibility ."
 
 ## Synonyms
-	- sensitivity, finer feelings, delicacy, taste, discrimination, discernment, understanding, insight, empathy, appreciation, feeling, intuition, responsiveness, receptiveness, perceptiveness, awareness
+	- sensitivity, finer feelings, delicacy, taste
+	- discernment, understanding, insight, empathy, appreciation, feeling, intuition, responsiveness, receptiveness, perceptiveness, awareness
 	- (finer) feelings, emotions, sensitivities, moral sense
-	- esthesia, aesthesia
 	- sensitivity, sensitiveness
 

@@ -11,5 +11,10 @@ The fact or condition of being meek; submissiveness.
 	- "all his best friends make fun of him for his meekness"
 
 ## Synonyms
-	- submission
+	- faithfulness
+	- calmness
+	- disinterestedness
+	- humility
+	- moderation
+	- truthfulness
 

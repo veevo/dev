@@ -13,10 +13,7 @@ The quality or condition of being easy to understand or do.
 
 ## Synonyms
 	- clarity, clearness, plainness, simpleness, intelligibility, comprehensibility, understandability, accessibility, straightforwardness
-	- plainness, lack/absence of adornment, lack/absence of decoration, austerity, spareness, clean lines
 	- straightforwardness, ease, easiness, simpleness, effortlessness
 	- unpretentiousness, ordinariness, lack of sophistication, lack of affectation, naturalness
-	- simpleness
-	- simpleness, chasteness, restraint
 	- ease, easiness, simpleness
 

@@ -19,13 +19,8 @@ An extension of the time in which a bill or debt has to be paid.
 	- "It is merely intended as an indulgence offered by the lender to the borrower."
 
 ## Synonyms
-	- self-gratification, self-indulgence, overindulgence, intemperance, immoderation, excess, excessiveness, lack of restraint, extravagance, decadence, sybaritism
 	- satisfaction, gratification, fulfillment, satiation, appeasement, accommodation, slaking, quenching
-	- pampering, coddling, mollycoddling, spoiling, cosseting, babying, pity party
 	- tolerance, forbearance, understanding, kindness, compassion, sympathy, forgiveness, leniency, mercy, clemency, liberality
-	- extravagance, luxury, treat, nonessential, extra, frill
-	- tomfoolery, folly, craziness, foolery, lunacy
 	- leniency, lenience
 	- self-indulgence
-	- pampering
 

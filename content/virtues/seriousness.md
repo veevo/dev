@@ -10,6 +10,5 @@ topics:
 The quality or state of being serious.
 
 ## Synonyms
-	- distressfulness
 	- sincerity, earnestness
 

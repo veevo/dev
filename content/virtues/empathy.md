@@ -10,3 +10,12 @@ topics:
 The ability to understand and share the feelings of another.
 	- "Such a metaphor betrays a complete lack of understanding, of empathy with Victorian culture."
 
+## Synonyms
+	- compassion
+	- comprehension
+	- fainess
+	- gentlesness
+	- goodwill
+	- self-respect
+	- selflessness
+

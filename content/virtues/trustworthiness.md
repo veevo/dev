@@ -16,4 +16,8 @@ The trait of deserving trust and confidence.
 
 ## Synonyms
 	- trustiness
+	- credibility
+	- probity
+	- integrity
+	- fairness
 

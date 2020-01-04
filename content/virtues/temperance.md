@@ -14,4 +14,8 @@ Moderation; the observance of moderation; temperateness.
 ## Synonyms
 	- moderation
 	- sobriety
+	- decency
+	- truthfulness
+	- fairness
+	- honesty
 

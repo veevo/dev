@@ -12,7 +12,8 @@ The quality of having experience, knowledge, and good judgment; the quality of b
 
 ## Synonyms
 	- knowledge, learning, erudition, sophistication, scholarship, philosophy, lore
-	- sagacity, intelligence, sense, common sense, shrewdness, astuteness, smartness, judiciousness, judgment, prudence, circumspection, logic, rationale, rationality, soundness, advisability
+	- sagacity, intelligence, sense, common sense, shrewdness, astuteness, smartness, judiciousness, 
+	- prudence, circumspection, logic, rationale, rationality, soundness, advisability
 	- wiseness
 	- sapience
 	- wiseness, soundness

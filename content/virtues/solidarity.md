@@ -13,5 +13,7 @@ Unity or agreement of feeling or action, especially among individuals with a com
 An independent trade union movement in Poland that developed into a mass campaign for political change and inspired popular opposition to communist regimes across eastern Europe during the 1980s.
 
 ## Synonyms
-	- unanimity, unity, like-mindedness, agreement, accord, harmony, consensus, concurrence, cooperation, cohesion, fraternity, mutual support, concord
+	- unanimity, unity, like-mindedness, agreement
+	- harmony, consensus, concurrence, cooperation, cohesion
+	- fraternity, mutual support, concord
 

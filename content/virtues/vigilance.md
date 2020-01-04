@@ -13,4 +13,12 @@ The action or state of keeping careful watch for possible danger or difficulties
 ## Synonyms
 	- weather eye, watchfulness
 	- alertness, watchfulness, wakefulness
+	- bravery
+	- caution
+	- diligence
+	- prudence
+	- promptitude
+	- tact
+	- solicitude
+
 

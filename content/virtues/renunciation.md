@@ -11,11 +11,5 @@ The formal rejection of something, typically a belief, claim, or course of actio
 	- "A voluntary restructuring scheme is proposed to encourage factory closures and renunciation of quota."
 
 ## Synonyms
-	- relinquishment, giving up, abandonment, abdication, surrender, waiving, forgoing, disclaimer, abnegation
-	- abstention from, refraining from, going without, giving up, eschewal of, forswearing of
-	- repudiation, rejection, abandonment, abjuration
-	- forswearing
-	- apostasy, defection
-	- repudiation
-	- renouncement
-
+	- relinquishment, giving up, abandonment, abdication
+	- abnegation

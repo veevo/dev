@@ -22,8 +22,7 @@ Noun:
 	- field, subject, subject area, study, bailiwick, field of study
 
 Verb:  
-	- control, restrain, regulate, govern, keep in check, check, curb, keep a tight rein on, rein in, bridle, tame, bring into line
-	- punish, penalize, bring to book, reprimand, rebuke, reprove, chastise, upbraid, dress down, give someone a dressing-down, rap on/over the knuckles, give someone a roasting, call (up) on the carpet, castigate
+	- control, restrain, regulate, govern, check, check, curb, bring into line
 	- train, drill, teach, school, coach, regiment
 	- check, condition, train
 	- sort out, correct

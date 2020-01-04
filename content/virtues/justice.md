@@ -14,10 +14,8 @@ A judge or magistrate, in particular a judge of the supreme court of a country o
 	- "No one should deny the chief justice 's right under any circumstances to ensure the independence of the judiciary."
 
 ## Synonyms
-	- fairness, justness, fair play, fair-mindedness, equity, evenhandedness, impartiality, objectivity, neutrality, disinterestedness, honesty, righteousness, morals, morality
+	- fairness, justness, fair play, fair-mindedness, equity
+	- impartiality, objectivity, neutrality, disinterestedness, honesty, 
+	- righteousness, morals, morality
 	- punishment, judgment, retribution, compensation, just deserts
-	- judge, magistrate, jurist
-	- department of justice, justice department
-	- justness
-	- judge, jurist
 

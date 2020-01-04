@@ -6,13 +6,11 @@ topics:
 - virtues
 ---
 
-the act of renouncing or rejecting something.
+The act of renouncing or rejecting something.
 	- "Moreover, Llewellyn's almost complete abnegation of issues of style, iconography, authorship, or artistic quality results in a rather restricted view of the monuments as mere historical objects, as products of an industry."
-Synonyms: renunciation, rejection, refusal, abandonment, abdication, surrender, relinquishment, repudiation, denial, abjuration
 
-Synonyms
-    noun
-        - self-denial, self-sacrifice, abstinence, temperance, continence, asceticism, austerity, abstemiousness
-        - renunciation, rejection, refusal, abandonment, abdication, surrender, relinquishment, repudiation, denial, abjuration
-        - self-abnegation, self-renunciation, denial, self-denial
+## Synonyms
+	- self-denial, self-sacrifice, abstinence, temperance, continence, asceticism, austerity, abstemiousness
+	- renunciation, rejection, refusal, abandonment, abdication, surrender, relinquishment, repudiation, denial, abjuration
+	- self-abnegation, self-renunciation, denial, self-denial
 

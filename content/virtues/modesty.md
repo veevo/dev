@@ -13,6 +13,7 @@ The quality or state of being unassuming or moderate in the estimation of one's 
 ## Synonyms
 	- limited scope, moderation
 	- unpretentiousness, simplicity, plainness
-	- self-effacement, humility, unpretentiousness, shyness, bashfulness, self-consciousness, reserve, reticence, timidity
+	- self-effacement, humility, unpretentiousness
+	- self-consciousness, reticence
 	- reserve
 

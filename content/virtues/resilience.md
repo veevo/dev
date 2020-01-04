@@ -15,4 +15,9 @@ The capacity to recover quickly from difficulties; toughness.
 
 ## Synonyms
 	- resiliency
+	- fearlessnes
+	- persistence
+	- tenacity
+	- willpower
+
 

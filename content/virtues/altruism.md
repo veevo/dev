@@ -12,4 +12,8 @@ The belief in or practice of disinterested and selfless concern for the well-bei
 
 ## Synonyms
 	- selflessness
+	- abnegation
+	- desinterestedness
+	- self-sacrifice
+	- benevolence
 

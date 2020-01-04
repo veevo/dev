@@ -14,5 +14,6 @@ An inclination to perform kind, charitable acts.
 A kindly act.
 
 ## Synonyms
-	- kindness, kindheartedness, big-heartedness, goodness, goodwill, charity, altruism, humanitarianism, compassion, philanthropy, generosity, magnanimity, munificence, unselfishness, openhandedness, beneficence, bounty, bounteousness
+	- kindness, kindheartedness, big-heartedness, goodness, goodwill, charity, altruism, humanitarianism, compassion, 
+	- generosity, magnanimity, munificence, unselfishness, openhandedness, beneficence, bounty, bounteousness
 	- benefaction
