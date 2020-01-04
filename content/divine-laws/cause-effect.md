@@ -1,21 +1,26 @@
 ---
-title: Cause and effect
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Law of Cause and Effect
 date: 2019-01-11 13:00:00
-image: "images/contact.jpg"
 topics: 
-- action-reacion
+- divine-laws
 - cause-effect
-- karma
+- action-reaction
 ---
 
-The Law of Cause Effect is another name given to the Law of Action and Reacion.
+The Law of Cause and Effect is also known as the Law of Action and Reaction.
 
-For more information, check [Law of Action and Reacion](../action-reaction).
+To learn more about the Law of Action and Reaction, [click here](../action-reaction).
+
 
 ## Related Laws
-[Law of action and reaction](../action-reaction)  
+[Law of Cause and Effect] (../cause-effect)  
+[Merit Law] (../merit)  
 
-## See Also
-[Casuality](/about/casuality)
+## Related Expressions
+[Casualty] (/about/casualty)  
+[Karma] (/over/karma)
 
+## Recommended Bibliography
+The spirits' book, Allan Kardec  
+Action and reaction, André Luiz  
+Heaven and hell, Allan Kardec  

@@ -1,22 +1,89 @@
 ---
-title: Liberty
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Law of Liberty
 date: 2019-01-11 13:00:00
-image: "images/contact.jpg"
-categories:
-- "divine-laws"
 topics: 
+- divine-laws
 - liberty
 ---
 
-Personal freedom is a natural right, but absolute freedom in our actions can not exist for we all need each other and two or more people together always have reciprocal rights and duties to respect. The absolute subjection of one human being to another (slavery in whatever form) is contrary to natural law and will disappear with progress.  Also, the more developed one's reason, the more responsible one is for such treatment of another.  Abuse of position, skills, power, etc. by individuals, groups, and nations is never justified before God's law.  It is only in thought that we can enjoy absolute liberty, which may be temporarily hindered but never annihilated.  Even so, we area always responsible to God for our thoughts, which carry their natural consequences. Freedom of conscience, a characteristic of true civilization and progress, arises naturally from freedom of thought, and only God has the right to intervene in matters of conscience. To offend others whose beliefs are different shows a lack of compassion and is an infringement on others' freedom of thought.  Gentleness and compassion, never force, should be used to convince.
+## Freedom
+common sense — each one's faculty to act or decide according to their own
+without submitting to the will of one of the other.
 
-Freedom of action, or free will, develops with our freedom of thought and conscience.  It can be exercised according to our spiritual evolution and present physical stage as humans. In humans, it also suffers the influence of matter, including the particular conditions of a given body, as well as some limits created by social status.  We are, however held responsible for exhibiting the efforts to overcome such influences. Voluntary deprivation of reason, i.e. drunkenness and other self-induced conditions, are contrary to natural law.
+## Freedom, thought and action
+Between will and thought one must place the freedom to think, and between the
+thought and action, the freedom to act is placed.
 
-There is no real "fate", as the term is commonly understood, with the exception of the time of birth, death, and specific life events, including trials, both physical and ethical.  These events may be chosen by a spirit, before a given incarnation, or they may be chosen for him if his developmental states so requires.  In ethical trials, a spirit always preserves its freedom to chose between good and bad. At times, if it is compatible with our life path, we can, through the strong merit of our will and actions, prevent certain foreordained events from happening.  Most often, the future is hidden from our knowledge in order to allow for our freedom and ability to act in the present with initiative, and to make our own choices.  Rarely, however, it may be revealed in order to expedite a particular end by influencing someone to act differently.
+## Freedom in the law of men
+The largest law (constitution of a country) guarantees freedom of association,
+trade, thought, meeting, industrial, politics, professional, locomotion
+(go, come or stay) etc.
+
+## Unlimited Freedom
+There are no limitations to freedom of thought while not externalized. All
+individual is free to think what he wants, because he enjoys unlimited freedom,
+in this field. He only responds before God.
+
+## Natural freedom
+as emanation of God's will, man enjoys natural freedom, but not of
+freedom, this because it needs the similar. 
+
+Say the spirits: "as long as there are two men together, there are rights to respect
+and they will not therefore have absolute freedom. (q. 826). When someone says
+"liberal", with airs of kindness, but acts despotically, in the family or in the
+occupations of life, is that selfishness and pride are still companions to him
+Inseparable.
+
+## Freedom and slavery
+Slavery is an evil, for it is an abuse of force, which contradicts the
+law of God (natural law of freedom), will disappear with the moral progress of the
+Man. Even when, due to the inequality of skills, some are placed in the
+dependence on others, this should serve for elevation, for learning, to
+that what knows most help what knows less. So not being the man treated
+as a thing, as a commodity, as a machine, but how to be gifted with spirit.
+all progress, and there will be no moral or physical degradation.
+
+## Freedom of conscience
+According to the book of spirits (q. 835), "consciousness is a thought
+which belongs to man like all thoughts." Thus, men (and
+states) have no right to oppose freedom of conscience or to
+guidelines, for god alone is it up to God to judge the conscience of men.
+enlighten the spirits (q. 837): "freedom of conscience is one of the
+characteristics of true civilization and progress."
+
+## Free will
+It's the same as freedom to think and freedom to act. Without free will the
+man would be a robot, simple machine, guided at a distance. I have my
+free will, granted by God, and which allows me, inwardly, to choose the
+form of my thoughts, words and my deeds. 
+
+For free will, I am fiscal myself, I polish my shares, having
+as barriers only the moral brakes, which, if well regulated by me, me
+allow so-called self-control, even when tempted to do something that does not
+Should. By free will, man is lord of his will, answering by the
+their acts, in this and other lives, by the principle of action and reaction, of cause and
+effect, arising from laws of nature (of God).
+
+## Free will, fatality and human actions
+Fatality does not exist; it is the spirit, in carnating, who chooses his ordeal. The
+future is not made known to man, so that he does not neglect the present. The
+acts that practice, good or evil, are reflections of their moral and spiritual evolution.
+everything is in it.
+
+
+## Related Laws
+[Natural Law] (../natural)
+[Society Law] (../society)  
+
+## Related Expressions
+[Free Will] (/about/free-arbitrary)  
+[God] (/about/god)
+
+## Recommended Bibliography
+[The Spirits Book](/books/spirits-book), Allan Kardec  
 
 ## See Also
-TODO
+[Spiritism] (/spiritism)
 
-
-
+## Source
+[CE Ismael | Freedom Law](https://www.ceismael.com.br/download/apostila/apost1.htm)

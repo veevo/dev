@@ -1,40 +1,41 @@
 ---
-title: Law of Action and Reaction (Karma)
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Law of action-reaction
 date: 2019-01-11 13:00:00
 image: "images/contact.jpg"
 topics: 
+- divine-laws
 - action-reaction
 - cause-effect
 - karma
 ---
 
-The Law of Action and Reaction is an important law that teaches us that
-everything good or bad you do today, will benefit you or harm tomorrow. Or, as
-taught us [Jesus](/about/jesus), "each will be given according to his works." 
+The Law of Action and Reaction is an important law that teaches us that everything good or
+bad we do, will benefit us or harm us tomorrow.
+[Jesus] (/about/jesus) taught us about this law when he said "to each one will be
+according to his works." 
 
-For example, a person who now kills someone may be murdered (in this or in
-another life). Everything the person does is registered. So all that sorrow in
-his favor shall be given to him as merit and what comes against him, him will be
-charged.
+For example, a person who now kills someone may be murdered (in this or
+in another life). Everything the person does is registered. So all that
+sorrow in his favor shall be given to him as merit and what comes against him, him
+will be charged.
 
-This law also explains "unexplained" sufferings by society. For example, a good
-person, charitable, dear by all, suddenly suffers an accident and passes the
-rest of your days unused.
+This law also explains "unexplained" sufferings by society. For example,
+a good person, charitable, dear by all, suddenly suffers an accident and passes
+the rest of your days unused.
 
 Would God be committing such injustice?
 
-To the vision of other religions that do not accept reincarnation, yes. But not
-in the light of the [Spiritism] (/spiritism). That good, charitable person could
-have been a cruel killer in another life and would be thus rescuing his debt.
+To the vision of other religions that do not accept reincarnation, yes. But not in the light of the
+[Spiritism] (/spiritism). That good, charitable person could have been a
+cruel killer in another life and would be thus rescuing his debt.
 
 It is important to note that there is no escape or subterfuge in the face of
-[god's laws] (/divine-laws). However, a person can reduce their debt through the
-practice of good and [charity](/virtues/charity).
+[god's laws] (/divine laws). However, a person can reduce their debt
+through the practice of good and [charity](/virtues/charity).
 
 ## Book Quotes
 We find the law of action and reaction (also known as [law of cause and
-effect](.. /cause-effect) widely documented in [bibliography)
+effect](../cause-effect) widely documented in [bibliography)
 Spiritist](/books).
 
 [J. Herculano Pires](/bio/herculaneum-pires), for example says:
@@ -78,19 +79,19 @@ results of the shares themselves. No one escapes the laws that ensure the harmon
 Universe." (Emmanuel, in The Age of the Spirit, cap. 12.)
 
 ## Related Laws
-[Law of Cause and Effect] (.. /cause-effect)  
-[Law of Merit] (.. /merit)  
+[Law of Cause and Effect] (../cause-effect)  
+[Law of Merit] (../merit)  
 
 ## Related Expressions
 [Casualty] (/about/casualty)  
-[Karma] (/over/karma)
+[Karma] (/about/karma)
 
 ## Recommended Bibliography
-The spirits' book, Allan Kardec  
+[The Spirits Book](/books/spirits-book), Allan Kardec  
 Action and reaction, André Luiz  
 Heaven and hell, Allan Kardec  
 
-## Sources
-[O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)  
-[O Consolador | O Espiritismo responde (pt-BR)](http://www.oconsolador.com.br/ano8/371/oespiritismoresponde.html)
+## Fonts
+[The Comforter - Vocabulary] (http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)  
+[The Comforter | Spiritism responds](http://www.oconsolador.com.br/ano8/371/oespiritismoresponder.html)
 

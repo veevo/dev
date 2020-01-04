@@ -1,27 +1,58 @@
 ---
-title: Progress
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Law of Progress
 date: 2019-01-11 13:00:00
-image: "images/contact.jpg"
-categories:
-- "divine-laws"
 topics: 
+- divine-laws
 - progress
+- destruction
+- reproduction
 ---
 
-Human Beings are given the free will to act, but they must answer for the consequences of their actions.
+Since the natural state is the return to primitivism, it is soon seen that man does not
+can go backward in its evolution and, as spirits teach, the natural state is
+and man leaves him for progress and civilization; for as law
+governs every human condition, man progresses as better as better
+understands and best practices this law. 
 
-Progress is vital to the evolution of a society. Which means that the scientific discoveries that change our society daily, are actually a vital part of God’s plan for all of us. Of course the ethical evolution of a society is also a critical part of this progress. So when scientific discoveries are applied in a society void of solid ethical principles, these tools become instruments of harm instead of the instruments of learning they were intended to be used for.
+"Man develops by himself, of course, but not everyone progresses to the
+at the same time and in the same way; that's then the earliest ones help others
+progress, through social contact."
 
-As for the individual the Law of Progress means that a person is always learning and evolving. A person can get caught up in obsessions and destructive behavior but they can never forget those lessons that have truly been learned or loose the evolution gained from such learning. 
+## Moral progress and intellectual progress
+although intellectual progress can help moral progress, the two do not
+walk in parallel. By intellect, man, more easily, distinguishes the
+good of evil, the right of wrong. Thus, by the development of intelligence,
+having man the free will granted by God, he now has greater
+Responsibilities. 
 
-The progress of humanity, which is constant and never reverses, follows a master plan, whereby humans and societies must evolve, both intellectually and morally.  It is a living force; human actions and laws may block it temporarily, but will always be eventually overthrown.  As humanity evolves, human law will also evolve to become more equitable and aligned with natural laws.  When a people fails to progress at a reasonable pace, a major shock, either physical or ethical, may befall them as a way of speeding their transformation, in accordance with the design of Providence.  Intellectual progress helps lead to ethical progress by making people more discerning and better at making choices.  The two great obstacles to ethical progress are pride and selfishness¹. 
+When individuals or peoples are found more intellectually savvy and,
+however, more perverted, is because complete progress requires time, it is
+done step by step. But even so, no one can stop the march of progress,
+"because it is a condition of human nature."
 
-¹ See "The Spirits' Book" for for sub-items: Nations in Decline, Civilization, Progress of Human Law, The Contribution of the Spiritist Doctrine)
+## Degenerate peoples, human legislation and influence of spiritism on progress
+Degenerate peoples will progress through pain, suffering and reach
+perfection, because God does not help anyone. Human legislation will progress with
+the moral elevation of man. Spiritism, making man know himself
+even, by reincarnation, shows you the path of progress. 
 
+
+
+## Related Laws
+[Natural Law] (../natural)
+[Conservation Law] (../save)  
+[Law of Destruction] (../save)  
+[Society Law] (../society)  
+
+## Related Expressions
+[Free Will] (/about/free-arbitrary)  
+[God] (/about/god)
+
+## Recommended Bibliography
+[The Spirits Book](/books/spirits-book), Allan Kardec  
 
 ## See Also
-TODO
+[Spiritism] (/spiritism)
 
-
-
+## Source
+[CE Ismael | Progress Law](https://www.ceismael.com.br/download/apostila/apost1.htm)

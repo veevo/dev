@@ -1,25 +1,49 @@
 ---
-title: Destruction
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Law of Destruction
 date: 2019-01-11 13:00:00
-image: "images/contact.jpg"
-categories:
-- "divine-laws"
 topics: 
+- divine-laws
 - destruction
+- homicide
+- suicide
+- god
 ---
 
-All things in the material world, everything from a human body to the worlds in our solar system will eventually end. The elements within them of course will simply change from one form to another. This change is a necessity because from it comes renewal. On a smaller scale on earth there is constant birth, death and rebirth, materially speaking. Fire and natural calamities bring much destruction but eventually it brings about renewal. For intelligent beings like us, destruction is just another tool for learning. As our bodies decay we endure and learn from these changes. For human societies, destruction and rebuilding means grouth and new opportunities for the society to take more positive paths to meet its goals.
+## Necessary and abusive destruction
+What we call destruction is just transformation, with the aim of renewal
+and improvement of beings. You shouldn't destroy the being ahead of time. "The man
+must seek to prolong your life to fulfill your task." (L. E., Q. 730). The
+natural destructive agents serve as elements of balance of nature.
+When man destroys beyond food and safety needs, he overcomes
+the animal stores moral debts and thus parks its evolution
+Spiritual. For the imprecautionary and vanity.
 
-Now the forms of destruction caused by war and murder are not seen as part of the law of destruction. Life is sacred, and the intentional taking of a life is always a violation of divine law. And as such has clear and rational consequences in order for those involved to learn from such errors in judgment.
+## Scourges and wars
+The scourges (hunger, plague, weather, fatal floods) are hits of the
+nature and serve as warnings to men (social security and improvement). The
+wars, ambition or lack of understanding of God's Law, are intended for the
+progress of morally delayed man (by pain); the culprits for the wars
+will need various incarnations to atone for their faults.
 
-Destruction, functioning  with instinctual preservation, is a natural part of life.  Designed to establish balance and maintain an equilibrium in nature (and ranging from nature's food chain to natural calamities), it allows for renewal and transformation on Earth.  The need for destruction on each planet exists in proportion to the planet's material level.  All forms of destruction beyond the limits of necessity violate God's laws and indicate the predominance of humanity's physical nature over its spiritual one¹.
+## Murder, cruelty, duel and death penalty
+Killing someone is paying attention to the Natural Law; practicing cruelty is typical of the
+Late spirits; the duel is murder or suicide: it hurts the Law of God; the penalty
+of death represents the involution of society-state, is the return to the "tooth by
+tooth -- eye for an eye."
 
-¹ See "The Spirits' Book" for sub-items Natural Calamities, Wars, Murder, Cruelty, Duels, & Capital Punishment.
+## Related Laws
+[Conservation Law] (../save)
+[Natural Law] (../natural)  
 
+## Related Expressions
+[Free Will] (/about/free-arbitrary)  
+[God] (/about/god)
+
+## Recommended Bibliography
+[The Spirits Book](/books/spirits-book), Allan Kardec  
 
 ## See Also
-TODO
+[Spiritism] (/spiritism)
 
-
-
+## Source
+[CE Ismael | Conservation Law](https://www.ceismael.com.br/download/apostila/apost1.htm#LEI%20DE%20CONSERVA%C3%87%C3%83O%20E%20LEI%20DE%20DESTRUCTION%C3%87%C3%83O)

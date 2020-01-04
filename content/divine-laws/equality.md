@@ -1,25 +1,91 @@
 ---
-title: Equality
-description: In vestibulum massa quis arcu lobortis tempus. Nam pretium arcu in odio vulputate luctus.
+title: Law of Equality
 date: 2019-01-11 13:00:00
-image: "images/contact.jpg"
-categories:
-- "divine-laws"
 topics: 
+- divine-laws
 - equality
+- god
 ---
 
-We are all always equal in the eyes of our creator, God. Every spirit that will ever incarnate and/or reincarnate on earth is governed by the same divine laws and on the same path of evolution as the rest of us. The belief in the superiority of one group over another is a violation of God’s law. And the negation of the basic truth that we are all brothers and sisters. The reality of reincarnation also completely obliterates the idea of inequality.
+Equality is the state of what is equal; is the similarity of characters or
+Components.
 
-As part of our evolution we will be reincarnated countless times and in countless bodies of all races, religions, genders, social statuses and states of health. As for the idea of superiority or inferiority of a person based on the level of evolution of their Spirit, this too is an illusion.
+Equality before law and justice refers to equal protection and
+punishment, for the guarantee of rights or the imposition of coercive rules, which
+Force.
 
-All spirits who incarnate/reincarnate on an earthly world are basically on the same level of evolution. Once that basic level of evolution has been achieved, the spirit no longer needs to reincarnate in a human form. It is also important to realize that those who cling to the idea of superiority and inferiority are not those who are searching for the path to their own ethical and intellectual evolution.
+## Moral Equality
+Equality in the face of morality concerns the relationship between individuals, a relationship between
+whereby all have fundamental (natural) rights, born from the
+humanity, defining what is worthy of the human person.
 
-Everyone is governed by the same natural laws, sharing the same fragility, subject to the same sufferings. All Spirits are created equal. The variety of human talents and the differences in our moral and intellectual characters result from our stages in spiritual development, not from differences in creation. Men and women are equal before God in their understanding of good and bad and their ability to evolve. They compliment one another through their differences in physical strength and emotional awareness. Special treatment of either is a violation of the law of justice. Social inequalities are of human construction and will decrease as humans evolve morally. Economic inequalities have different causes, and absolute equality is impossible given the diversity in human talent and character. What matters most is how we act given what we have, and societies do have the responsibility, not to create an absolute equality in the distribution of wealth, but to see that all its members are educated and given the opportunity to develop their ethical judgment. Earthly trials are found in both poverty, which tests our resignation, as well as in power, social status, and wealth, which test our usage of such advantages with respect to others and our resistance to negative temptations. 
+## Natural equality
+(of nature, god's work). Before God, all men are equal, for the
+divine laws cover the totality of things, since "the sun was born to
+all of them." Thus, the rich and the poor; the wise and the illiterate; black and white; All
+are subject, by natural laws, to pain and physical death. There is no
+natural superiority to anyone.
 
+## Time equality
+(state, man). "all are equal before the law, without distinction of
+any nature..." (this is what ensures our constitution in Article 5
+"caput"; repeats the commandment of the "universal declaration of human rights", of
+1948). Everyone (Brazilians and foreigners residing in the country are guaranteed to
+inviolability of the rights to life, freedom, security and property.
+
+## Inequality of skills
+God created the equal spirits, but as each one lived more or lived less, and
+carried out greater or lesser quantity of works, there are the necessary gaps, in order to
+that they together complete themselves: some, doing more, helping, teaching;
+others, needing, receiving, learning. "thus the diversity of skills
+of man does not relate to the intimate nature of his creation, but with the degree
+improvement to which he has come as a spirit." By necessity,
+men unite.
+
+## Social inequalities
+Social inequalities do not stem from natural laws (laws of nature), but
+of the laws of men, with their selfish customs. For divine law, there is no
+"noble blood" or "blue blood", neither "poor blood" or "commoner's blood"; No
+there are "lords" (noble snores) and vassals or slaves. 
+
+Only the spirit is purer or less pure, because of its progress, because of the
+his effort. The division by school, tradition, clothing, position
+is the work of man, due to his moral delay. Not always the
+illiterate is at a gap with the bearer of letter titles, for what
+account are moral titles.
+
+## Wealth inequality
+Before talking about rich people, one must know the origin of wealth and how it is
+being employed, because "equality of wealth is not possible", for it would be
+think of material equality, only. What if it comes from crimes and misery so on?
+"God experiences the poor by resignation and the rich by the use he makes of his
+goods."
+
+## Equality of man and woman
+Before divine law, the spirit is only differentiated by its degree of evolution, not
+by the body, which is a passenger shelter.
+
+## Tomb equality
+Marble and bronze do not elevate the corpse to the superior condition of the one who to the
+times, he was not even buried, but that defaced because of morally noble cause.
+
+
+
+## Related Laws
+[Natural Law] (../natural)
+[Conservation Law] (../save)  
+[Law of Destruction] (../save)  
+[Society Law] (../society)  
+
+## Related Expressions
+[Free Will] (/about/free-arbitrary)  
+[God] (/about/god)
+
+## Recommended Bibliography
+[The Spirits Book](/books/spirits-book), Allan Kardec  
 
 ## See Also
-TODO
+[Spiritism] (/spiritism)
 
-
-
+## Source
+[CE Ismael | Progress Law](https://www.ceismael.com.br/download/apostila/apost1.htm)
