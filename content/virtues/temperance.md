@@ -7,7 +7,11 @@ topics:
 - temperance
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. 
+Moderation and self-restraint, as in behavior or expression.
 
-## See Also
-TODO
+Moderation; the observance of moderation; temperateness.
+
+## Synonyms
+	- moderation
+	- sobriety
+

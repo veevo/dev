@@ -4,12 +4,19 @@ description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est
 date: 2019-02-01 19:00:00
 topics: 
 - virtues
+- discernment
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+The ability to judge well.
+	- "What is within a chef's grasp, however, is the ability to maximize the essence of his or her dish by developing a refined sense of discernment when choosing ingredients."
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+In Christian contexts, perception in the absence of judgment with a view to obtaining spiritual direction and understanding.
+	- "As a teenager, I switched to an evangelical congregation because it paid more attention to spiritual practices of prayer, discernment , Bible study, and worship."
 
-## See Also
-TODO
+## Synonyms
+	- understanding, apprehension, savvy
+	- taste, perceptiveness, appreciation
+	- discretion
+	- sagacity, judgment, sagaciousness
+	- perceptiveness
 

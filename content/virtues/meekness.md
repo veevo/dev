@@ -4,9 +4,12 @@ description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est
 date: 2019-02-01 19:00:00
 topics: 
 - virtues
+- meekness
 ---
 
-todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo 
+The fact or condition of being meek; submissiveness.
+	- "all his best friends make fun of him for his meekness"
 
-## See Also 
-TODO
+## Synonyms
+	- submission
+

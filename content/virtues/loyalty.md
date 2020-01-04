@@ -7,7 +7,11 @@ topics:
 - loyalty
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+The quality of being loyal to someone or something.
+	- "The final ingredient is essential for employee loyalty and the nature of the brand."
 
-## See Also
-TODO
+## Synonyms
+	- allegiance, faithfulness, obedience, adherence, homage, devotion, steadfastness, staunchness, trueheartedness, dependability, reliability, trustworthiness, duty, dedication, commitment, patriotism, fealty
+	- allegiance, commitment, dedication
+	- trueness
+

@@ -4,9 +4,16 @@ description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est
 date: 2019-02-01 19:00:00
 topics: 
 - virtues
+- trustworthiness
 ---
 
-todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo 
+The state or character of being trustworthy.
 
-## See Also 
-TODO
+The personal state or quality of being trustworthy or reliable. Commonly regarded as a virtue.
+
+The trait of deserving trust and confidence.
+
+
+## Synonyms
+	- trustiness
+

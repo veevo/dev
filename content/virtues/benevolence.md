@@ -9,10 +9,10 @@ topics:
 - charity
 ---
 
-Benevolência [do latim benevolentia]. Qualidade do que é benevolente. Boa vontade para com alguém; estima e afeto.
+An inclination to perform kind, charitable acts.
 
+A kindly act.
 
-## See Also
-Spirits Book, Q.886
-
-
+## Synonyms
+	- kindness, kindheartedness, big-heartedness, goodness, goodwill, charity, altruism, humanitarianism, compassion, philanthropy, generosity, magnanimity, munificence, unselfishness, openhandedness, beneficence, bounty, bounteousness
+	- benefaction

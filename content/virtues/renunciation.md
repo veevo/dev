@@ -1,12 +1,21 @@
 ---
 title: Renunciation
+description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est.
 date: 2019-02-01 19:00:00
 topics: 
 - virtues
+- renunciation
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+The formal rejection of something, typically a belief, claim, or course of action.
+	- "A voluntary restructuring scheme is proposed to encourage factory closures and renunciation of quota."
 
-## See Also
-TODO
+## Synonyms
+	- relinquishment, giving up, abandonment, abdication, surrender, waiving, forgoing, disclaimer, abnegation
+	- abstention from, refraining from, going without, giving up, eschewal of, forswearing of
+	- repudiation, rejection, abandonment, abjuration
+	- forswearing
+	- apostasy, defection
+	- repudiation
+	- renouncement
 

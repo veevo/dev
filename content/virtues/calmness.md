@@ -4,9 +4,13 @@ description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est
 date: 2019-02-01 19:00:00
 topics: 
 - virtues
+- calmness
 ---
 
-todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo todo 
+The act of being calm, tender.  
 
-## See Also 
-TODO
+The state of being calm.
+
+## Synonyms
+	- Quietness; mildness; unruffled state of the mind, passions, or temper.
+	- calm, composure, equanimity

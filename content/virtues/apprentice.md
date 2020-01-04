@@ -4,14 +4,16 @@ description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est
 date: 2019-02-01 19:00:00
 topics: 
 - virtues
+- apprentice
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+A person who is learning a trade from a skilled employer, having agreed to work for a fixed period at low wages.
+	- "Real learning begins with an apprentice working at the elbow of a master craftsman, but there were not enough scholarly elbows to go around as the numbers swelled."
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+Employ (someone) as an apprentice.
+	- "The artist may be said to have been his own master, because, even when he was apprenticed to a painter he was taught less than he already knew."
 
-## See Also
-TODO
-
-
+## Synonyms
+	- trainee, learner, probationer, novice, beginner, starter, cadet, tenderfoot, pupil, student, rookie, newbie, greenhorn
+	- learner, prentice
 

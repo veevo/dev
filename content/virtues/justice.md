@@ -4,14 +4,20 @@ description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est
 date: 2019-02-01 19:00:00
 topics: 
 - virtues
+- justice
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+Just behavior or treatment.
+	- "Any gathering on this scale calling for peace and social justice would have been exciting."
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+A judge or magistrate, in particular a judge of the supreme court of a country or state.
+	- "No one should deny the chief justice 's right under any circumstances to ensure the independence of the judiciary."
 
-## See Also
-TODO
-
-
+## Synonyms
+	- fairness, justness, fair play, fair-mindedness, equity, evenhandedness, impartiality, objectivity, neutrality, disinterestedness, honesty, righteousness, morals, morality
+	- punishment, judgment, retribution, compensation, just deserts
+	- judge, magistrate, jurist
+	- department of justice, justice department
+	- justness
+	- judge, jurist
 

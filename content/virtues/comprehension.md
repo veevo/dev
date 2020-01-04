@@ -6,7 +6,10 @@ topics:
 - comprehension
 ---
 
-TODO
+The action or capability of understanding something.
+	- "And how such reading exercises would help genuine poets replenish their language defies comprehension ."
 
-## See Also 
-TODO
+## Synonyms
+	- understanding, grasp, conception, apprehension, cognition, ken, knowledge, awareness, perception, interpretation
+	- inclusion
+

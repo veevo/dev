@@ -4,12 +4,18 @@ description: Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est
 date: 2019-02-01 19:00:00
 topics: 
 - virtues
+- resignation
 ---
 
-Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum massa. Morbi eu faucibus massa. Aliquam massa urna, imperdiet sit amet mi non, bibendum euismod est. Curabitur mi justo, tincidunt vel eros ullamcorper, porta cursus justo. Cras vel neque eros. Vestibulum diam.
+An act of retiring or giving up a position.
+	- "I did say that not all ministerial resignations lead to an urgent debate."
 
-Vestibulum diam quam, mollis at consectetur non, malesuada quis augue. Morbi tincidunt pretium interdum. Morbi mattis elementum orci, nec dictum porta cursus justo. Quisque ultricies lorem in ligula condimentum, et egestas turpis sagittis. Cras ac nunc urna. Nullam eget lobortis purus. Phasellus vitae tortor non est placerat tristique. Sed id sem et massa ornare pellentesque. Maecenas pharetra porta accumsan.
+The acceptance of something undesirable but inevitable.
+	- "This short final excursion cost poor Cherub but I could see resignation and acceptance in both Belinda and Cherub upon their return."
 
-## See Also
-TODO
+## Synonyms
+	- notice, notice to quit, letter of resignation
+	- patience, forbearance, stoicism, fortitude, fatalism, acceptance, acquiescence, compliance, passivity
+	- departure, leaving, standing down, stepping down, quitting
+	- surrender
 
