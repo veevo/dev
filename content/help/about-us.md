@@ -2,108 +2,125 @@
 title: About Us
 description: Learn more about Veevo.org, our mission, our pillars and what what we expect to accomplish.
 date: 2019-01-01
-lastmod: 2019-10-15
 image: "images/contact.jpg"
 ---
 
-## About Veevo.org
-[Veevo.org](//veevo.org) is an independent, privacy-focused, completely volunteered, developed and run organization.
-We run completely [revenue-free](/help/pillars/#no-profit), we don't host ads, we don't track you, we don't generate
-any financial benefit from this website and we will never will.
+## About Veevo Portal
+[Veevo.org](//veevo.org) is an independent organization that respects your
+privacy and is completely developed, kept and run by a community of unpaid
+volunteers. 
 
-We believe that being a [zero-profit organization](/help/pillars/#no-profit) provides a solid 
-foundation to reach our goals: enlighten humanity and help people to _[know thyself](/about/know-thyself)_.  
+We don't host ads, we don't track you and we don't build 
+[any profit](/help/pillars/#no-profit) track you, we don't generate any financial benefit from this website and we will
+never will.
+
+We believe that by being a [no-profit organization](/help/pillars/#no-profit)
+we can focus on our essential purpose: enlighten humanity by helping
+people to [know thyselves](/about/know-thyself).
 
 ## Our Mission
-Our mission is to engage our readers on constructive and profound [reflexive studies](/about/reflexive-study) that engage and promote 
-[self-awareness](/about/self-awareness) through the profound and life-changing teachings of [Spiritism](/spiritism) and [The Gospel of Jesus](/gospel).
+Our mission is to engage our readers on [profound reflexive
+studies](/about/reflexive-study) promoting
+[self-awareness](/about/self-awareness) - a virtue so important for our moral
+development but sill so ignored - through a profound comprehension of the
+[Gospel of Jesus](/gospel) according to the vision of [Spiritism](/spiritism).
 
-### What is Spiritism?
-But what is Spiritism? [Spiritism](/spiritism) is not someone's work.
-It's the doctrine of the [Superior Spirits](/about/superior-spirits) promised by [Jesus](/about/jesus) on [John 14-26](/gospel/john/14-26):
+## What is Spiritism?
+But what is Spiritism? [Spiritism](/spiritism) is not someone's work.  It's the
+doctrine of the [Superior Spirits](/about/superior-spirits) promised by
+[Jesus](/about/jesus) on [John 14:26](/gospel/jo/14/26):
 
-> But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things,
-and bring all things to your remembrance, whatsoever I have said unto you.
+> But the Comforter, which is the Holy Ghost, whom the Father will send in my
+name, he shall teach you all things, and bring all things to your remembrance, 
+whatsoever I have said unto you.
 
-Spiritism's mission is to revive [His Doctrine](/gospel) on its purest essence: that lived and exemplified by the 
-first Christans on the first three centuries of our era but then so much distorted, misinterpreted,
-ignored and misunderstood by the humanity for over 2000 years.
+Spiritism's mission is to revive [the Doctrine of the Christ Comforter](/gospel)
+on its purest essence: that lived and exemplified by the first Christans on the
+first three centuries of our era and then so much distorted, misinterpreted,
+manipulated and misunderstood by the humanity for over 2000 years.
 
-It's the [Comforter](/about/comforter) codified by [Allan Kardec](/bio/allan-kardec) and mentored by the
-[Spirit of Truth](/about/spirit-of-truth), Jesus Himself.
+[Spiritism](/spiritism) was codified by [Allan Kardec](/bio/allan-kardec) which
+investigated and documented in depth different types of spiritual influences
+(good and bad) and all the work was mentored directly by the [Spirit of
+Truth](/about/spirit-of-truth), Jesus Himself.
 
 ## Where does the name `Veevo` come from?
-`Veevo`, as pronounced in English has the same phonetic as *"vivo"* in the beautiful [Portuguese Language](https://en.wikipedia.org/wiki/Portuguese_language).
-*Vivo* in Portuguese means **"alive"** or **"I live"**.  Both perfectly represent our essential and immortal nature.
+`Veevo` when pronounced in English has the same phonetic as `vivo` in the
+beautiful [Portuguese Language](https://en.wikipedia.org/wiki/Portuguese_language).
+`Veevo` in Portuguese means `alive` or `I live`. Both of which perfectly representing 
+our immortal essence.
 
-Spiritists know they're primarily and essentially an [Immortal Spirit](/about/immortal-spirit) for which there's no [death](/about/death),
-just life, a glorious, [happy](/about/happiness), [virtuous](/virtues) and [Eternal Life](/about/eternal-life).
+We spiritists already know that in essence, we're [immortal spirits](/about/immortal-spirit) 
+- to which which there's no [death](/about/death), just life. A glorious, 
+[happy](/about/happiness), [virtuous](/virtues) and [eternal life](/about/eternal-life)
+- and we wanted to share that feeling with all the humanity.
 
 ## What are our Pillars?
-Our Pillars are: Spiritism, Education, Openness, Collaboration and No Profit.  
+Our Pillars are: Spiritism, Education, Openness, Collaboration and No Profit.
 For more information, please check our [pillars page](/help/pillars).
 
 ## Content
-We strongly believe on [Education](/pillars/education). We only publish content from primarily trusted 
-authors and trusted sources on this site that respect and honor the Spiritist Doctrine and the Gospel faithfully.
-All that rigidness is important because small distortions can cause big misunderstandings.
+As mentioned, we believe (and were instructed to) promote [Education](/pillars/education)
+and [self-awareness](/about/self-awareness). Due to that, it's important that we
+be rigorous with the quality of the material we provide so we do not disclose content 
+that does not adhere to the precepts of Spiritism.
+
+For that reason, we only publish content from primarily trusted authors and
+sources that respect and honor the Spiritist Doctrine and the Gospel of Jesus.
+All that rigidness is important because small distortions can cause big
+misunderstandings.
 
 ## Translations
-We also translate and revise every published content on each of our supported languages.
-Our intention is to be as faithful as possible to the original source, always adhering to our [pillars](/help/pillars) 
-and respecting our rigid guidelines. Please note that given the amount of content we host (more than 10,000 pages),
-errors may happen but you're invited to [collaborate](/contribute).
+The vast majority of the material available on this site has been published
+originally in the Portuguese language. Due to that, it's probable that 
+the content that you are reading was translated. Due to the vast amount of
+material we host, it's possible that you find errors despite the careful review
+of our volunteers.
 
-We also provide a lot of content for reading and studying such as [books](/books), [movies](/movies), 
-[videos](/videos), [articles](/articles) and more. 
-
-Please check our [Resources](/resources) page where we show all the categories available on the site. 
+If you notice any errors, please [contact us](/contact), we will be happy to fix. 
+We would also like to remind you that everyone is invited to [collaborate](/contribute).
 
 ## Searching
-Not finding what you're looking for? Our website provides a [search tool](/search) tool so you 
-can quickly find what you're looking for.
-
-We also index and categorize all content so make sure that you're also searching a content by topic.
+Not finding what you're looking for? Our website provides a [search
+tool](/search) tool so you can quickly find what you're looking for.
+We also categorize all our content so you get to the material you look for more
+easily.
 
 ## Contributing
-We invite everyone to contribute. For that reason, on the sidebar we expose a _Contribute_ section
-in which we invite our users to collaborate. We also host a [Contribute](/contribute) section 
-so users can reach out to us by there.
-
-Please note that we strive for the purity of the content and we curate every single information
-available on this website.
-
-For more information, please use the [Contact us page](../contact-us).
-
+Did you like the site and would like to contribute? Visit the 
+[Contribute](/contribute) page so you can learn how you too can help.
 
 ## Copyleft
-We invite eveyone to [share our content](/contribute/share) freely. We expose this website under [Copyleft terms](https://en.wikipedia.org/wiki/Copyleft), which means that we offer people the right to freely distribute copies of our work with the stipulation that the same rights be preserved in derivative works created late.
+We invite eveyone to openly [share our content](/contribute/share). We chose to
+expose this website under [Copyleft terms](https://en.wikipedia.org/wiki/Copyleft)
+what means that everyone can freely distribute copies of our work. However, we
+kindly ask that:
+1. the origninal content be not modified and;
+2. that the original authors be preserved and mentioned when reutilized;
 
-According to [Wikipedia](https://en.wikipedia.org/wiki/Copyleft):
-
-> Copyleft is a form of licensing, and can be used to maintain copyright conditions for works ranging from computer software, to documents, to art, to scientific discoveries and instruments in medicine.[3] In general, copyright law is used by an author to prohibit recipients from reproducing, adapting, or distributing copies of their work. In contrast, under copyleft, an author must give every person who receives a copy of the work permission to reproduce, adapt, or distribute it, with the accompanying requirement that any resulting copies or adaptations are also bound by the same licensing terms. 
-
-> Copyleft type licenses are a novel use of existing copyright law to ensure a work remains freely available.
-
-However, we have one request: that when shared, the content from this site be not modified. Any modification may cause serious damage on the original work deteriorating the quality of the work and consequently its essential message.
+We would like to re-empathize the importance of not modifying the content
+exposed on this site. Any modification can cause serious damage to the original work,
+deteriorating the essence of the communication and, consequently, its original message.
 
 ## Errors
-While every published content is reviewed and validated against the foundations of the [Spiritist Doctrine](/spiritism), sometimes we make mistakes. If you spot one, feel free to [report it to us](/contribute/report-error) or use one of the other channels available to do so.
+Although all content posted on this site is reviewed and validated by our
+volunteers according to the foundations of the [Spiritist Doctrine](/spiritism), 
+sometimes we make mistakes. If you detect any, please [please reach out to us](/contact).
 
-We provide on the sidebar for most content a hyperlink for error reporting.
-Please note that we strive for the purity of the content and we curate every single information
-available on this website.
-
-For more information, please use the [Contact us page](../contact-us).
+You can also learn more about error reporting on the [contact us](../contact
+us) and [contribute](/contribute) pages.
 
 ## Response Time
-[Openness](/help/pillars/#openness), one of our pillars, is also a commitment that we should reply inquiries as fast as possible. While we do our best efforts to respond as quick as possible, please note that we are a completely volunteer-based organization and delays may occur.
+[Openness](/help/pillars/#openness), one of our pillars, means that we're
+commited to reply inquiries as fast as possible. However, please note that we
+are a completely volunteer-based organization and delays may occur.
 
 To know how to reach out to us, please check the [Contact Us](/help/contact-us) page.
 
 ## How to get started?
-Want to start from the begginning? Please check the [Get Started](/get-started) section 
-for a guided step-by-step on how to build a plan of study suitable to you.
+Don't you know where to start? We suggest the [Get-Started](/get-started) page,
+where we prepared a step-by-step guide on how to build a custom study plan for
+you.
 
 
 ## Related Topics
