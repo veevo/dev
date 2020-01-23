@@ -5,7 +5,7 @@ date: 2019-01-01
 image: "images/contact.jpg"
 ---
 
-## About Veevo Portal
+## About Veevo
 [Veevo.org](//veevo.org) is an independent organization that respects your
 privacy and is completely developed, kept and run by a community of unpaid
 volunteers. 
@@ -73,12 +73,10 @@ misunderstandings.
 ## Translations
 The vast majority of the material available on this site has been published
 originally in the Portuguese language. Due to that, it's probable that 
-the content that you are reading was translated. Due to the vast amount of
-material we host, it's possible that you find errors despite the careful review
-of our volunteers.
+the content that you are reading was translated by our community. Please note
+that we only publish articles after careful review of our volunteers.
 
-If you notice any errors, please [contact us](/contact), we will be happy to fix. 
-We would also like to remind you that everyone is invited to [collaborate](/contribute).
+If you notice any errors, please report clicking here.
 
 ## Searching
 Not finding what you're looking for? Our website provides a [search
@@ -117,11 +115,15 @@ are a completely volunteer-based organization and delays may occur.
 
 To know how to reach out to us, please check the [Contact Us](/help/contact-us) page.
 
-## How to get started?
+## Privacy
+For more information about our privacy policy, please [visit
+this page](.. /privacy).
+
+
+# How to get started?
 Don't you know where to start? We suggest the [Get-Started](/get-started) page,
 where we prepared a step-by-step guide on how to build a custom study plan for
 you.
-
 
 ## Related Topics
 [Help - Pillars](/help/pillars)  

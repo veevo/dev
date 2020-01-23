@@ -6,10 +6,11 @@ image: "images/contact.jpg"
 ---
 
 ## Content
-We strongly believe in the power of [Education](/pillars/education). That said,
-we have rigorous rules regarding the authors we publish. Given the complexity we
-only publish content from a small list of selected authors. The only content
-that we write ourselves are pages like this, descriptions or introductions. 
+We strongly believe in the power of [Education](/pillars/education).
+We have rigorous rules regarding the content we publish. Given the complexity of
+the topics we expose, we only publish content from a small list of admittedly
+trusted authors. The only content that we write ourselves are pages like this,
+descriptions or introductions. 
 
 When the content is not authored by us, we strive to provide the original
 source, author name, publication name, access date and applicable additional
@@ -30,19 +31,8 @@ we'll always keep an open channel so readers can report and/or fix errors when
 applicable.
 
 ## Privacy
-We are an independent, extremely concerned about your privacy developing this
-independet work only by volunteers. We don't host ads, we don't store cookies
-and we don't benefit financially in any shape of form from this site. We believe
-that being a [no-profit organization](/pillars/no-profit) provides a solid
-foundation to reach our objectives respecting your privacy.
-
-Please also notice that due to its simplicity, our website restricts to the
-minium, the dependencies on third-party software that we use so that your privacy is
-respected at the most. Also, our open-codebase guarantees that what we affirm
-here be audited when necessary.
-
-We also don't store any information in a database. All communication is private,
-anonymous and will never be divulged.
+For more information about our privacy policy, please [visit
+this page](.. /privacy).
 
 ## Third-Party Providers
 In order to minimize our costs, we rely on generous services from companies like

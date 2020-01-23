@@ -5,20 +5,34 @@ date: 2019-02-13 14:00:00
 image: "images/contact.jpg"
 ---
 
-## Veevo's Privacy Policy
-We don't host ads, we don't use cookies and we don't track you in any shape of form.
+We are an independent, extremely concerned about your privacy developing this
+independet work only by volunteers. We don't host ads, we don't store cookies
+and we don't benefit financially in any shape of form from this site. We believe
+that being a [no-profit organization](/pillars/no-profit) provides a solid
+foundation to reach our objectives respecting your privacy.
 
-We don't get any financial benefit from this website and we will never will.
+Please also notice that due to its simplicity, our website restricts to the
+minium, the dependencies on third-party software that we use so that your privacy is
+respected at the most. Also, our open-codebase guarantees that what we affirm
+here be audited when necessary.
 
-If ever, we kindly ask our readers to volunteer in [Spiritist Centers](/spiritism/centers), 
-divulging [Spiritism](/spiritism) or work supporting people in need.
+We also don't store any information in a database. All communication is private,
+anonymous and will never be divulged.
 
-The only charity we ask from you are: "love yourself and love your neighbour" and
-"do unto others what you would like them doing to you."
+## Third-Party Providers
+In order to minimize our costs, we rely on generous services from companies like
+[GitHub](//github.com), [Microsoft Azure](//azure.com), [Twitter](//twitter.com)
+and [Google](//google.com). Please note that these companies may have different
+policies than ours. 
+
+
+## Ad-blocking Software
+If you care about your privacy, feel free to use the [ad blocking
+software](https://en.wikipedia.org/wiki/Ad_blocking) of your preference.
 
 ## Related Topics
-[About Us](/help/about-us)  
-[Contact](/help/contact-us)  
-[Disclaimer](/help/disclaimer)  
+[About Us](../about-us)  
+[Contact](../contact-us)  
+[Disclaimer](../disclaimer)  
 [Contribute](/contribute)  
 
