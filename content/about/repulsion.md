@@ -2,6 +2,7 @@
 title: Repulsion
 date: 2019-02-01 19:00:00
 topics:
+- repulsion
 ---
 
 Repulsion - [from Latin repulsione ] Strength by virtue of which some bodies repel each 

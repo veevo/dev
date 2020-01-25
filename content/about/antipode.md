@@ -1,6 +1,8 @@
 ---
 title: Antipode
 date: 2019-01-11 13:00:00
+topics:
+- antipode
 ---
 
 Inhabitant who, in relation to another of the globe, 

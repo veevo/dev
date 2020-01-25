@@ -1,6 +1,8 @@
 ---
 title: Estereologic
 date: 2019-02-01 19:00:00
+topics:
+- estereologic
 ---
 
 Aparição que adquire as propriedades da matéria resistente e tangível. 

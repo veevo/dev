@@ -1,6 +1,8 @@
 ---
 title: Choque Anímico
 date: 2019-02-01 19:00:00
+topics:
+- animic-chock
 ---
 
 Tratamento energético dos desencarnados promovido com a manifestação dos mesmos, 

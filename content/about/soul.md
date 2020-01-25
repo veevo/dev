@@ -1,5 +1,5 @@
 ---
-title: Body and Soul
+title: Soul
 date: "2019-01-01"
 image: "images/contact.jpg"
 topics:

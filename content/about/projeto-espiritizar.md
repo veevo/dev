@@ -2,7 +2,8 @@
 title: Projeto Espiritiza
 description: Saiba mais sobre o Projeto Espiritizar
 date: 2019-02-01 19:00:00
-tags:
+topics:
+- projeto-espiritizar
 - espiritismo
 - espiritizar
 - honorio

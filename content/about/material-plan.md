@@ -1,6 +1,8 @@
 ---
 title: Material Plan
 date: 2019-02-01 19:00:00
+topics:
+- material-plan
 ---
 
 We know that there are various existential dimensions or planes; 

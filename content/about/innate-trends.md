@@ -1,6 +1,8 @@
 ---
 title: Innate Trends
 date: 2019-02-01 19:00:00
+topics:
+- innate-trends
 ---
 
 Trends, ideas or knowledge not acquired that we seem to bring at birth. 

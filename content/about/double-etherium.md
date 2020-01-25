@@ -1,6 +1,8 @@
 ---
 title: Double-etherium
 date: 2019-02-01 19:00:00
+topics:
+- double-etherium
 ---
 
 Algumas regiões do Brasil preferem duplo etéreo a perispírito, embora mantendo-se o sentido deste. 
