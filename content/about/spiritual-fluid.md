@@ -8,12 +8,12 @@ topics:
 - spirits
 ---
 
-Spiritual fluid is the [Universal fluid](../universal-fluid) developed or accumulated 
-by the Spirit under the action of your thinking. 
+Spiritual fluid is the [Universal fluid](../universal-fluid) developed or
+accumulated by the Spirit under the action of your thinking. 
 
-The name _Expandable Fluid_ refers to the spiritual fluid emitted by the expandable part of the perispirit, 
-that is, the one that under its domain and thought can be combined with the animalized 
-fluid of a medium.
+The name _Expandable Fluid_ refers to the spiritual fluid emitted by the
+expandable part of the perispirit, that is, the one that under its domain and
+thought can be combined with the animalized fluid of a medium.
 
 ## See Also
 [Spiritism](/spiritism)  

@@ -5,9 +5,9 @@ topics:
 - nature
 ---
 
-Nature - [from the Latin natura ]. 
-Set of laws that govern the existence of things and the succession of beings. 
-Active force that has established and maintains the natural order of how much there is. 
+Nature - [from the Latin natura ].  Set of laws that govern the existence of
+things and the succession of beings.  Active force that has established and
+maintains the natural order of how much there is. 
 
 Essence; quality; species.
 

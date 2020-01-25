@@ -8,8 +8,8 @@ topics:
 
 Organogenesis - [from the Greek organon + genesis ]. 
 
-Chapter of the biological sciences that studies the way the organs 
-are formed and developed from the embryo.
+Chapter of the biological sciences that studies the way the organs are formed
+and developed from the embryo.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

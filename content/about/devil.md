@@ -7,8 +7,8 @@ topics:
 - angels
 ---
 
-Conforme a Doutrina dos Espíritos, constitui-se a personificação do mal; é um ser alegórico, resumindo 
-em si todas as paixões más dos Espíritos imperfeitos. 
+Conforme a Doutrina dos Espíritos, constitui-se a personificação do mal; é um
+ser alegórico, resumindo em si todas as paixões más dos Espíritos imperfeitos. 
 
 Espírito ou gênio do mal. demônio. Satanás.
 

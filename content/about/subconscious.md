@@ -7,7 +7,9 @@ topics:
 - spiritism
 ---
 
-Subconscious [from sub + conscious Latin ] - The set of psychic processes and facts that are latent in the individual, but influence his conduct and can easily emerge from consciousness: tendencies, habits, memories and knowledge.
+Subconscious [from sub + conscious Latin ] - The set of psychic processes and
+facts that are latent in the individual, but influence his conduct and can
+easily emerge from consciousness: tendencies, habits, memories and knowledge.
 
 ## See Also
 [Spiritism](/spiritism)   

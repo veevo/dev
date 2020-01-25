@@ -9,12 +9,12 @@ topics:
 
 Unconscious [from Latin in + conscious ] - 
 
-The set of psychic processes and facts that act upon the conduct of the individual, 
-but which escape the realm of consciousness, to which they cannot be brought about 
-by effort of will or memory. 
+The set of psychic processes and facts that act upon the conduct of the
+individual, but which escape the realm of consciousness, to which they cannot
+be brought about by effort of will or memory. 
 
-However, they may arise in dreams, in failed acts, in neurotic or psychotic states, 
-that is, when consciousness is not vigilant.
+However, they may arise in dreams, in failed acts, in neurotic or psychotic
+states, that is, when consciousness is not vigilant.
 
 ## See Also
 [Spiritism](/spiritism)  

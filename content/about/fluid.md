@@ -7,8 +7,8 @@ topics:
 - spiritism
 ---
 
-Diz-se das substâncias líquidas ou gasosas.  
-Que corre ou se expande à maneira de um líquido ou gás.
+Diz-se das substâncias líquidas ou gasosas.  Que corre ou se expande à maneira
+de um líquido ou gás.
 
 ## See Also
 Fluídico

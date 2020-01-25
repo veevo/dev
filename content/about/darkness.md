@@ -9,7 +9,8 @@ topics:
 
 Escuridão absoluta.
 
-Conforme informa o Espírito André Luiz, as regiões mais inferiores conhecidas no Mundo Espiritual.
+Conforme informa o Espírito André Luiz, as regiões mais inferiores conhecidas
+no Mundo Espiritual.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

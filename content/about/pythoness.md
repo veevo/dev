@@ -5,11 +5,11 @@ topics:
 - pythoness 
 ---
 
-Pythoness - Priestess of Apollius Python in Delphi, also called pythia because 
+Pythoness - Priestess of Apollius Python in Delphi, also called pythia because
 of the Python serpent that Apollo had killed. 
 
-The pythia gave the oracles, but as they were not always intelligible, the priests 
-were in charge of interpreting them according to the circumstances. 
+The pythia gave the oracles, but as they were not always intelligible, the
+priests were in charge of interpreting them according to the circumstances. 
 
 
 ## Source

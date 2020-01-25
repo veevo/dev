@@ -5,10 +5,11 @@ topics:
 - fatalistm
 ---
 
-Corrente filosófica segundo a qual as coisas estão predeterminadas e se produzirão, apesar do esforço 
-contrário da inteligência e da vontade. 
+Corrente filosófica segundo a qual as coisas estão predeterminadas e se
+produzirão, apesar do esforço contrário da inteligência e da vontade. 
 
-Observação: o Espiritismo não se vincula a tal modo de ver e interpretar os fatos da vida. 
+Observação: o Espiritismo não se vincula a tal modo de ver e interpretar os
+fatos da vida. 
 
 ## See Also
 Livre-arbítrio.

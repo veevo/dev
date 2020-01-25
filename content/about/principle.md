@@ -5,7 +5,7 @@ topics:
 - principle
 ---
 
-Principle - [from Latin principiu ]. The moment when a thing has a beginning, 
+Principle - [from Latin principiu ]. The moment when a thing has a beginning,
 beginning or origin. Primary cause; base; reason. 
 
 Rule; law; moral precept. Theory.

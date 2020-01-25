@@ -7,8 +7,9 @@ topics:
 
 Spiritist Movement - 
 
-The Spiritist Movement is the set of activities that aim to place the Spiritist Doctrine 
-within the reach and service of all Humanity, through its study, its practice and its dissemination.
+The Spiritist Movement is the set of activities that aim to place the Spiritist
+Doctrine within the reach and service of all Humanity, through its study, its
+practice and its dissemination.
 
 ## See Also
 [Spiritism](/spiritism)  

@@ -9,10 +9,11 @@ topics:
 
 Reincarnation [from the Latin re + incarnatione ] - 
 
-1. Return of the Spirit to the corporeal life, in a new body specially formed for him. 
-It is progressive or stationary, never retrograde. 
+1. Return of the Spirit to the corporeal life, in a new body specially formed
+   for him.  It is progressive or stationary, never retrograde. 
 
-2. One of the personalities of the Spirit within the plurality of their existences. 
+2. One of the personalities of the Spirit within the plurality of their
+   existences. 
 
 ## When does the reincarnation occur?
 Reincarnation can occur immediately after death, or after a longer or shorter period 

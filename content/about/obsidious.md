@@ -6,8 +6,8 @@ topics:
 - mediumship
 ---
 
-Obsidious - Patient of obsession, one who suffers the pernicious 
-influence of an incarnate or disembodied Spirit. 
+Obsidious - Patient of obsession, one who suffers the pernicious influence of
+an incarnate or disembodied Spirit. 
 
 Synonymous with Obsessed.
 

@@ -15,7 +15,8 @@ Revelation [from the Latin revelatione ] -
 3. Revealed religious doctrine, as opposed to reason alone.
 
 
-Set of truths manifested by someone or something to man through inspiration or oral teaching, communication to prophets, apostles and other men.
+Set of truths manifested by someone or something to man through inspiration or
+oral teaching, communication to prophets, apostles and other men.
 
 ## See Also
 [Spiritism](/spiritism)  

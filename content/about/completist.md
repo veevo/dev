@@ -5,7 +5,8 @@ topics:
 - completist
 ---
 
-Designa aqueles que aproveitaram todas as oportunidades construtivas oferecidas pela reencarnação.
+Designa aqueles que aproveitaram todas as oportunidades construtivas oferecidas
+pela reencarnação.
 
 ## See Also
 [Nosso Lar](/books/nosso-lar)

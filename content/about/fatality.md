@@ -7,8 +7,8 @@ topics:
 
 Que tem de ser, irrevogável, inevitável.
 
-Para o Espiritismo, a única fatalidade da vida material é a morte biológica, com a 
-conseqüente desencarnação do Espírito. 
+Para o Espiritismo, a única fatalidade da vida material é a morte biológica,
+com a conseqüente desencarnação do Espírito. 
 
 ## See Also
 Livre-arbítrio.

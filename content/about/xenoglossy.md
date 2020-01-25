@@ -11,7 +11,8 @@ topics:
 
 Xenoglossy [from Greek xenon = foreign, foreign + glous = language + -ia] - 
 
-Faculty of speaking or writing languages foreign to the medium himself. Very rare.
+Faculty of speaking or writing languages foreign to the medium himself. Very
+rare.
 
 ## See Also
 [Spiritism](/spiritism)  

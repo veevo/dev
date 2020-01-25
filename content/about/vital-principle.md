@@ -11,8 +11,8 @@ topics:
 
 Vital Principle [or magnetic fluid, or animalized electric fluid]. 
 
-An agent that gives activity and movement to living beings and makes them distinguish 
-themselves from inert matter. 
+An agent that gives activity and movement to living beings and makes them
+distinguish themselves from inert matter. 
 
 Intermediate between [Spirit](../spirit) and [matter](../matter).
 

@@ -9,7 +9,8 @@ topics:
 - spiritism
 ---
 
-Psychophony [from Greek psyké = butterfly, soul + phoné = sound, voice + - ia ] - 
+Psychophony [from Greek psyké = butterfly, soul + phoné = sound, voice + - ia ]
+- 
 
 Communication of Spirits by the voice of a speaking medium. 
 

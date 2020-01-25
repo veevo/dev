@@ -6,8 +6,8 @@ topics:
 - sleep
 ---
 
-Special state of the organism, characterized by relative inactivity,
-reduced consciousness and little reaction to external stimuli. 
+Special state of the organism, characterized by relative inactivity, reduced
+consciousness and little reaction to external stimuli. 
 
 In this state occurs the phenomenon of emancipation or unfolding of the soul.
 

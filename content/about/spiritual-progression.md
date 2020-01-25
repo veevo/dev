@@ -7,8 +7,8 @@ topics:
 - spiritism
 ---
 
-Spiritual progression is the gradual evolution of the [Spirit](../spirit) throughout
-its multiple [incarnations](../incarnation).
+Spiritual progression is the gradual evolution of the [Spirit](../spirit)
+throughout its multiple [incarnations](../incarnation).
 
 It's important to note that the Spirit never retrogrades.
 

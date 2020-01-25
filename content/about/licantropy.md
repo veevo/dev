@@ -11,10 +11,12 @@ topics:
 
 Lycanthropy [from the Greek lykanthropía ] - 
 
-1. Mental illness in which the sick person considers himself transformed into a wolf. 
+1. Mental illness in which the sick person considers himself transformed into a
+   wolf. 
 
-2. Perispiritic metamorphosis, processed through hypnotic induction, of the inferiorized 
-disincarnate in his guilt, which takes shape and acts as a wolf. 
+2. Perispiritic metamorphosis, processed through hypnotic induction, of the
+   inferiorized disincarnate in his guilt, which takes shape and acts as a
+   wolf. 
 
 Species of Zoanthropy .
 

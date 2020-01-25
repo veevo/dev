@@ -6,5 +6,11 @@ topics:
 - future-life
 ---
 
-Future life reserves for Human Beings penalties and pleasures according to the respect they do or do not show for God’s laws.
+Future life reserves for Human Beings penalties and pleasures according to the
+respect they do or do not show for God’s laws.
 
+## See Also
+todo
+
+## Related
+todo

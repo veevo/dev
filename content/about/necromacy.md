@@ -7,8 +7,8 @@ topics:
 
 Necromancy [Greek nekros = death + mantea = divination] - 
 
-Art of evoking the souls of the dead for revelation. 
-By extension, this word has been applied to all means of divination. 
+Art of evoking the souls of the dead for revelation.  By extension, this word
+has been applied to all means of divination. 
 
 ## See Also
 Palmistry and Fortune Telling.

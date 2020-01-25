@@ -9,14 +9,14 @@ topics:
 
 Satan [ from the Hebrew Chaitán = adversary, enemy of God] - 
 
-The word Satan is synonymous with the devil, except that the latter is more generic, 
-applying to all demons, while the former applies to a unique being.
+The word Satan is synonymous with the devil, except that the latter is more
+generic, applying to all demons, while the former applies to a unique being.
 
-God's rival. In spirit understanding, however, Satan or Satan is not a distinct being, 
-being the allegorical embodiment of evil and all evil spirits.
+God's rival. In spirit understanding, however, Satan or Satan is not a distinct
+being, being the allegorical embodiment of evil and all evil spirits.
 
-Satan [ of the Hebrew Chaitán = adversary, enemy of God] - 
-Form derived from Satan.
+Satan [ of the Hebrew Chaitán = adversary, enemy of God] - Form derived from
+Satan.
 
 ## See Also
 [Devil](../devil)  

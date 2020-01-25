@@ -5,8 +5,8 @@ topics:
 - narcolepsy
 ---
 
-Narcolepsy [from Greek nárke = torpor + lepsis = access] - 
-Uncontrollable desire for sleep or sudden sleep attacks that appear at intervals.
+Narcolepsy [from Greek nárke = torpor + lepsis = access] - Uncontrollable
+desire for sleep or sudden sleep attacks that appear at intervals.
 
 
 ## Source

@@ -9,8 +9,8 @@ topics:
 
 Precognition [from Latin praecognitu + -tion ] - 
 
-1. Knowing before, form of extrasensory perception; knowledge of a future event 
-that cannot be logically inferred. 
+1. Knowing before, form of extrasensory perception; knowledge of a future event
+   that cannot be logically inferred. 
 
 2. Prophecy, prediction, prediction, etc.
 

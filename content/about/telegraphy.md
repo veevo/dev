@@ -6,7 +6,8 @@ topics:
 - telepathy
 ---
 
-Telegraphy - [from the Greek têle + graphé ]. System that transmits graphic signals at a distance.
+Telegraphy - [from the Greek têle + graphé ]. System that transmits graphic
+signals at a distance.
 
 ## Human telegraphy
 Communication at a distance between two living persons, which evoke each other. 

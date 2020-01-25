@@ -9,7 +9,8 @@ topics:
 
 Transport [from Latin trans + portare ] - 
 
-Faculty of physical effect that allows spirits to transport objects from one place to another.
+Faculty of physical effect that allows spirits to transport objects from one
+place to another.
 
 ## See Also
 [Spiritism](/spiritism)  

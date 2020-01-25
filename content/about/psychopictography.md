@@ -5,8 +5,8 @@ topics:
 - psychopictography 
 ---
 
-Psychopictography - Mediumistic faculty to make paintings or drawings using the hands 
-of the psychopictograph medium.
+Psychopictography - Mediumistic faculty to make paintings or drawings using the
+hands of the psychopictograph medium.
 
 
 ## Source

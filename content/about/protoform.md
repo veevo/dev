@@ -7,11 +7,11 @@ topics:
 - perispirit
 ---
 
-Protoform - perispiritic instrument of the savage, extremely condensed by its 
+Protoform - perispiritic instrument of the savage, extremely condensed by its
 integration with the denser matter. 
 
-In primitive man the moral life is beginning to appear and the perispirit in them 
-is still enormously pasty.
+In primitive man the moral life is beginning to appear and the perispirit in
+them is still enormously pasty.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

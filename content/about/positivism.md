@@ -5,8 +5,8 @@ topics:
 - positivism 
 ---
 
-Positivism - [of positive]. System created by Augusto Comte, of empiricist and 
-anti-metaphysical character, that refuses any value judgment not embodied in a 
+Positivism - [of positive]. System created by Augusto Comte, of empiricist and
+anti-metaphysical character, that refuses any value judgment not embodied in a
 scientific certainty and identical essence and phenomenon.
 
 ## Source

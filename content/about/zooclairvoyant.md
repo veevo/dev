@@ -8,7 +8,7 @@ topics:
 
 Zooclairvoyant [from Latin zoo + seer ] - 
 
-Animal (mainly dogs and horses) that has the psychic faculty of clairvoyance of 
+Animal (mainly dogs and horses) that has the psychic faculty of clairvoyance of
 disembodied spirits.
 
 ## See Also

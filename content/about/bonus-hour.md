@@ -1,11 +1,12 @@
 ---
-title: Bônus-hora
+title: Bonus-Hour
 date: 2019-02-01 19:00:00
 topics:
 - vocabulary
 ---
 
-Bônus-hora - Remuneração espiritual relativa a cada hora de serviço prestado nas colônias espirituais.
+Bônus-hora - Remuneração espiritual relativa a cada hora de serviço prestado
+nas colônias espirituais.
 
 ## See Also
 [Andre Luis](/bio/andre-luis)  

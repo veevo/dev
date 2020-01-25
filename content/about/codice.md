@@ -5,11 +5,14 @@ topics:
 - vocabulary
 ---
 
-Forma característica do manuscrito em pergaminho, denominada por oposição à forma de rolo. 2.  
-Registro ou compilação de manuscritos, documentos históricos ou leis.
+Forma característica do manuscrito em pergaminho, denominada por oposição à
+forma de rolo. 2.  Registro ou compilação de manuscritos, documentos históricos
+ou leis.
 
-Word History: Cōdex is a variant of caudex, a wooden stump to which petty criminals were tied in ancient 
-Rome, rather like our stocks. This was also the word for a book made of thin wooden strips coated with wax upon which one wrote.
+Word History: Cōdex is a variant of caudex, a wooden stump to which petty
+criminals were tied in ancient Rome, rather like our stocks. This was also the
+word for a book made of thin wooden strips coated with wax upon which one
+wrote.
 
 
 ## See Also

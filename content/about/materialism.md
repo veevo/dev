@@ -8,10 +8,13 @@ topics:
 - spiritualism
 ---
 
-Materialism [from Latin materiale + -ismo ] - System of those who think that everything is matter in man and thus nothing survives in him after the destruction of the body. Materialism that is based solely on denial cannot cope with the evidence of the facts.
+Materialism [from Latin materiale + -ismo ] - System of those who think that
+everything is matter in man and thus nothing survives in him after the
+destruction of the body. Materialism that is based solely on denial cannot cope
+with the evidence of the facts.
 
-Please note that Allan Kardec created the neologism [Spiritism](/spiritism), 
-by indication of the Spirits, for differentiation with the more generic term 
+Please note that Allan Kardec created the neologism [Spiritism](/spiritism), by
+indication of the Spirits, for differentiation with the more generic term
 "spiritualism " which indicates the opposite of materialism.
 
 

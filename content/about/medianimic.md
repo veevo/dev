@@ -8,7 +8,8 @@ topics:
 
 Medianimic [from Latin measured + anima + -ico ] - 
 
-Quality of mediums power; intermediate faculty through the resources of his own soul.
+Quality of mediums power; intermediate faculty through the resources of his own
+soul.
 
 ## See Also
 [Spiritism](/spiritism)  

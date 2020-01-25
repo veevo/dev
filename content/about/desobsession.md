@@ -5,11 +5,12 @@ topics:
 - disobsession
 ---
 
-Em sentido restrito: é o tratamento das obsessões orientado pela Doutrina Espírita, 
-em reuniões especializadas.
+Em sentido restrito: é o tratamento das obsessões orientado pela Doutrina
+Espírita, em reuniões especializadas.
 
-Em sentido amplo: processo de regeneração da Humanidade, através da renovação moral dos 
-envolvidos que, assim, desvinculam-se do passado sombrio e vencem a si mesmos. 
+Em sentido amplo: processo de regeneração da Humanidade, através da renovação
+moral dos envolvidos que, assim, desvinculam-se do passado sombrio e vencem a
+si mesmos. 
 
 ## See Also
 Obsession

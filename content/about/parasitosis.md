@@ -6,9 +6,9 @@ topics:
 - vampirism
 ---
 
-Parasitosis [from Greek parasites and Latin parasitu ] - 
-The process of obsession in which the obsessor plays the role of parasite 
-and the obsessed host, with the former sucking the vital principles of the latter. 
+Parasitosis [from Greek parasites and Latin parasitu ] - The process of
+obsession in which the obsessor plays the role of parasite and the obsessed
+host, with the former sucking the vital principles of the latter. 
 
 Just like [ Vampirism ](../vampirism).
 

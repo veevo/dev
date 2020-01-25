@@ -5,7 +5,8 @@ topics:
 - atheist
 ---
 
-Aquele que pratica o ateísmo e não crê em Deus ou que não segue religião alguma.
+Aquele que pratica o ateísmo e não crê em Deus ou que não segue religião
+alguma.
 
 ## See Also
 [Atheism](../atheism)

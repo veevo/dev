@@ -7,8 +7,8 @@ topics:
 
 Personify - [from Latin persona + facere ]. Consider as a person. 
 
-Attribute to an inanimate thing, an abstraction, the image, the feelings 
-or the language of a real person. 
+Attribute to an inanimate thing, an abstraction, the image, the feelings or the
+language of a real person. 
 
 Perform or represent in the figure of a person; express by a type.
 

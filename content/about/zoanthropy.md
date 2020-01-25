@@ -14,8 +14,8 @@ Zoanthropy [from the Latin zo (o) - + antrop (o) + -ia ] -
 
 1. Mental disorder in which the sick person believes himself to be an animal. 
 
-2. Perispiritic metamorphosis, through a process of hypnotic induction, in which the 
-disembodied Spirit, still inferior, gains the animalistic form.
+2. Perispiritic metamorphosis, through a process of hypnotic induction, in
+   which the disembodied Spirit, still inferior, gains the animalistic form.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

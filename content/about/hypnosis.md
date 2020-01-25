@@ -5,7 +5,7 @@ topics:
 - hypnosis
 ---
 
-Hypnosis is a human condition involving focused attention, reduced peripheral 
+Hypnosis is a human condition involving focused attention, reduced peripheral
 awareness, and an enhanced capacity to respond to suggestion. 
 
 There are competing theories explaining hypnosis and related phenomena.

@@ -7,8 +7,8 @@ topics:
 
 Ritual [from Latin rituale ] - 
 
-A set of practices that are consecrated by use and / or by rules,
-and must be invariably observed at certain times. Any ceremonial; usual. 
+A set of practices that are consecrated by use and / or by rules, and must be
+invariably observed at certain times. Any ceremonial; usual. 
 
 Book of rites of any cult. Protocol.
 

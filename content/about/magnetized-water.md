@@ -7,7 +7,8 @@ topics:
 - spiritism
 ---
 
-Also known as Fluidized water, it is magnetized water, impregnated with beneficial, fortifying or therapeutic fluids.
+Also known as Fluidized water, it is magnetized water, impregnated with
+beneficial, fortifying or therapeutic fluids.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

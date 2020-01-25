@@ -7,8 +7,8 @@ topics:
 
 Paraclete - [from Latin Paracletu , Greek parákletos ]. 
 
-Holy Spirit. Mentor, defender, intercessor. 
-One who indicates or suggests to others what to do.
+Holy Spirit. Mentor, defender, intercessor.  One who indicates or suggests to
+others what to do.
 
 ## See Also
 [Spiritual Guide](../spiritual-guide)

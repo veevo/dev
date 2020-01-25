@@ -8,11 +8,11 @@ topics:
 
 Pantheism [from the Greek pan, pantós = all, all + theism ] - 
 
-1. The doctrine that only God is real and the world is a set of manifestations 
-or emanations. 
+1. The doctrine that only God is real and the world is a set of manifestations
+   or emanations. 
 
-2. The doctrine that only the world is real, 
-God being the sum of all that exists.
+2. The doctrine that only the world is real, God being the sum of all that
+   exists.
 
 ## See Also
 [God](../god)

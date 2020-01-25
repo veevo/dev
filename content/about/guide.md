@@ -8,8 +8,9 @@ topics:
 
 Aquele que mostra o caminho, cicerone. 2. 
 
-De acordo com a Doutrina Espírita, é o Espírito ligado a um indivíduo ou a um grupo de pessoas, 
-comprometido com o progresso de seus assistidos, sobre os quais tem maior hierarquia moral e espiritual. 
+De acordo com a Doutrina Espírita, é o Espírito ligado a um indivíduo ou a um
+grupo de pessoas, comprometido com o progresso de seus assistidos, sobre os
+quais tem maior hierarquia moral e espiritual. 
 
 ## See Also
 Guia Espiritual - Ver Guia.

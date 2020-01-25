@@ -5,7 +5,9 @@ topics:
 - mediumship
 ---
 
-Mediumiunato [from Latin medium + act ] - Name created by the Spirits, to signify the providential mission of the mediums, the mediumistic action that they develop during the reincarnation.
+Mediumiunato [from Latin medium + act ] - Name created by the Spirits, to
+signify the providential mission of the mediums, the mediumistic action that
+they develop during the reincarnation.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

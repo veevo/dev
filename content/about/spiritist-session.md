@@ -10,11 +10,12 @@ topics:
 
 Spiritist Session - 
 
-It is the gathering of people in the Spiritist House, with the purpose of studying and 
-practicing the Doctrine of Spirits. 
+It is the gathering of people in the Spiritist House, with the purpose of
+studying and practicing the Doctrine of Spirits. 
 
-It may be public, such as doctrinal and passing sessions, or private, as the mediums of 
-spirit guidance, disobsession or education and development of [mediumship](/spiritism/mediumship).
+It may be public, such as doctrinal and passing sessions, or private, as the
+mediums of spirit guidance, disobsession or education and development of
+[mediumship](/spiritism/mediumship).
 
 ## See Also
 [Spiritism](/spiritism)  

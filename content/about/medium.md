@@ -7,7 +7,13 @@ topics:
 - spiritism
 ---
 
-Medium . [from Latin medium = medium, intermediate] 1. People accessible to the influence of spirits, and more or less endowed with the ability to receive and transmit their communications. For spirits, the medium is an intermediary, an instrument according to the nature or degree of the mediumistic faculty. This faculty depends on a special organic disposition, susceptible of development. 2. There are a variety of mediums: speakers (psychophony), writers (psychography), psychics, audiences, curators, etc.
+Medium . [from Latin medium = medium, intermediate] 1. People accessible to the
+influence of spirits, and more or less endowed with the ability to receive and
+transmit their communications. For spirits, the medium is an intermediary, an
+instrument according to the nature or degree of the mediumistic faculty. This
+faculty depends on a special organic disposition, susceptible of development.
+2. There are a variety of mediums: speakers (psychophony), writers
+(psychography), psychics, audiences, curators, etc.
 
 
 ## Source

@@ -7,11 +7,12 @@ topics:
 - allan-kardec
 ---
 
-Pentateuch - [from the Greek pentáteukhos ]. Designation given by the Greeks 
-to the set of the first five books of the Bible. 
+Pentateuch - [from the Greek pentáteukhos ]. Designation given by the Greeks to
+the set of the first five books of the Bible. 
 
-Spiritism: set formed by the five books that form the Spiritist Codification 
-(Book of Spirits, Gospel According to Spiritism, Genesis, Heaven and Hell, Book of Mediums).
+Spiritism: set formed by the five books that form the Spiritist Codification
+(Book of Spirits, Gospel According to Spiritism, Genesis, Heaven and Hell, Book
+of Mediums).
 
 ## See Also
 [Spiritism](/spiritism)  

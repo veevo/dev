@@ -8,12 +8,12 @@ topics:
 
 Wisdom - [to know]. 
 
-Extensive and deep knowledge of things. 
-Science. 
+Extensive and deep knowledge of things.  Science. 
 
 Quality of those who are knowledgeable, who are well educated. 
 
-Great circumspection and prudence; judgment; common sense; reason; righteousness. 
+Great circumspection and prudence; judgment; common sense; reason;
+righteousness. 
 
 Teol Inspirational knowledge of divine things.
 

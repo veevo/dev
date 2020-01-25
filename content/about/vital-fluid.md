@@ -6,8 +6,8 @@ topics:
 - life
 ---
 
-Vital fluid is the organic principle extracted from the universal fluid, 
-with the property of animating all living beings, and which returns to the deposit 
+Vital fluid is the organic principle extracted from the universal fluid, with
+the property of animating all living beings, and which returns to the deposit
 of nature during the biological death process.
 
 ## See Also

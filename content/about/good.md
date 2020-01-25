@@ -7,9 +7,11 @@ topics:
 
 Good [from bene latin] - 
 
-1. Quality attributed to human actions and works that gives them a moral character. 
+1. Quality attributed to human actions and works that gives them a moral
+   character. 
 
-2. All that benefits and assists the progress of man from the moral point of view. 
+2. All that benefits and assists the progress of man from the moral point of
+   view. 
 
 3. Please, benefit.
 

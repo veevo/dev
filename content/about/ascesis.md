@@ -1,11 +1,12 @@
 ---
-title: Ascese
+title: Ascesis
 date: 2019-02-01 19:00:00
 topics:
 - ascesis
 ---
 
-Ascese [do grego áskesis] - Exercício prático que leva à efetiva realização da virtude, à plenitude da vida moral
+Ascese [do grego áskesis] - Exercício prático que leva à efetiva realização da
+virtude, à plenitude da vida moral
 
 ## Related
 Asceta [do grego asketes] - Pessoa que se consagra à ascese.  

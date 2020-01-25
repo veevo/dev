@@ -11,10 +11,11 @@ topics:
 
 Transfiguration [from Latin transfiguratione ] - 
 
-1. Transformation, metamorphosis, radical change in appearance, character, and form. 
+1. Transformation, metamorphosis, radical change in appearance, character, and
+   form. 
 
-2. Phenomenon in which the medium undergoes a change in physiognomy and expression through 
-fluidic involvement of the manifesting Spirit.
+2. Phenomenon in which the medium undergoes a change in physiognomy and
+   expression through fluidic involvement of the manifesting Spirit.
  
 ## See Also
 [Spiritism](/spiritism)  

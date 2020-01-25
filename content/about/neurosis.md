@@ -8,7 +8,7 @@ topics:
 
 Neurosis [Greek neûron + -ose ] - 
 
-Mental disorder that does not compromise the essential functions of the 
+Mental disorder that does not compromise the essential functions of the
 personality and in which the individual is painfully aware of his state.
 
 ## Source

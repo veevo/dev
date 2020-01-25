@@ -5,8 +5,9 @@ topics:
 - ectoplasm
 ---
 
-Aparelho concentrador de ectoplasma existente no mundo espiritual, descrito pelo Espírito André Luiz, e que 
-reproduz as imagens projetadas pelo pensamento daquele a quem é aplicado.
+Aparelho concentrador de ectoplasma existente no mundo espiritual, descrito
+pelo Espírito André Luiz, e que reproduz as imagens projetadas pelo pensamento
+daquele a quem é aplicado.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

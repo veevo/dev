@@ -5,9 +5,9 @@ topics:
 ---
 
 This study aims to develop reflections on the immortal Spirit that we all are,
-so that people become more aware of their spiritual condition and from there seek 
-to become better Spirits connected with evolution vertically and not only horizontal 
-as most people do.
+so that people become more aware of their spiritual condition and from there
+seek to become better Spirits connected with evolution vertically and not only
+horizontal as most people do.
 
 
 ## Source

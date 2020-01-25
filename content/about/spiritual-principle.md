@@ -7,7 +7,8 @@ topics:
 
 Principle from which the individualization of the spirit occurs. 
 
-One of the general elements of the universe in partnership with the Universal Cosmic Fluid.
+One of the general elements of the universe in partnership with the Universal
+Cosmic Fluid.
 
 
 ## See Also

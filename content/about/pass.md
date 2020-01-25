@@ -12,14 +12,14 @@ Pass [from Latin passare ] -
 
 1. Transfusion of psychophysical energies altering the cell body. 
 
-2. Transmission of fluids from one person, incarnated or not, to another, or to objects. 
+2. Transmission of fluids from one person, incarnated or not, to another, or to
+   objects. 
 
-3. The pass may be: 
-a) magnetic, when only the fluids of the embodied agent are transmitted; 
-b) mixed, when the spiritual fluids are added to the first, by the will of the 
-Spiritual Benefactors, 
-c) spiritual, when there is no intermediary of the passista, with the fluids 
-of the spirits being directly transferred.
+3. The pass may be: a) magnetic, when only the fluids of the embodied agent are
+   transmitted; b) mixed, when the spiritual fluids are added to the first, by
+   the will of the Spiritual Benefactors, c) spiritual, when there is no
+   intermediary of the passista, with the fluids of the spirits being directly
+   transferred.
 
 ## See Also
 [Spiritism](/spiritism)  

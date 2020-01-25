@@ -8,8 +8,8 @@ topics:
 - spirits
 ---
 
-Pictography [from Latin pictu, participle of pingere = to paint + o + graf (o) + ia] - 
-Painting or drawing made by Spirit through medium.
+Pictography [from Latin pictu, participle of pingere = to paint + o + graf (o)
++ ia] - Painting or drawing made by Spirit through medium.
 
 
 ## Source

@@ -7,8 +7,8 @@ topics:
 
 Sematology [from Greek sema, semato = sign + logos = discourse] - 
 
-Transmission of the thought of spirits by means of signs, such as strokes, beats, 
-movements of objects, etc. 
+Transmission of the thought of spirits by means of signs, such as strokes,
+beats, movements of objects, etc. 
 
 
 ## See Also

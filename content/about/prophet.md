@@ -8,9 +8,8 @@ topics:
 
 Prophet - [from Greek prophétes ; Latin propheta ]. 
 
-One who foretells by divine inspiration; fortune teller; 
-Soothsayer; title given by the Mohammedans to Mafoma; one who conjectures about 
-the future.
+One who foretells by divine inspiration; fortune teller; Soothsayer; title
+given by the Mohammedans to Mafoma; one who conjectures about the future.
 
 
 ## Source

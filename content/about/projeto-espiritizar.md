@@ -1,6 +1,5 @@
 ---
-title: Projeto Espiritiza
-description: Saiba mais sobre o Projeto Espiritizar
+title: Espiritizar Project
 date: 2019-02-01 19:00:00
 topics:
 - projeto-espiritizar

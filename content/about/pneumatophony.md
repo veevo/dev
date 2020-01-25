@@ -7,9 +7,9 @@ topics:
 - medium
 ---
 
-Pneumatophony [Greek pneuma = air, and phoné = sound or voice] - 
-Verbal and direct communication of spirits without the concurrence of human 
-phonatory organs. 
+Pneumatophony [Greek pneuma = air, and phoné = sound or voice] - Verbal and
+direct communication of spirits without the concurrence of human phonatory
+organs. 
 
 Direct voice.
 

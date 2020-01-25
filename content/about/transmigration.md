@@ -7,7 +7,8 @@ topics:
 
 Transmigration [from Latin trans + migratione ] - 
 
-The act or effect of transmigrating (passing), passing (the Spirit) from one body to another. See: Metempsychosis , Reincarnation .
+The act or effect of transmigrating (passing), passing (the Spirit) from one
+body to another. See: Metempsychosis , Reincarnation .
  
 ## See Also
 [Spiritism](/spiritism)  

@@ -8,13 +8,14 @@ topics:
 
 Obsession [from Latin obsessione ] - 
 
-1. Domain that some spirits can acquire over certain people. 
-It is never practiced except by the inferior spirits who seek to dominate. 
-Good spirits no embarrassment inflict. 
-They advise, fight the influence of the wicked, and if they do not listen to them, they withdraw. 
-The bad guys, by contrast, cling to those from whom they can prey. 
+1. Domain that some spirits can acquire over certain people.  It is never
+   practiced except by the inferior spirits who seek to dominate.  Good spirits
+   no embarrassment inflict.  They advise, fight the influence of the wicked,
+   and if they do not listen to them, they withdraw.  The bad guys, by
+   contrast, cling to those from whom they can prey. 
 
-If they come to dominate any of them, they identify with their Spirit and lead him as a true child. 
+If they come to dominate any of them, they identify with their Spirit and lead
+him as a true child. 
 
 2. It is classified into simple obsession, fascination and subjugation. 
 

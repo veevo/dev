@@ -9,8 +9,9 @@ Qualidade ou faculdade de vidente.
 
 Pessoa que tem o uso da vista, em oposição a cego.
 
-Para a Doutrina Espírita, é a faculdade que possuem alguns médiuns de ver com os olhos da alma.  
-A visão geral e permanente dos Espíritos é excepcional e não está nas condições normais do homem.
+Para a Doutrina Espírita, é a faculdade que possuem alguns médiuns de ver com
+os olhos da alma.  A visão geral e permanente dos Espíritos é excepcional e não
+está nas condições normais do homem.
 
 ## See Also
 Parasitose

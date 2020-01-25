@@ -1,5 +1,5 @@
 ---
-title: Método Reflexivo-consciencial
+title: Reflective-Awareness Method
 description: Saiba mais sobre o Método Reflexivo-consciencial
 date: 2019-02-01 19:00:00
 tags:

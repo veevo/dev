@@ -6,9 +6,9 @@ topics:
 - mediumship
 ---
 
-Obsessor [Latin obsessore ] - inferior spirit, any agent or karmic obsession, 
-embodied or disembodied, in thoughtless or premeditated action, dominates, chases, 
-harasses or intrusive, because of the established moral line. 
+Obsessor [Latin obsessore ] - inferior spirit, any agent or karmic obsession,
+embodied or disembodied, in thoughtless or premeditated action, dominates,
+chases, harasses or intrusive, because of the established moral line. 
 
 Synonymous with Obsidious.
 

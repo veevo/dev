@@ -7,8 +7,8 @@ topics:
 
 Amor próprio excessivo, desconsiderando o interesse alheio.
 
-Doutrina que coloca o interesse individual 
-como norteador da conduta humana e dos seus preceitos morais.
+Doutrina que coloca o interesse individual como norteador da conduta humana e
+dos seus preceitos morais.
 
 Exclusivismo, egocentrismo.
 

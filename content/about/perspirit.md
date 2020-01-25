@@ -1,5 +1,5 @@
 ---
-title: Perispírito
+title: Perspirit
 date: 2019-02-01 19:00:00
 topics:
 - perispirit
@@ -8,24 +8,25 @@ topics:
 - allan-kardec
 ---
 
-Perispirit [from Latin peri = around + spiritus= spirit] - 
-Semimaterial shell of the Spirit after its separation from the body.  
-In the incarnate, it serves as a bond or intermediary between Spirit and matter. 
+Perispirit [from Latin peri = around + spiritus= spirit] - Semimaterial shell
+of the Spirit after its separation from the body.  In the incarnate, it serves
+as a bond or intermediary between Spirit and matter. 
 
-The Spirit takes you from the world you are in and changes you as you move from 
-one to another. It is more or less subtle or crude, depending on the nature of 
-each globe. The perispirit can take all forms at will of the Spirit; 
-ordinarily he assumes the image that he had in his last bodily existence. 
+The Spirit takes you from the world you are in and changes you as you move from
+one to another. It is more or less subtle or crude, depending on the nature of
+each globe. The perispirit can take all forms at will of the Spirit; ordinarily
+he assumes the image that he had in his last bodily existence. 
 
-Although ethereal in nature, the substance of the perispirit is susceptible to certain 
-modifications that make it perceptible to us. 
+Although ethereal in nature, the substance of the perispirit is susceptible to
+certain modifications that make it perceptible to us. 
 
-This is what happens in the apparitions. It may even, by its union with the fluid of 
-certain people, become temporarily tangible, that is, offer to the touch the 
-resistance of a solid body, as seen in stereological or palpable apparitions. 
+This is what happens in the apparitions. It may even, by its union with the
+fluid of certain people, become temporarily tangible, that is, offer to the
+touch the resistance of a solid body, as seen in stereological or palpable
+apparitions. 
 
-The perispirit is,to the Spirit what the perisperm is to the germ of the fruit. 
-The almond, stripped of its woody casing, encloses the germ under the delicate 
+The perispirit is,to the Spirit what the perisperm is to the germ of the fruit.
+The almond, stripped of its woody casing, encloses the germ under the delicate
 perisperm casing.
 
 ## What is the perispirit?

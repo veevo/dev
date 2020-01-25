@@ -5,7 +5,8 @@ topics:
 - grudge
 ---
 
-Grudge - [from the Latin grudge ]. Deep resentment from the hurt suffered without protest. Hate, unmanifest.
+Grudge - [from the Latin grudge ]. Deep resentment from the hurt suffered
+without protest. Hate, unmanifest.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

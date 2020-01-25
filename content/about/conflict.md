@@ -5,7 +5,8 @@ topics:
 - conflice
 ---
 
-Embate dos que lutam. 2. Situação de competição, gerando uma sensação de desconforto.
+Embate dos que lutam. 2. Situação de competição, gerando uma sensação de
+desconforto.
 
 ## See Also
 TODO

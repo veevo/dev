@@ -6,16 +6,17 @@ topics:
 - life
 ---
 
-The physical body is the instrument of the [soul](../soul).
-It the main tool given by [God](../god) to us to help in our [moral development](/virtues).
+The physical body is the instrument of the [soul](../soul).  It the main tool
+given by [God](../god) to us to help in our [moral development](/virtues).
 
-We should above all, take as much care of our bodies since it is
-the greatest gift we have for our evolution and spiritual progression.
+We should above all, take as much care of our bodies since it is the greatest
+gift we have for our evolution and spiritual progression.
 
-According to [Emmanuel](/bio/emmanuel), the physical body reflects the 
+According to [Emmanuel](/bio/emmanuel), the physical body reflects the
 [spiritual body](../spiritual-body):
 
-> "Desde a fase embrionária do instrumento em que se manifestará no mundo, o Espírito nele (no corpo físico) plasma reflexos que lhe são próprios.”
+> "Desde a fase embrionária do instrumento em que se manifestará no mundo, o
+> Espírito nele (no corpo físico) plasma reflexos que lhe são próprios.”
 
 
 ### A sanctuary for the humankind

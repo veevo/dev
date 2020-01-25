@@ -7,7 +7,7 @@ topics:
 
 Psychiatry [Greek psyché = soul + -iatry ] - 
 
-Part of medicine that deals with the study and treatment of mental illness, 
+Part of medicine that deals with the study and treatment of mental illness,
 from the physical and biological point of view.
 
 ## Source

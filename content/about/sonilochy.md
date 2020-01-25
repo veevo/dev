@@ -7,7 +7,8 @@ topics:
 
 Soniloquia [from Latin somnus = sleep + loqui = speak] - 
 
-State of emancipation of the soul intermediate to sleep and natural sleepwalking.
+State of emancipation of the soul intermediate to sleep and natural
+sleepwalking.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

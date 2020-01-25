@@ -5,7 +5,7 @@ topics:
 - pride
 ---
 
-Pride [of Spanish orgullo ] - Elevated or exaggerated concept of itself; 
+Pride [of Spanish orgullo ] - Elevated or exaggerated concept of itself;
 self-esteem too; superb. Presumption.
 
 ## Source

@@ -5,7 +5,8 @@ topics:
 - clairvoyant
 ---
 
-Pessoa dotada de mediunidade de vidência que, lhe permite ver os espíritos e o mundo espiritual. 
+Pessoa dotada de mediunidade de vidência que, lhe permite ver os espíritos e o
+mundo espiritual. 
 
 ## See Also
 Vidência

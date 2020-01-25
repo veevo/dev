@@ -12,7 +12,7 @@ topics:
 
 Psychopraxy [Greek psyché = spirit + praxis = action] - 
 
-A term of little use and that means the same as incorporation, the action of a 
+A term of little use and that means the same as incorporation, the action of a
 Spirit through the body of a medium. 
 
 See: Incorporation .

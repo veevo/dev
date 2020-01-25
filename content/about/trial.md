@@ -13,7 +13,13 @@ topics:
 
 Trials (s) [from Latin proba ] - 
 
-It is the vicissitudes of bodily life, by which the spirits purify themselves according to the manner in which they support them. According to the Spiritist Doctrine, the spirit detached from the body, recognizing its imperfection, chooses itself, by act of its free will, the kind of evidence that it judges most appropriate to its advance and will suffer in its new existence. If he chooses a test above his strength, he succumbs and his advance slows down. See: Atonement .
+It is the vicissitudes of bodily life, by which the spirits purify themselves
+according to the manner in which they support them. According to the Spiritist
+Doctrine, the spirit detached from the body, recognizing its imperfection,
+chooses itself, by act of its free will, the kind of evidence that it judges
+most appropriate to its advance and will suffer in its new existence. If he
+chooses a test above his strength, he succumbs and his advance slows down. See:
+Atonement .
 
 ## See Also
 [Expiation](../expiation)

@@ -7,7 +7,7 @@ topics:
 - medium
 ---
 
-Pneumatography [Greek pneuma = air, breath, wind, spirit + graph = I write] - 
+Pneumatography [Greek pneuma = air, breath, wind, spirit + graph = I write] -
 Direct writing of the spirits without the tender hand of the medium.
 
 ## Source

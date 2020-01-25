@@ -5,7 +5,7 @@ topics:
 - somnambulism
 ---
 
-Sleepwalker [French somnambule ] - A person who is sleepwalking and can get up, 
+Sleepwalker [French somnambule ] - A person who is sleepwalking and can get up,
 walk and talk while sleeping. 
 
 

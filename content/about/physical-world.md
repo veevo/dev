@@ -7,10 +7,10 @@ topics:
 - spiritual-world
 ---
 
-The Physical World, also known as the mortal realm, world of man or Earth, 
-is he world in which ordinary man moves and is conscious under normal conditions.
+The Physical World, also known as the mortal realm, world of man or Earth, is
+he world in which ordinary man moves and is conscious under normal conditions.
 
-It is the limit of the ego's descent into matter, and the matter which composes 
+It is the limit of the ego's descent into matter, and the matter which composes
 the appropriate physical body is the densest of any of these worlds. 
 
 Physical matter has the seven divisions of solid, liquid, gas, ether and atoms.

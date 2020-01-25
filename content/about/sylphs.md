@@ -7,10 +7,10 @@ topics:
 
 Sylphs [from Latin sylphu ] - 
 
-According to the Celtic and Germanic mythology of the Middle Ages, the sylphs were the 
-geniuses of the air, as the gnomes were those of the earth and the undines were those 
-of the waters. They were represented in human form, semi-vaporous, with graceful features, 
-transparent wings. 
+According to the Celtic and Germanic mythology of the Middle Ages, the sylphs
+were the geniuses of the air, as the gnomes were those of the earth and the
+undines were those of the waters. They were represented in human form,
+semi-vaporous, with graceful features, transparent wings. 
 
 They were given the power to become visible or invisible at will.
 

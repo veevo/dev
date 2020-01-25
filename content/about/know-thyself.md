@@ -7,23 +7,31 @@ topics:
 
 Allan Kardec, Codificador do Espiritismo, perguntou aos Espíritos:
 
-Qual o meio prático mais eficaz que tem o homem de se melhorar nesta vida e de resistir à atração do mal?
+Qual o meio prático mais eficaz que tem o homem de se melhorar nesta vida e de
+resistir à atração do mal?
 
 Os Benfeitores da Humanidade responderam:
 
 Um sábio da Antiguidade vo-lo disse: Conhece-te a ti mesmo.
 
-A Doutrina Espírita mostra-nos o caminho que devemos percorrer para conseguirmos esse intento: o autoconhecimento.
+A Doutrina Espírita mostra-nos o caminho que devemos percorrer para
+conseguirmos esse intento: o autoconhecimento.
 
-A caminhada, portanto, é em sentido contrário ao que temos buscado até agora. É para dentro de nós mesmos, e não no exterior.
+A caminhada, portanto, é em sentido contrário ao que temos buscado até agora. É
+para dentro de nós mesmos, e não no exterior.
 
-Alguns de nós não nos conhecemos, não fazemos idéia de quem somos, de qual será o nosso comportamento diante de determinada situação. Enfim, somos um ilustre desconhecido de nós mesmos.
+Alguns de nós não nos conhecemos, não fazemos idéia de quem somos, de qual será
+o nosso comportamento diante de determinada situação. Enfim, somos um ilustre
+desconhecido de nós mesmos.
 
-Pelo desconhecimento dos nossos sentimentos, às vezes tomamos atitudes equivocadas, que nos causam desagrado tão logo nos damos conta do ocorrido.
+Pelo desconhecimento dos nossos sentimentos, às vezes tomamos atitudes
+equivocadas, que nos causam desagrado tão logo nos damos conta do ocorrido.
 
-Muitos de nós também nos desconhecemos, não costumamos fazer uma análise profunda da nossa intimidade.
+Muitos de nós também nos desconhecemos, não costumamos fazer uma análise
+profunda da nossa intimidade.
 
-Assim, facilmente nos surpreendemos conosco mesmo diante de situações inusitadas.
+Assim, facilmente nos surpreendemos conosco mesmo diante de situações
+inusitadas.
 
 
 ## Como nos auto-conhecer?

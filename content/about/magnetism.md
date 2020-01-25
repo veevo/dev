@@ -7,7 +7,11 @@ topics:
 - fluids
 ---
 
-Magnetism [French magnétisme ] - 1. It is the process by which man, sending energy of his perispirit, acts on another man, as well as all animate or inanimate bodies. 2. Magnetism, also called animal magnetism, can be defined as follows: reciprocal action of two living beings through a special agent called magnetic fluid. See: Pass .
+Magnetism [French magnétisme ] - 1. It is the process by which man, sending
+energy of his perispirit, acts on another man, as well as all animate or
+inanimate bodies. 2. Magnetism, also called animal magnetism, can be defined as
+follows: reciprocal action of two living beings through a special agent called
+magnetic fluid. See: Pass .
 
 
 ## See Also

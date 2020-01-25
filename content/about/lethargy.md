@@ -7,8 +7,8 @@ topics:
 
 Lethargy [Greek Lethargia, the Latin Lethargia ] - 
 
-1. pathological state characterized by a deep and continuous sleep, in which the 
-functions of life are so attenuated so that seem suspended. 
+1. pathological state characterized by a deep and continuous sleep, in which
+   the functions of life are so attenuated so that seem suspended. 
 
 2. Temporary loss of sensitivity and movement.
 

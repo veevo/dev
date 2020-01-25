@@ -7,7 +7,8 @@ topics:
 
 Trance [French trance] - 
 
-A state of unconsciousness or semi-consciousness in which various psychic or mediumistic phenomena occur.
+A state of unconsciousness or semi-consciousness in which various psychic or
+mediumistic phenomena occur.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

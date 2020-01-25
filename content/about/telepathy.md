@@ -9,13 +9,15 @@ topics:
 
 Telepathy [Greek terle + pat- + -ia ] - 
 
-Transfer of thoughts and emotions from person to person without the use of known senses. 
+Transfer of thoughts and emotions from person to person without the use of
+known senses. 
 
-[Allan Kardec](/bio/allan-kardec) used the term human telegraphy, meaning the communication 
-at a distance between two living people, which evoke each other. 
+[Allan Kardec](/bio/allan-kardec) used the term human telegraphy, meaning the
+communication at a distance between two living people, which evoke each other. 
 
-This evocation causes the emancipation of the soul, or the incarnate Spirit, which comes 
-to manifest and can communicate its thought by writing or by any other means.
+This evocation causes the emancipation of the soul, or the incarnate Spirit,
+which comes to manifest and can communicate its thought by writing or by any
+other means.
 
 ## See Also
 [Telegraphy](../telegraphy)  

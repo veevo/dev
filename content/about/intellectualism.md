@@ -5,7 +5,7 @@ topics:
 - intellectualism
 ---
 
-Intellectualism [from Latin intellectuale + -ism ] - Philosophical doctrine 
+Intellectualism [from Latin intellectuale + -ism ] - Philosophical doctrine
 that exalts the predominance of intelligence over will and feeling.
 
 

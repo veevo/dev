@@ -10,9 +10,8 @@ topics:
 - umbral
 ---
 
-Female demon who, according to old popular belief, 
-comes at night copulate with a man, disturbing him 
-sleep and causing him nightmare.
+Female demon who, according to old popular belief, comes at night copulate with
+a man, disturbing him sleep and causing him nightmare.
 
 ## Source
 [Centro Espirita Ismael: Santo Agostinho e o Espiritismo](https://ceismael.com.br/filosofia/santo-agostinho-e-espiritismo.htm)

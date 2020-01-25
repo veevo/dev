@@ -9,17 +9,17 @@ topics:
 According to [Wikipedia](https://en.wikipedia.org/wiki/Vice):
 
 Vice is a practice, behaviour, or habit generally considered immoral, sinful,
-criminal, rude, taboo, depraved, or degrading in the associated society. In more
-minor usage, vice can refer to a fault, a negative character trait, a defect, an
-infirmity, or a bad or unhealthy habit. Vices are usually associated with a
-transgression in a person's character or temperament rather than their
+criminal, rude, taboo, depraved, or degrading in the associated society. In
+more minor usage, vice can refer to a fault, a negative character trait, a
+defect, an infirmity, or a bad or unhealthy habit. Vices are usually associated
+with a transgression in a person's character or temperament rather than their
 morality.
 
 The opposite of vice is [virtue](../virtue).
 
 Vices are habits and activities that are not beneficial to an individual. It
-usually produces negative consequences in the physical, emotional, mental, social,
-and spiritual aspect of a person. 
+usually produces negative consequences in the physical, emotional, mental,
+social, and spiritual aspect of a person. 
 
 ## Types of Vices
 Vices can be categorized in material and moral.

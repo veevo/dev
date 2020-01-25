@@ -14,20 +14,19 @@ topics:
 - responsibility
 ---
 
-The laws that govern the [Universe](../universe) can be divided
-in: Moral and Phisical Laws.
+The laws that govern the [Universe](../universe) can be divided in: Moral and
+Phisical Laws.
 
-Estamos tanto submetidos a leis físicas que regem o mundo 
-(como por examplo a lei do magnetismo, lei da eletricidade, lei da gravidade, etc)
-quanto a leis morais que regem o mundo moral, mundo da alma, 
-da consciência, da ética.
+Estamos tanto submetidos a leis físicas que regem o mundo (como por examplo a
+lei do magnetismo, lei da eletricidade, lei da gravidade, etc) quanto a leis
+morais que regem o mundo moral, mundo da alma, da consciência, da ética.
 
-Algumas leis morais sao: Amor, Justica, Caridade, Responsabilidade, 
-entre outras.
+Algumas leis morais sao: Amor, Justica, Caridade, Responsabilidade, entre
+outras.
 
 Importante termos em mente que a vida não é um eterno período de férias.
 
-A Terra é a grande escola do Espírito, onde com trabalho e disciplina 
+A Terra é a grande escola do Espírito, onde com trabalho e disciplina
 auxiliamos no progresso do planeta e nós mesmos progredimos.
 
 ## See Also

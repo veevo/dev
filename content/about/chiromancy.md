@@ -6,14 +6,14 @@ topics:
 - chiromancy
 ---
 
-Palmistry, or chiromancy, is the claim of characterization and foretelling the 
-future through the study of the palm, also known as chirology, or in popular 
+Palmistry, or chiromancy, is the claim of characterization and foretelling the
+future through the study of the palm, also known as chirology, or in popular
 culture as palm reading. 
 
 The practice is found all over the world, with numerous cultural variations. 
 
-Those who practice chiromancy are generally called palmists, hand readers, 
-hand analysts, or chirologists.
+Those who practice chiromancy are generally called palmists, hand readers, hand
+analysts, or chirologists.
 
 
 ## See Also

@@ -5,8 +5,8 @@ topics:
 - perisperm
 ---
 
-Perisperm - [from the Greek peri + spérma ]. Bot Thin enveloping membrane 
-produced by the unabsorbed remnant of the nucella (small walnut) surrounding 
+Perisperm - [from the Greek peri + spérma ]. Bot Thin enveloping membrane
+produced by the unabsorbed remnant of the nucella (small walnut) surrounding
 the embryo and endosperm of a seed.
 
 ## Source

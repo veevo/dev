@@ -7,11 +7,10 @@ topics:
 
 Vital - [from Latin vitale]. 
 
-Relative to life; that belongs to life. 
-Suitable for saving life. 
-That gives strength; fortifying. 
+Relative to life; that belongs to life.  Suitable for saving life.  That gives
+strength; fortifying. 
 
-Principle ~ Energy reality, which derives from the Universal Cosmic Fluid, 
+Principle ~ Energy reality, which derives from the Universal Cosmic Fluid,
 which is responsible for the life phenomenon in organic beings.
 
 ## See Also

@@ -5,9 +5,11 @@ topics:
 - Epistemology
 ---
 
-Epistemology is the branch of philosophy concerned with the theory of knowledge. 
+Epistemology is the branch of philosophy concerned with the theory of
+knowledge. 
 
-Epistemology is the study of the nature of knowledge, justification, and the rationality of belief.
+Epistemology is the study of the nature of knowledge, justification, and the
+rationality of belief.
 
 
 ## Source

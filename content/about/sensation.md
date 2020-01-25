@@ -7,8 +7,8 @@ topics:
 
 Sensation - [from Latin sensatione ]. 
 
-1. sensory action or function. Awareness of the internal or external alteration of one 
-or more senses simultaneously, carried by the nerves to the brain. 
+1. sensory action or function. Awareness of the internal or external alteration
+   of one or more senses simultaneously, carried by the nerves to the brain. 
 
 Sensitivity. 
 

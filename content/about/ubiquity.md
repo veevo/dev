@@ -5,7 +5,8 @@ topics:
 - ubiquity 
 ---
 
-Ubiquity [from the Latin ubique + age ] - Faculty that have the spirits to perform in several places at the same time.
+Ubiquity [from the Latin ubique + age ] - Faculty that have the spirits to
+perform in several places at the same time.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

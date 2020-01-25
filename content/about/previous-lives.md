@@ -9,12 +9,13 @@ topics:
 - perispirt
 ---
 
-Previous lives are past material existences from previous [incarnations](../incarnation).
+Previous lives are past material existences from previous
+[incarnations](../incarnation).
 
-While the [spirit is immortal](../immortal-spirit), each existent lived on a 
-[material world](../material-world) can be considered one different material life,
-thus it's common to use the expression _previous life_ to denote these previous
-material existences.
+While the [spirit is immortal](../immortal-spirit), each existent lived on a
+[material world](../material-world) can be considered one different material
+life, thus it's common to use the expression _previous life_ to denote these
+previous material existences.
 
 ## See Also
 [Material World](../material-world)  

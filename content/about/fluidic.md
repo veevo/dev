@@ -7,8 +7,7 @@ topics:
 - spiritism
 ---
 
-Relativo ou semelhante a fluido.  
-Etérico ou imponderável.
+Relativo ou semelhante a fluido.  Etérico ou imponderável.
 
 ## See Also
 Fluid

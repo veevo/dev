@@ -5,15 +5,16 @@ topics:
 - vocabulary
 ---
 
-Se questionarmos um grupo de pessoas acerca do que significa ser feliz, obteremos respostas as mais diversas.
+Se questionarmos um grupo de pessoas acerca do que significa ser feliz,
+obteremos respostas as mais diversas.
 
-[O Evangelho segundo o Espiritismo](/books/gospel-according-spiritism), em seu capítulo quinto, 
-nos apresenta a máxima A felicidade não é deste mundo.
+[O Evangelho segundo o Espiritismo](/books/gospel-according-spiritism), em seu
+capítulo quinto, nos apresenta a máxima A felicidade não é deste mundo.
 
 Mas onde encontrar a felicidade? Como ser feliz?
 
-A máxima do Evangelho nos ensina que a felicidade verdadeira é uma conquista do Espírito, 
-pois que todos nós fomos criados para a felicidade eterna.
+A máxima do Evangelho nos ensina que a felicidade verdadeira é uma conquista do
+Espírito, pois que todos nós fomos criados para a felicidade eterna.
 
 Tudo o que necessitamos para sermos felizes está em nossos corações.
 

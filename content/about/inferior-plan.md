@@ -6,13 +6,13 @@ topics:
 - spiritual-plans
 ---
 
-Inferior spiritual plans (also known as _hell_) are plans in which exist a
-big concentration of less morally developed spiritis, usually inclined to
-vices or m
+Inferior spiritual plans (also known as _hell_) are plans in which exist a big
+concentration of less morally developed spiritis, usually inclined to vices or
+m
 
 There are many of these _realms_ around the world (especially above the big
-cities) in which most of the discarnate population goes and spends some time
-on ther spiritual expiation.
+cities) in which most of the discarnate population goes and spends some time on
+ther spiritual expiation.
 
 There are also inferior plans vastly populated by [suicides](/about/suicide),
 frequently called _Valleys of Suiciders_.

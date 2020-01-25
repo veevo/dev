@@ -6,9 +6,10 @@ topics:
 - intimate-reform
 ---
 
-Intimate Reform - It is behavioral change, replacing indifference, bad habits, and 
-negative attitudes with virtues in accordance with Christian moral laws; that is, 
-one's permanent effort to renew oneself morally and to overcome evil inclinations.
+Intimate Reform - It is behavioral change, replacing indifference, bad habits,
+and negative attitudes with virtues in accordance with Christian moral laws;
+that is, one's permanent effort to renew oneself morally and to overcome evil
+inclinations.
 
 
 ## Source

@@ -5,7 +5,7 @@ topics:
 - presumption 
 ---
 
-Presumption - [from the Latin praesumptione ]. act or effect of presuming. 
+Presumption - [from the Latin praesumptione ]. act or effect of presuming.
 Assumption; suspicious; distrust. Vanity; boasting.
 
 ## Source

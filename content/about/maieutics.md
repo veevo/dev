@@ -8,9 +8,9 @@ topics:
 
 Maieutics [Greek maieutikós ] - 
 
-Dialectical and pedagogical process, initially used by Socrates, in 
-which questions are multiplied in order to obtain, by induction of particular 
-and concrete cases, a general concept of the objective in question.
+Dialectical and pedagogical process, initially used by Socrates, in which
+questions are multiplied in order to obtain, by induction of particular and
+concrete cases, a general concept of the objective in question.
 
 
 ## Source

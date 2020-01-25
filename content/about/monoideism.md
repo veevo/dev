@@ -7,7 +7,8 @@ topics:
 
 Monoideism [from Greek monos + -idea + -ismo] - 
 
-State of soul in all psyche that is dominated by a central idea; fixation on a single idea.
+State of soul in all psyche that is dominated by a central idea; fixation on a
+single idea.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

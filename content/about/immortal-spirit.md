@@ -7,9 +7,10 @@ topics:
 - immortal-spirit
 ---
 
-According to Spiritism, all of us are sons of the same Father, [God](/about/god)
-and are [Immortal Spirits](/about/immortal-spirits) which will live forever and
-each of us will reach the [pure and eternal happiness](/about/eternal-happiness).
+According to Spiritism, all of us are sons of the same Father,
+[God](/about/god) and are [Immortal Spirits](/about/immortal-spirits) which
+will live forever and each of us will reach the [pure and eternal
+happiness](/about/eternal-happiness).
 
 ## See Also
 [The Spirits' Book](/books/spirits-book)  

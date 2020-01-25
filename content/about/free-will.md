@@ -6,11 +6,11 @@ topics:
 - free-will
 ---
 
-1. Freedom of judgment and conduct, understood as a result of
-pure of will, when faced with a choice. 
+1. Freedom of judgment and conduct, understood as a result of pure of will,
+   when faced with a choice. 
 
 2. It is the moral freedom of man, college that he has to guide himself by his
-will in carrying out their acts.
+   will in carrying out their acts.
 
 ## The Law of Free Will
 Human Beings are given the free will to act, but they must answer for the

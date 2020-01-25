@@ -7,7 +7,10 @@ topics:
 - spiritism
 ---
 
-Umbral [from Spanish umbral = doorway] - 1. Threshold, entry. 2. According to information from the Spirit André Luiz, one of the lower regions of the spirit world in which minds are still in harmony with the good. See: Crust and Darkness
+Umbral [from Spanish umbral = doorway] - 1. Threshold, entry. 2. According to
+information from the Spirit André Luiz, one of the lower regions of the spirit
+world in which minds are still in harmony with the good. See: Crust and
+Darkness
 
 ## See Also
 [Spiritism](/spiritism)  

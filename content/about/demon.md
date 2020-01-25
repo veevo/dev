@@ -7,14 +7,16 @@ topics:
 - hell
 ---
 
-São todos os seres incorpóreos, bons ou maus, e que se supõe terem conhecimento e poder superiores 
-aos dos homens. Nas línguas modernas, esta palavra é geralmente tomada em má acepção, que se restringe 
-aos gênios malfazejos. 
+São todos os seres incorpóreos, bons ou maus, e que se supõe terem conhecimento
+e poder superiores aos dos homens. Nas línguas modernas, esta palavra é
+geralmente tomada em má acepção, que se restringe aos gênios malfazejos. 
 
-Segundo o Espiritismo, não há demônio no sentido de seres criados para o mal e eternamente desgraçados, 
-mas sim significando Espíritos imperfeitos, que podem, todos, aperfeiçoarem-se por seus esforços e por sua vontade.
+Segundo o Espiritismo, não há demônio no sentido de seres criados para o mal e
+eternamente desgraçados, mas sim significando Espíritos imperfeitos, que podem,
+todos, aperfeiçoarem-se por seus esforços e por sua vontade.
 
-Anjo caído em desgraça que procura perder a humanidade, na crença de certas religiões; Satanás; Diabo; Belzebu; espírito maligno.
+Anjo caído em desgraça que procura perder a humanidade, na crença de certas
+religiões; Satanás; Diabo; Belzebu; espírito maligno.
 
 ## Related
 Demonografia [do latim daemo, feito do grego daimon + graf(o) + -ia] – O mesmo que Demonologia.    

@@ -5,8 +5,8 @@ topics:
 - chakras
 ---
 
-Vital Centers are energetic fulcrums that, under the automatic direction of the soul, 
-activate the functioning of the organs of the respective material body. 
+Vital Centers are energetic fulcrums that, under the automatic direction of the
+soul, activate the functioning of the organs of the respective material body. 
 
 
 ## See Also

@@ -5,9 +5,11 @@ topics:
 - tiptology
 ---
 
-Typology [from Greek tuptó + logos + -ia ] - Stroke language; communication mode of the spirits. Alphabetical typology.
+Typology [from Greek tuptó + logos + -ia ] - Stroke language; communication
+mode of the spirits. Alphabetical typology.
 
-Nomenclature widely used to designate the study of raps (plural of the English word rap - rap).
+Nomenclature widely used to designate the study of raps (plural of the English
+word rap - rap).
 
 ## See Also
 [Typologist](../typologist)

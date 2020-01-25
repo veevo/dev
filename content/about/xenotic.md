@@ -11,8 +11,8 @@ topics:
 
 Xenotics [from Greek xenon + optikós ] - 
 
-Neologism created by Hermínio Miranda to designate the faculty of clairvoyance of words 
-or texts in a language unknown to the medium.
+Neologism created by Hermínio Miranda to designate the faculty of clairvoyance
+of words or texts in a language unknown to the medium.
 
 ## See Also
 Clairvoyance

@@ -7,7 +7,8 @@ topics:
 
 Prophylaxis [Greek prophylaxis = precaution + -ia] - 
 
-1. Part of the medicine that has as its object preventive measures against diseases. 
+1. Part of the medicine that has as its object preventive measures against
+   diseases. 
 
 2. Set of measures to prevent disease onset.
 

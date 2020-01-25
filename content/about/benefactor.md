@@ -7,7 +7,8 @@ topics:
 
 Literally, a well-doer; one who does good.
 
-One who confers a benefit; a kindly helper: as, “the great benefactor of mankind,”
+One who confers a benefit; a kindly helper: as, “the great benefactor of
+mankind,”
 
 
 

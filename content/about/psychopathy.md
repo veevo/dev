@@ -5,12 +5,13 @@ topics:
 - psychopathy 
 ---
 
-Psychopathy [from Greek psyké = butterfly, soul + pat- ( pascho = suffering) + -ia ] - 
+Psychopathy [from Greek psyké = butterfly, soul + pat- ( pascho = suffering) +
+-ia ] - 
 
 1. Common designation for mental illness. 
 
-2. Pathological mental state characterized by deviations that lead to antisocial 
-behaviors.
+2. Pathological mental state characterized by deviations that lead to
+   antisocial behaviors.
 
 
 ## Source

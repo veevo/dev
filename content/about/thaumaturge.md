@@ -11,8 +11,8 @@ thaumaturge [from the Greek thauma, thaumatos = wonder + ergon = work] -
 
 2. A performer of miracles.
 
-It is said of those who, with or without reason, boast of having the power to produce 
-phenomena outside the laws of nature.
+It is said of those who, with or without reason, boast of having the power to
+produce phenomena outside the laws of nature.
 
 ## Source
 [O Consolador - Vocabulário (pt-BR)](http://www.oconsolador.com.br/linkfixo/vocabulario/principal.html)

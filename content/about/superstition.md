@@ -7,8 +7,9 @@ topics:
 
 Superstition - [from Latin superstitione ]. 
 
-Excessive or erroneous religious feeling, which consists in attributing to certain practices 
-an efficacy without reason, dragging people to the practice of improper and absurd acts. 
+Excessive or erroneous religious feeling, which consists in attributing to
+certain practices an efficacy without reason, dragging people to the practice
+of improper and absurd acts. 
 
 False idea about the supernatural; 
 
