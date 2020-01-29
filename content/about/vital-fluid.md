@@ -12,6 +12,7 @@ of nature during the biological death process.
 
 ## See Also
 Fluid  
+Magnetic Fluid
 Animalized Fluid  
 Spiritual Fluid  
 Universal Fluid  

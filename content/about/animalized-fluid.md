@@ -6,11 +6,8 @@ topics:
 - life
 ---
 
-Animalized fluid , magnetic fluid , Vital Fluid - magnetic fluid than in
-organic beings is developed under the stimulus of the vital principle. It
-usually refers to the medium's own fluid. This is combined with the universal
-fluid accumulated by a communicating Spirit to produce a spiritist
-manifestation.
+See: [Vital Fluid](../vital-fluid)
+
 
 ## See Also
 Fluid  
