@@ -6,30 +6,72 @@ topics:
 - cairbar-schutel
 ---
 
-Hugo Gonçalves, daddy. So it is known and affectionately called throughout northern Paraná, \r
-missionary Hugo Gonçalves, disciple of Cairbar Schutel and support of the Spiritist Doctrine in this \r
-State of the Federation.\r
+Hugo Gonçalves, daddy. So it is known and affectionately called throughout
+northern Paraná, \r missionary Hugo Gonçalves, disciple of Cairbar Schutel and
+support of the Spiritist Doctrine in this \r State of the Federation.\r
 
-Already close to the 94 years of age, continues what began since childhood, under the wise guidance of the \r
-late Bandeirante do Spiritism. Not only does love and charity preach, but especially practices them. \r
-Therefore, by radiating so much sympathy, all who have known him for a long time or come to know him, \r
-consider it a true grace of God.\r
+Already close to the 94 years of age, continues what began since childhood,
+under the wise guidance of the \r late Bandeirante do Spiritism. Not only does
+love and charity preach, but especially practices them. \r Therefore, by
+radiating so much sympathy, all who have known him for a long time or come to
+know him, \r consider it a true grace of God.\r
 
-In 1880 a family of Portuguese immigrants led by Francisco Ferreira and Conceição dos Santos arrived in Brazil. Among the children who constituted the offspring, he drew attention to the youngest, named Cândida, with just over 1 year. The family settled in the village of Boa Esperança, near Rio Claro, in the State of São Paulo. A few years later, in 1888, already 20 years old and alone, arrives in Brazil and settles in the same place, another Portuguese immigrant with the imposing name of José Maria Gonçalves. José Maria arrived alone, but well accompanied by spiritual entities that led him to Boa Esperança, for there was already his promised consort and companion of all life − Cândida − both with a serious commitment to generate our blessed Hugo Gonçalves. José Maria and Cândida married in 1893 and moved to Matão around 1897. They then befriended the kind local pharmacist, Mr. Cairbar de Souza Schutel.\r
+In 1880 a family of Portuguese immigrants led by Francisco Ferreira and
+Conceição dos Santos arrived in Brazil. Among the children who constituted the
+offspring, he drew attention to the youngest, named Cândida, with just over 1
+year. The family settled in the village of Boa Esperança, near Rio Claro, in the
+State of São Paulo. A few years later, in 1888, already 20 years old and alone,
+arrives in Brazil and settles in the same place, another Portuguese immigrant
+with the imposing name of José Maria Gonçalves. José Maria arrived alone, but
+well accompanied by spiritual entities that led him to Boa Esperança, for there
+was already his promised consort and companion of all life − Cândida − both with
+a serious commitment to generate our blessed Hugo Gonçalves. José Maria and
+Cândida married in 1893 and moved to Matão around 1897. They then befriended the
+kind local pharmacist, Mr. Cairbar de Souza Schutel.\r
 
-Hugo Gonçalves returned to the physical world on October 6, 1913. The midwife was Cairbar Schutel, who suggested that the shoot be called Vitor Hugo, his favorite literary author. Dona Cândida liked Hugo, but not Vitor.\r
+Hugo Gonçalves returned to the physical world on October 6, 1913. The midwife
+was Cairbar Schutel, who suggested that the shoot be called Vitor Hugo, his
+favorite literary author. Dona Cândida liked Hugo, but not Vitor.\r
 
-At the age of 12, he revealed a good literary trend, going on to write for the Newspaper O Clarim, founded and directed by his master Cairbar Schutel, in Matão-SP. It is worth recalling a poem that the boy Hugo wrote at that time:\r
+At the age of 12, he revealed a good literary trend, going on to write for the
+Newspaper O Clarim, founded and directed by his master Cairbar Schutel, in
+Matão-SP. It is worth recalling a poem that the boy Hugo wrote at that time:\r
 
-From the age of 13, he began to work with the other brothers, performing hard tasks in the quarry owned by his father, having as a companion and instrument, a sledgehammer sisuda. Still in full adolescence, in the school, every day was a beautiful descendant of Italians, who discovered herself to be Dulce Ângela Caleffi ("The Little Mother of Cambé"). She, just over time, noticed that interesting look. It soon felt some hooks in his heart. For a few years the future romance was only in flirtation.\r
+From the age of 13, he began to work with the other brothers, performing hard
+tasks in the quarry owned by his father, having as a companion and instrument, a
+sledgehammer sisuda. Still in full adolescence, in the school, every day was a
+beautiful descendant of Italians, who discovered herself to be Dulce Ângela
+Caleffi ("The Little Mother of Cambé"). She, just over time, noticed that
+interesting look. It soon felt some hooks in his heart. For a few years the
+future romance was only in flirtation.\r
 
-The effective dating only occurred after the death of Arturo, Dulce's father, in 1930. They were married on September 21, 1935. Around 1940, already with his son Cairbar, he moved to the region of Campinas, where he remained a few years, also breaking stones. He returned to Matão, now with his second son, Emanuel, to continue his work at the family quarry. Soon after, he was invited to work on the administration of a large farm, situated near Matão.\r
+The effective dating only occurred after the death of Arturo, Dulce's father, in
+1930. They were married on September 21, 1935. Around 1940, already with his son
+Cairbar, he moved to the region of Campinas, where he remained a few years, also
+breaking stones. He returned to Matão, now with his second son, Emanuel, to
+continue his work at the family quarry. Soon after, he was invited to work on
+the administration of a large farm, situated near Matão.\r
 
-In 1947, he moved to Paraná, settling in the Londrina region. He continued to work in farm management until 1953. That year, he settled in Cambé (Paraná), going on to run the Marília Barbosa Children's Home, which he does with a lot of love and affection to this day.\r
+In 1947, he moved to Paraná, settling in the Londrina region. He continued to
+work in farm management until 1953. That year, he settled in Cambé (Paraná),
+going on to run the Marília Barbosa Children's Home, which he does with a lot of
+love and affection to this day.\r
 
-Hugo Gonçalves had thirteen brothers, three of whom disincarnated children. He's the only survivor in the family. He says because he's always been the most stubborn. He has two children, thirteen grandchildren, eighteen great-grandchildren and thirty-six nephews. He holds several honorary titles, for his unceasing work and directed to the good of the next, notably of the children and the elderly desvalidos. After a week of icu admission, Mrs Dulce, her beloved companion of almost 68 years, affected by cardio-respiratory problems, came to disincarnate on May 19, 2003, about to complete 87 years of fruitful and blessed existence.\r
+Hugo Gonçalves had thirteen brothers, three of whom disincarnated children. He's
+the only survivor in the family. He says because he's always been the most
+stubborn. He has two children, thirteen grandchildren, eighteen
+great-grandchildren and thirty-six nephews. He holds several honorary titles,
+for his unceasing work and directed to the good of the next, notably of the
+children and the elderly desvalidos. After a week of icu admission, Mrs Dulce,
+her beloved companion of almost 68 years, affected by cardio-respiratory
+problems, came to disincarnate on May 19, 2003, about to complete 87 years of
+fruitful and blessed existence.\r
 
-In March 2003, the book Hugo Gonçalves was launched and the man who remembers the Sermon on the Mountain. It is a biographical work. Alongside the tribute, it is also an effort to relegate any and unjust veal of an exemplary life entirely dedicated to the love advocated by Christ in the future decades, when his relatives, friends and companions today, are no longer on the plan Physical.\r
+In March 2003, the book Hugo Gonçalves was launched and the man who remembers
+the Sermon on the Mountain. It is a biographical work. Alongside the tribute, it
+is also an effort to relegate any and unjust veal of an exemplary life entirely
+dedicated to the love advocated by Christ in the future decades, when his
+relatives, friends and companions today, are no longer on the plan Physical.\r
 
 ## Institutions and Works Directed by Hugo Gonçalves\r
 

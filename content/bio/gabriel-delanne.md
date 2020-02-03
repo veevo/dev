@@ -8,12 +8,25 @@ topics:
 - france
 ---
 
-Gabriel Delanne (along with Léon Denis) marks the transition of 19th-century Spiritism, influenced by Kardec's presence, to Spiritism of the early 20th century, seeking his scientific affirmation, trying to excite men of science of the time. \r
+Gabriel Delanne (along with Léon Denis) marks the transition of 19th-century
+Spiritism, influenced by Kardec's presence, to Spiritism of the early 20th
+century, seeking his scientific affirmation, trying to excite men of science of
+the time. \r
 
-Born in Paris on March 23, 1857, in the same year as the publication of The Book of Spirits, Delanne was (together with Léon Denis) the closest disciple of Allan Kardec. \r
+Born in Paris on March 23, 1857, in the same year as the publication of The Book
+of Spirits, Delanne was (together with Léon Denis) the closest disciple of Allan
+Kardec. \r
 
-In addition, he was probably the first great spiritist character born in a Spiritist family. Just to remember, Allan Kardec became aware of spiritist phenomena at the age of 50 and Léon Denis was a teenager when he first heard of Spiritism. Gabriel Delanne was born into a Spiritist family. His father, Alexandre Delanne, closely followed the work of Allan Kardec, having formed a small family group of Spiritist studies and as a scribe medium his wife (and Gabriel's mother) Alexandrine Delanne.\r
-Therefore, since childhood Gabriel Delanne was familiar with the spiritist vocabulary and attended, from a very young age, to numerous spiritist sessions. Delanne even caught contact with Master Kardec in his childhood – Kardec died when Delanne was 12 years old.\r
+In addition, he was probably the first great spiritist character born in a
+Spiritist family. Just to remember, Allan Kardec became aware of spiritist
+phenomena at the age of 50 and Léon Denis was a teenager when he first heard of
+Spiritism. Gabriel Delanne was born into a Spiritist family. His father,
+Alexandre Delanne, closely followed the work of Allan Kardec, having formed a
+small family group of Spiritist studies and as a scribe medium his wife (and
+Gabriel's mother) Alexandrine Delanne.\r Therefore, since childhood Gabriel
+Delanne was familiar with the spiritist vocabulary and attended, from a very
+young age, to numerous spiritist sessions. Delanne even caught contact with
+Master Kardec in his childhood – Kardec died when Delanne was 12 years old.\r
 
 ## A troubled and suffering life \r
 Gabriel Delanne began his studies at Cluny High School (in Saone-et-Loire), then at grau college (in Haute-Soane) and, at the age of 19, joined the Central School of Arts and Manufacturing. As his parents' financial situation did not allow the completion of his studies, he began working at the Popp Compressed Air and Electricity Company, where he was until 1892, dividing his time between his work and his dedication to Spiritism.\r

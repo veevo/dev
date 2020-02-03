@@ -6,11 +6,7 @@ topics:
 - psicografia
 - espiritizar
 - alirio-cerqueira
-- divaldo-franco
-- honorio
-- joanna-de-angelis
 ---
-
 
 todo
 

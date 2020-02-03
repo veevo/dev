@@ -7,32 +7,36 @@ topics:
 - xenoglossy
 ---
 
-Lancellin is a Spirit responsible for authoring some of the psychographed works 
-by medium João Nunes Maia. His last reincarnation took place in France in the 19th century, 
-as a spiritualist writer who specializes in psychic phenomena, specializing in 
-study about astral travel.
+Lancellin is a Spirit responsible for authoring some of the psychographed works
+by medium João Nunes Maia. His last reincarnation took place in France in the
+19th century, as a spiritualist writer who specializes in psychic phenomena,
+specializing in study about astral travel.
 
-Researched xenoglossia (mediumistic college that allows the medium to speak one or more languages 
-unknown) and the unfolding. 
+Researched xenoglossia (mediumistic college that allows the medium to speak one
+or more languages unknown) and the unfolding. 
 
-In his work "Initiation, Astral Journey", dictated to medium João Nunes Maia he reports 
-on the subject with the following assertion: "The unfolding was especially interested in me. 
-"Behold," I thought, "the greatest proof of the existence and survival of the soul." 
-And thank God, I was able to prove it, though little that heaven so has allowed me to consciously accomplish."
+In his work "Initiation, Astral Journey", dictated to medium João Nunes Maia he
+reports on the subject with the following assertion: "The unfolding was
+especially interested in me.  "Behold," I thought, "the greatest proof of the
+existence and survival of the soul." And thank God, I was able to prove it,
+though little that heaven so has allowed me to consciously accomplish."
 
-> Initiation, Astral Journey, by João Nunes Maia, dictated by The Lancellin Spirit. Editora Espírita Fonte Viva, 2004, 12th edition.
+> Initiation, Astral Journey, by João Nunes Maia, dictated by The Lancellin
+> Spirit. Editora Espírita Fonte Viva, 2004, 12th edition.
 
-He also devoted himself to knowing and experiencing the gospel of Jesus, having reported on the fact that 
-in this same book dictated to João Nunes Maia that "Even in this reincarnation as Lancellin, 
-I have already begun to value the teachings of the Divine Master of Nazareth. I felt the depth 
-of Christ's mission and began to cultivate virtues. At first, I encountered a lot of difficulties. 
+He also devoted himself to knowing and experiencing the gospel of Jesus, having
+reported on the fact that in this same book dictated to João Nunes Maia that
+"Even in this reincarnation as Lancellin, I have already begun to value the
+teachings of the Divine Master of Nazareth. I felt the depth of Christ's mission
+and began to cultivate virtues. At first, I encountered a lot of difficulties. 
 
-The body's own rejection accustomed to heavy vibrations, then the reaction of others 
-bodies that follow are terrible things. However, the same Master teaches us that he who 
-persevere to the end will be saved. This is the truth, we will be saved from the passing illusions of the world, 
-to enter the immortal beauties of the Spirit, where there is no regression, only advance; 
-where there is no alms or favoritism, only conquest. Millennial experiences make us believe 
-that only love offers us means for eternal happiness."
+The body's own rejection accustomed to heavy vibrations, then the reaction of
+others bodies that follow are terrible things. However, the same Master teaches
+us that he who persevere to the end will be saved. This is the truth, we will be
+saved from the passing illusions of the world, to enter the immortal beauties of
+the Spirit, where there is no regression, only advance; where there is no alms
+or favoritism, only conquest. Millennial experiences make us believe that only
+love offers us means for eternal happiness."
 
 ## Self-Effort
 In the paths we have come, we will notice the evident lessons that God has already done His part, 

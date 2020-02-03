@@ -12,16 +12,36 @@ topics:
 - divaldo-franco
 ---
 
-The world's largest and most prolific psychic medium in all eras, Francisco Cândido Xavier was born in Pedro Leopoldo, a modest city of Minas Gerais, on April 2, 1910, disembodiment on June 30, 2002, the son of João Cândido Xavier and his mother Maria João de Deus , who had nine children: Maria Cândida, Luíza, Carmozina, José Cândido, Maria de Lurdes, Francisco Cândido, Raymundo, Maria da Conceição and Geralda. His mother defaced in 1915 and in 1960 his father.
+The world's largest and most prolific psychic medium in all eras, Francisco
+Cândido Xavier was born in Pedro Leopoldo, a modest city of Minas Gerais, on
+April 2, 1910, disembodiment on June 30, 2002, the son of João Cândido Xavier
+and his mother Maria João de Deus , who had nine children: Maria Cândida, Luíza,
+Carmozina, José Cândido, Maria de Lurdes, Francisco Cândido, Raymundo, Maria da
+Conceição and Geralda. His mother defaced in 1915 and in 1960 his father.
 
-At that time, the municipality of Pedro Leopoldo was a small, quiet town of bandeirante tradition, without attractions, quiet life and rudimentary commerce, having only agriculture as the most important basis of subsistence.
+At that time, the municipality of Pedro Leopoldo was a small, quiet town of
+bandeirante tradition, without attractions, quiet life and rudimentary commerce,
+having only agriculture as the most important basis of subsistence.
 
-The arrival of heavy industry, steel, cement factories and others caused a major transformation in the municipality, causing development and population increase. As a result, quiet life was no longer part of Pedro Leopoldo's scenario. The municipality became known nationally from the 1930s, when the first news of Chico Xavier's fame arrived in the big cities.
+The arrival of heavy industry, steel, cement factories and others caused a major
+transformation in the municipality, causing development and population increase.
+As a result, quiet life was no longer part of Pedro Leopoldo's scenario. The
+municipality became known nationally from the 1930s, when the first news of
+Chico Xavier's fame arrived in the big cities.
 
-In 1915, Dona Maria João de Deus, realizing the severity of her illness and sensing the next unflesh, gave her children to friendly people, to take care of their education. Faced with such circumstances, Chico was handed over to his godmother, Dona Rita de Cássia, better known as Ritinha.
+In 1915, Dona Maria João de Deus, realizing the severity of her illness and
+sensing the next unflesh, gave her children to friendly people, to take care of
+their education. Faced with such circumstances, Chico was handed over to his
+godmother, Dona Rita de Cássia, better known as Ritinha.
 
-[WARNING] Connection timed out. Retrying IPv4 connection.
-Realizing the separation of his family, the boy Chico asked his mother why it was happening, without understanding the severity of the situation and, very innocently, came to think that the mother did not love them anymore. Mrs. Maria, managing to overcome her emotions, told her that she was preparing to leave the house under health care and that she would return soon to take care of everyone. Resigned to the situation, she accepted the final words of her mother, who came to disincarnate the next day, September 29.
+[WARNING] Connection timed out. Retrying IPv4 connection.  Realizing the
+separation of his family, the boy Chico asked his mother why it was happening,
+without understanding the severity of the situation and, very innocently, came
+to think that the mother did not love them anymore. Mrs. Maria, managing to
+overcome her emotions, told her that she was preparing to leave the house under
+health care and that she would return soon to take care of everyone. Resigned to
+the situation, she accepted the final words of her mother, who came to
+disincarnate the next day, September 29.
 
 ## Life with your Godmother
 Dona Ritinha led by her constant nervous crises, punished Chico with beatings that came to happen up to three times a day. The boy's life was full of disappointment and trials, which could have made him a revolted and unhappy being; however, this did not occur because of the spiritual richness it possessed.

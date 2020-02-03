@@ -8,13 +8,38 @@ topics:
 - church
 ---
 
-Despite his obvious impact, Swedenborg’s name is still not well-known three hundred years after his birth. He was an inventor, a scientist, a civil servant, and a philosopher before he accepted God’s call to be a rational revelator during the Age of Enlightenment. While Swedenborg’s genius may be found in all his works, it is his claim to be a revelator, and his spiritual vision, which truly set him apart. Historically it has been this claim which has attracted interest in him; and it is his theological writings that have been the source of his greatest influence. Swedenborg stands apart from other revelators because of the means through which he received revelation, its substance, and the process of its transmission.
+Despite his obvious impact, Swedenborg’s name is still not well-known three
+hundred years after his birth. He was an inventor, a scientist, a civil servant,
+and a philosopher before he accepted God’s call to be a rational revelator
+during the Age of Enlightenment. While Swedenborg’s genius may be found in all
+his works, it is his claim to be a revelator, and his spiritual vision, which
+truly set him apart. Historically it has been this claim which has attracted
+interest in him; and it is his theological writings that have been the source of
+his greatest influence. Swedenborg stands apart from other revelators because of
+the means through which he received revelation, its substance, and the process
+of its transmission.
 
-Because his Writings are exclusively a written revelation, Swedenborg was able to integrate in them elements which in traditional religious movements have been distinct; for contained within the Writings are both the charismatic vision and the rational codification of its development. In offering only a written revelation to the world, Swedenborg dramatically decreased the probability of its discovery. However, by widely distributing his books, he made discovery a permanent possibility; but it was a possibility over which Swedenborg himself would have no personal control. Swedenborg left completely open who would respond to his vision, under what conditions, and at what time and in what place, or whether anyone would respond at all.
+Because his Writings are exclusively a written revelation, Swedenborg was able
+to integrate in them elements which in traditional religious movements have been
+distinct; for contained within the Writings are both the charismatic vision and
+the rational codification of its development. In offering only a written
+revelation to the world, Swedenborg dramatically decreased the probability of
+its discovery. However, by widely distributing his books, he made discovery a
+permanent possibility; but it was a possibility over which Swedenborg himself
+would have no personal control. Swedenborg left completely open who would
+respond to his vision, under what conditions, and at what time and in what
+place, or whether anyone would respond at all.
 
-In presenting a vision counter to the prevailing religious and secular paradigms of the day, he invited ridicule; and, in not organizing a group of followers to carry his vision into the future, his ideas did not become part of the mainstream in the development of modern western thought. However, the scope of his influence, as documented in this book, suggests the unfolding of another reality, because Swedenborg’s legacy has endured.
+In presenting a vision counter to the prevailing religious and secular paradigms
+of the day, he invited ridicule; and, in not organizing a group of followers to
+carry his vision into the future, his ideas did not become part of the
+mainstream in the development of modern western thought. However, the scope of
+his influence, as documented in this book, suggests the unfolding of another
+reality, because Swedenborg’s legacy has endured.
 
-A biography of Swedenborg and a chronological list of his major works are included in this anthology because a knowledge of the man and the substance of his writings may provide some insight into the persistence of his influence.
+A biography of Swedenborg and a chronological list of his major works are
+included in this anthology because a knowledge of the man and the substance of
+his writings may provide some insight into the persistence of his influence.
 
 ## Background
 Emanuel Swedenborg was born in Stockholm on January 29, 1688 . At the time of his birth, Sweden ‘s century of expansion was drawing to a close. In asserting her independence during this century, the Swedish kingdom became more economically and politically integrated into Europe ‘s cultural orbit. The great mineral wealth of Sweden and war were important ingredients in this process. Foreign miners and mercenaries were brought to Sweden to assist in her development and modernization. The Swedish arms industry was established at this time, strengthening the military position of Sweden and providing a valuable export. The internal administration of the kingdom was further centralized through the development of a state bureaucracy, with the University of Uppsala providing the training for the corps of civil servants. During this period the city of Göteborg was established as an export center and Stockholm was transformed into a modern showplace.

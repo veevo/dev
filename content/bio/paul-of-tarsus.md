@@ -9,31 +9,32 @@ topics:
 ---
 
 Born in Tarsus, in Cilicia of Asia Minor (15 km from the Mediterranean Sea), his
-first name was Shaúl or Saulo, meaning "begged", "desired". Besides
-of the first name in Hebrew or Aramaic, it was customary to have a second name
-latinized or Hellenistic; and his second name was Paul.
+first name was Shaúl or Saulo, meaning "begged", "desired". Besides of the first
+name in Hebrew or Aramaic, it was customary to have a second name latinized or
+Hellenistic; and his second name was Paul.
 
-Saul received a higher formation in Jerusalem. Since your youth,
-studied at the feet of Gamaliel, grandson and disciple of the celebrated Dr. Hillel. It was the
+Saul received a higher formation in Jerusalem. Since your youth, studied at the
+feet of Gamaliel, grandson and disciple of the celebrated Dr. Hillel. It was the
 Gamaliel's favorite disciple, called "the beauty of the law". With age
-Gamaliel's advanced, Saul replaced him in the direction of the Sanhedrio in Jerusalem.
+Gamaliel's advanced, Saul replaced him in the direction of the Sanhedrio in
+Jerusalem.
 
 Saulo had the profession of manufacturer of tents and other leather objects and
 he had heard of the followers of the Nazarene and revolted when they referred to
 him as if he were the Messiah.
 
-The New Man and the Old Man:
-Young Saul was very proud, for belonging to a traditional and
-conservative Jewish family; because it is considered the greatest speaker among the
-doctors of Sanhedrin; the most fanatical defenders of the Law of Moses.
+The New Man and the Old Man: Young Saul was very proud, for belonging to a
+traditional and conservative Jewish family; because it is considered the
+greatest speaker among the doctors of Sanhedrin; the most fanatical defenders of
+the Law of Moses.
 
 He revolted as he encountered in those evil men, followers of Jesus, the
-serenity in the face of any situation, which he desperately sought
-through the violence it carried out in the name of the Law.
+serenity in the face of any situation, which he desperately sought through the
+violence it carried out in the name of the Law.
 
-Honest to his principles, Saul persecuted Christians, like Jeziel, who
-to his family destroyed and persecuted by the corrupt law of that time,
-changed his name, becoming stephen.
+Honest to his principles, Saul persecuted Christians, like Jeziel, who to his
+family destroyed and persecuted by the corrupt law of that time, changed his
+name, becoming stephen.
 
 ## Saulo and Abigail 
 At a certain ceremony, where he had invited the bride to watch her "coronation"

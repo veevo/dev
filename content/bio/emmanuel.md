@@ -17,12 +17,12 @@ topics:
 - gospel-according-spiritism
 ---
 
-Emmanuel is the name given by Brazilian spiritist medium Chico Xavier to the spirit 
-to which he attributes the authorship of much of his psychographed works. This spirit 
-was pointed out by Chico Xavier as his spiritual advisor.
+Emmanuel is the name given by Brazilian spiritist medium Chico Xavier to the
+spirit to which he attributes the authorship of much of his psychographed works.
+This spirit was pointed out by Chico Xavier as his spiritual advisor.
 
-There is also a book of the same name by Chico Xavier that bears the signature of Emmanuel, 
-published in 1938.
+There is also a book of the same name by Chico Xavier that bears the signature
+of Emmanuel, published in 1938.
 
 ## Mediumistic Work
 The mediumistic work attributed to Emmanuel is composed of dozens of books, many of 

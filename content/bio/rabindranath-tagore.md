@@ -5,10 +5,12 @@ topics:
 
 ---
 
-Rabindranath Tagore, also known by his pen name Bhanu Singha Thakur, and also known by his sobriquets Gurudev, Kabiguru, and 
-Biswakabi, was a polymath, poet, musician, and artist from the Indian subcontinent. 
+Rabindranath Tagore, also known by his pen name Bhanu Singha Thakur, and also
+known by his sobriquets Gurudev, Kabiguru, and Biswakabi, was a polymath, poet,
+musician, and artist from the Indian subcontinent. 
 
-He reshaped Bengali literature and music, as well as Indian art with Contextual Modernism in the late 19th and early 20th centuries.
+He reshaped Bengali literature and music, as well as Indian art with Contextual
+Modernism in the late 19th and early 20th centuries.
 
 
 ## Source

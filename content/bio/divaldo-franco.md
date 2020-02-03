@@ -17,16 +17,23 @@ topics:
 - brazil
 ---
 
-Simple, deeply educated person, more than fifty years dedicated to mediumship. He is a world-leading figure, both in the spiritist environment and outside of it, because his culture, his knowledge, as well as his mediumship are business cards that earned him respect and credibility, even by skeptics who bow to the culture of this unusual man.\r
+Simple, deeply educated person, more than fifty years dedicated to mediumship.
+He is a world-leading figure, both in the spiritist environment and outside of
+it, because his culture, his knowledge, as well as his mediumship are business
+cards that earned him respect and credibility, even by skeptics who bow to the
+culture of this unusual man.\r
 
-More than 40 years in the service of others, especially dedicated to street boys in Brazil, have made it a focus of attention.\r
+More than 40 years in the service of others, especially dedicated to street boys
+in Brazil, have made it a focus of attention.\r
 
-Of humble origin, at the age of 20, he founded the Mansion of the Way, enormous care work, in Salvador, \r
-in Bahia, for which more than 40,000 street children have passed, who have found guidance for a worthy future there.\r
+Of humble origin, at the age of 20, he founded the Mansion of the Way, enormous
+care work, in Salvador, \r in Bahia, for which more than 40,000 street children
+have passed, who have found guidance for a worthy future there.\r
 
-World-renowned lecturer, is Doctor Honoris Cause by the College and Government of Montreal \r
-(Province of Quebec-Canada) and the University of Vienna. \r
-He has been in the UN six times, as well as in the Sorbonne, among other prominent places.\r
+World-renowned lecturer, is Doctor Honoris Cause by the College and Government
+of Montreal \r (Province of Quebec-Canada) and the University of Vienna. \r He
+has been in the UN six times, as well as in the Sorbonne, among other prominent
+places.\r
 
 ## Origin \r
 Of humble origin, Divaldo Pereira Franco was born on May 5, 1927, in the city of Feira de Santana, Bahia. Son of Francisco Pereira Franco and Ana Alves Franco (disembodied), since childhood, communicates with the Spirits. He attended the Normal Rural School of Feira de Santana, receiving a primary teacher's degree in 1943.\r

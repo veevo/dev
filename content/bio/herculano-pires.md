@@ -79,11 +79,11 @@ school of medicine and in several cities and colleges in the interior.
 He founded the São Paulo Spiritist Journalists Club on 01/23/1948. The club
 worked for 22 years.
 
-Mr. Herculano was a member of the Paulista Academy of Journalism where he held the
-Chair "Cornélio Pires" in 1964.
+Mr. Herculano was a member of the Paulista Academy of Journalism where he held
+the Chair "Cornélio Pires" in 1964.
 
-Mr. Herculano also belonged to the Brazilian Union of Writers, where he served as
-Director and Member of the Board in 1964.
+Mr. Herculano also belonged to the Brazilian Union of Writers, where he served
+as Director and Member of the Board in 1964.
 
 José Herculano Pires was Head of the Subcabinet of the Civil House of the
 Presidency of the Republic under Mr. Jânio Quadros in 1961, a role in which he

@@ -12,30 +12,44 @@ topics:
 - materialization
 ---
 
-Scheilla is the name of a spirit to which Brazilian mediums like Chico Xavier and 
-João Nunes Maia attribute the authorship of certain psychographed works.
+Scheilla is the name of a spirit to which Brazilian mediums like Chico Xavier
+and João Nunes Maia attribute the authorship of certain psychographed works.
 
-France
-According to spiritist accounts, in one of their past lives, Scheila would have lived in France, as Joana Francisca Frémiot 
-(Dijon, 28 January 1572 - Moulins, 13 December 1641). 
+France According to spiritist accounts, in one of their past lives, Scheila
+would have lived in France, as Joana Francisca Frémiot (Dijon, 28 January 1572 -
+Moulins, 13 December 1641). 
 
-He married the baron of Chantal at the age of 20. Having lost her husband very early, 
-abandoned the world with his four children, sharing his time between prayers, 
-the pious works and their mother's duties. In 1604, having come to preach in Dijon, the bishop of 
-Geneva, St. Francis of Salles, underwent his spiritual direction. 
+He married the baron of Chantal at the age of 20. Having lost her husband very
+early, abandoned the world with his four children, sharing his time between
+prayers, the pious works and their mother's duties. In 1604, having come to
+preach in Dijon, the bishop of Geneva, St. Francis of Salles, underwent his
+spiritual direction. 
 
-They founded, in Annecy, the Congregation of the Visitation of Mary (1610), which counted, at the time of her death, with 87 convents and, in the first century, with 6,500 religious. The baroness of Chantal directed, as superior, from 1612 to 1619 the house she had founded in Paris, in the neighborhood of St. Anthony.
+They founded, in Annecy, the Congregation of the Visitation of Mary (1610),
+which counted, at the time of her death, with 87 convents and, in the first
+century, with 6,500 religious. The baroness of Chantal directed, as superior,
+from 1612 to 1619 the house she had founded in Paris, in the neighborhood of St.
+Anthony.
 
-In Paris, they settled in small rented house in poor neighborhood. They went through great needs, but the Order of Visitation (of Paris) increased and overcome the difficulties. In 1619, São Vicente de Paulo was superior of the Convent of the Order of Visitation. Saint Joan of Chantal left the position of superior of the Order of Visitation and returned to Annecy, where the mother house of the order was. The Saint repeatedly saw Saint Vincent de Paul, his confessor and spiritual director.
+In Paris, they settled in small rented house in poor neighborhood. They went
+through great needs, but the Order of Visitation (of Paris) increased and
+overcome the difficulties. In 1619, São Vicente de Paulo was superior of the
+Convent of the Order of Visitation. Saint Joan of Chantal left the position of
+superior of the Order of Visitation and returned to Annecy, where the mother
+house of the order was. The Saint repeatedly saw Saint Vincent de Paul, his
+confessor and spiritual director.
 
-She was married, at the age of 20, by the baron of Chantal. In 1604, having heard preach in Dijon, the bishop of 
-Geneva, St. Francis of Salles, underwent his spiritual direction. Together they founded, in Annecy, the 
-Congregation of the Visitation of Mary (1610), which, at the time of her death, already had 87 convents and, 
-in the first century of existence, with 6,500 religious. 
+She was married, at the age of 20, by the baron of Chantal. In 1604, having
+heard preach in Dijon, the bishop of Geneva, St. Francis of Salles, underwent
+his spiritual direction. Together they founded, in Annecy, the Congregation of
+the Visitation of Mary (1610), which, at the time of her death, already had 87
+convents and, in the first century of existence, with 6,500 religious. 
 
-The baroness of Chantal drove, as superior, from 1612 to 1619 the house she founded in Paris, in the district of 
-St. Anthony. She left the position of superior of the Order of Visitation and returned to Annecy, where the 
-mother house of order. She was canonized in 1767 by the Catholic Church as Saint Joan of Chantal.
+The baroness of Chantal drove, as superior, from 1612 to 1619 the house she
+founded in Paris, in the district of St. Anthony. She left the position of
+superior of the Order of Visitation and returned to Annecy, where the mother
+house of order. She was canonized in 1767 by the Catholic Church as Saint Joan
+of Chantal.
 
 ### Germany
 In another incarnation, under the name of Scheilla, he would have lived in Germany at the time of the 

@@ -7,36 +7,43 @@ topics:
 - brazil
 ---
 
-Fernando Miramez de Olivídeo was born in Spain and, as a young man, deepened 
-in the history of the peoples and nations of the Earth showing great interest 
-in the discovery of the Americas, falling in love with the lands of Santa Cruz.
+Fernando Miramez de Olivídeo was born in Spain and, as a young man, deepened in
+the history of the peoples and nations of the Earth showing great interest in
+the discovery of the Americas, falling in love with the lands of Santa Cruz.
 
-In 1649 Miramez descends on the coast of Brazil. Barefoot your boots and step 
-the ground, tears mares your eyes and fall into generous soil. At this moment 
-Earth and Spirit made an exchange of energies and values, whose beneficial 
+In 1649 Miramez descends on the coast of Brazil. Barefoot your boots and step
+the ground, tears mares your eyes and fall into generous soil. At this moment
+Earth and Spirit made an exchange of energies and values, whose beneficial
 results would be observed through the ages.  
 
-In a short time, indigenous and African dialects have spoken, catechizing and 
+In a short time, indigenous and African dialects have spoken, catechizing and
 relieving physical and spiritual pain saches of humble brothers.
 
-iramez is the spiritual guide of medium João Nunes Maia and guides him since 1958, 
-when he first spoke during a meeting at the Spiritist Union of Minas Gerais, in 
-Belo Horizonte. 
+iramez is the spiritual guide of medium João Nunes Maia and guides him since
+1958, when he first spoke during a meeting at the Spiritist Union of Minas
+Gerais, in Belo Horizonte. 
 
-Fernando Olivídeo was Spanish and, in the service of the King of Spain, stepped on 
-Brazilian lands never to leave. He donated all his possessions in his homeland 
-and became protector of Indians and blacks, being called White Father.
+Fernando Olivídeo was Spanish and, in the service of the King of Spain, stepped
+on Brazilian lands never to leave. He donated all his possessions in his
+homeland and became protector of Indians and blacks, being called White Father.
 
-The Spanish nobleman had great interest in the stories of the peoples and nations 
-of the Earth. He was looking for information on the findings of Christopher Columbus 
-and Pedro Álvares Cabral and, even without knowing them, he already felt affection 
-for the Land of Santa Cruz. Intelligent boy and scholar had great affection for the 
-humble people, for the Indians invaded in their culture, by the blacks who suffered 
-under the whips.
+The Spanish nobleman had great interest in the stories of the peoples and
+nations of the Earth. He was looking for information on the findings of
+Christopher Columbus and Pedro Álvares Cabral and, even without knowing them, he
+already felt affection for the Land of Santa Cruz. Intelligent boy and scholar
+had great affection for the humble people, for the Indians invaded in their
+culture, by the blacks who suffered under the whips.
 
-The king's friendship, Philip IV, facilitated the realization of Miramez's ancient desire: to know the lands of the New World. The king knew the principles of integrity and the high morale of Ferdinand. However, He thought he had some shortcomings to correct: he was averse to wars, repudiated violence and defended the rights of peoples and, especially, individuals.
+The king's friendship, Philip IV, facilitated the realization of Miramez's
+ancient desire: to know the lands of the New World. The king knew the principles
+of integrity and the high morale of Ferdinand. However, He thought he had some
+shortcomings to correct: he was averse to wars, repudiated violence and defended
+the rights of peoples and, especially, individuals.
 
-Appointed by the king to carry out an ambitious mission of land ownership and to contain Portuguese might, Miramez realizes the opportunity to know and live in the Land of Santa Cruz, and participate in his preparation as the Homeland of the Gospel.
+Appointed by the king to carry out an ambitious mission of land ownership and to
+contain Portuguese might, Miramez realizes the opportunity to know and live in
+the Land of Santa Cruz, and participate in his preparation as the Homeland of
+the Gospel.
 
 ## The language of the heart 
 In 1649, Miramez landed as a tourist in Maranhão. In Brazilian lands, he transmits only the events that could be beneficial to Brazil to the sovereign of Spain, omitting the news that could harm the peoples who already lived on earth.

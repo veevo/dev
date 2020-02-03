@@ -18,55 +18,37 @@ felizarda, a mãe do aguardado Messias.
 Nas noites povoadas de sonhos, era visitada por mensageiros que lhe falavam de
 quefazeres que ela guardava na intimidade d'alma.
 
-Então, naquela madrugada, quase manhã do princípio da primavera, em Nazaré,
-uma voz a chamou: "Miriam". Seu nome egípcio-hebraico, significa "querida de
-Deus".
+Então, naquela madrugada, quase manhã do princípio da primavera, em Nazaré, uma
+voz a chamou: "Miriam". Seu nome egípcio-hebraico, significa "querida de Deus".
 
-Ela despertou. "Que estranha claridade era aquela em seu quarto? Não provinha
-da porta. Não era o Sol, ainda envolto, àquela hora, no manto da noite quieta.
-De quem era aquela silhueta? Que homem era aquele que ousava adentrar seu
-quarto?"
+Ela despertou. "Que estranha claridade era aquela em seu quarto? Não provinha da
+porta. Não era o Sol, ainda envolto, àquela hora, no manto da noite quieta.  De
+quem era aquela silhueta? Que homem era aquele que ousava adentrar seu quarto?"
 
-"Sou Gabriel", identifica-se, "um dos mensageiros de Yaveh. Venho confirmar-te
-o que teu coração aguarda, de há muito. Teu seio abrigará a glória de Israel.
-Conceberás e darás à luz um filho e lhe porás o nome de Jesus. Ele será grande
-e será chamado Filho do Altíssimo e o seu reino não terá fim."
+"Sou Gabriel", identifica-se, "um dos mensageiros de Yaveh. Venho confirmar-te o
+que teu coração aguarda, de há muito. Teu seio abrigará a glória de Israel.
+Conceberás e darás à luz um filho e lhe porás o nome de Jesus. Ele será grande e
+será chamado Filho do Altíssimo e o seu reino não terá fim."
 
 Maria escuta. As palavras lhe chegam, repassadas de ternura e pela sua mente,
 transitam os dizeres proféticos.
 
-Sente-se tão pequena para tão grande mister. Ser a mãe do Senhor. Ela
-balbucia: "Eis aqui a escrava do Senhor. Cumpra-se em mim segundo a tua
-palavra."
+Sente-se tão pequena para tão grande mister. Ser a mãe do Senhor. Ela balbucia:
+"Eis aqui a escrava do Senhor. Cumpra-se em mim segundo a tua palavra."
 
 O mensageiro se vai e ela aguarda. Lucas lhe registraria, anos mais tarde, o
 cântico de glória, denominado Magnificat:
 
-```
-"A minha alma glorifica o Senhor!
-E o meu espírito exulta[de alegria]
-Em Deus, meu Salvador!
-Porque, volvendo o olhar à baixeza da terra,
-Para a minha baixeza e humildade atentou.
-E eis, pois, que, desde agora, e por todos os tempos,
-Todas as gerações me chamarão
-Bem-aventurada!
-Porque me fez grandes coisas o Poderoso
-E santo é o seu nome!
-E a sua misericórdia [se estende]
-De geração em geração,
-Sobre os que o temem.
-Com seu braço valoroso
-Destruiu os soberbos
-No pensamento de seus corações.
-Depôs dos tronos os poderosos
-E elevou os humildes.
-Encheu de bens os famintos
-E despediu vazios os ricos.
-Cumpriu a palavra que deu a Abraão,
-Recordando-se da promessa
-Da sua misericórdia!" (Lucas, I, 46 a 55)
-```
+``` "A minha alma glorifica o Senhor!  E o meu espírito exulta[de alegria] Em
+Deus, meu Salvador!  Porque, volvendo o olhar à baixeza da terra, Para a minha
+baixeza e humildade atentou.  E eis, pois, que, desde agora, e por todos os
+tempos, Todas as gerações me chamarão Bem-aventurada!  Porque me fez grandes
+coisas o Poderoso E santo é o seu nome!  E a sua misericórdia [se estende] De
+geração em geração, Sobre os que o temem.  Com seu braço valoroso Destruiu os
+soberbos No pensamento de seus corações.  Depôs dos tronos os poderosos E elevou
+os humildes.  Encheu de bens os famintos E despediu vazios os ricos.  Cumpriu a
+palavra que deu a Abraão, Recordando-se da promessa Da sua misericórdia!"
+(Lucas, I, 46 a 55) ```
 
 Ela gerou um corpo para o ser mais perfeito que a Terra já recebeu. Seus seios
 se ofereceram úberes para alimentar-lHe os meses primeiros. Banhou-O,
@@ -77,21 +59,20 @@ vez, deverá ter pensado:
 poderei furtar à sanha dos homens. Por ora, amado meu, deixa-me guardar-te e
 proteger-te."
 
-Ela lhe acompanhou o crescimento. Viu-O iniciar o seu período de aprendizado
-com o pai, que lhe ensinou os versículos iniciais da Torá, conforme as
-prescrições judaicas, embora guardasse a certeza de que o menino já sabia de
-tudo aquilo.
+Ela lhe acompanhou o crescimento. Viu-O iniciar o seu período de aprendizado com
+o pai, que lhe ensinou os versículos iniciais da Torá, conforme as prescrições
+judaicas, embora guardasse a certeza de que o menino já sabia de tudo aquilo.
 
-Na sinagoga, O viu destacar-se entre os outros meninos, e assombrar os
-Doutores. O seu Jesus, seu filho, seu Senhor. Angustiou-se mais de uma vez,
-enquanto O contemplava a dormir. Que seria feito Dele?
+Na sinagoga, O viu destacar-se entre os outros meninos, e assombrar os Doutores.
+O seu Jesus, seu filho, seu Senhor. Angustiou-se mais de uma vez, enquanto O
+contemplava a dormir. Que seria feito Dele?
 
 No célebre episódio em Jerusalém, seu coração se inquietara a cogitar se não
 seria aquele o momento do início das grandes dores.
 
-A viuvez lhe chegou e ela viu o primogênito assumir os negócios da
-carpintaria. Suas mãos, considerava, tinham habilidade especial e a madeira se
-lhe submetia de uma forma toda particular.
+A viuvez lhe chegou e ela viu o primogênito assumir os negócios da carpintaria.
+Suas mãos, considerava, tinham habilidade especial e a madeira se lhe submetia
+de uma forma toda particular.
 
 Aquele era um filho diferente. Um olhar bastava para que se entendessem. Tão
 diferente dos demais, que não tinham para com ela a mesma ternura...
@@ -131,12 +112,11 @@ abraçassem os inovadores ensinos.
 Ao pé da cruz, junto ao Apóstolo João, ouviu a expressão do carinho filial se
 externar, outra vez: "Mulher, eis aí teu filho". E a confia ao jovem apóstolo.
 
-Ela estaria presente, quando das Suas aparições, após a morte. Vê-lO-ia mais
-de uma vez. E compreenderia: aquele corpo era diferente. Não era o que fora
-gerado em seu ventre. Embora se deixasse tocar, para dar-se a conhecer, era de
-substância muito diversa aquele corpo. Ela o sabia.
-Viu-O desaparecer perante os olhos assombrados dos quinhentos discípulos, na
-Galiléia, na Sua despedida.
+Ela estaria presente, quando das Suas aparições, após a morte. Vê-lO-ia mais de
+uma vez. E compreenderia: aquele corpo era diferente. Não era o que fora gerado
+em seu ventre. Embora se deixasse tocar, para dar-se a conhecer, era de
+substância muito diversa aquele corpo. Ela o sabia.  Viu-O desaparecer perante
+os olhos assombrados dos quinhentos discípulos, na Galiléia, na Sua despedida.
 
 E, amparada por João, seguiu a Éfeso, mais tarde. Ali, numa casinha de onde
 podia ouvir o mar, balbuciando cantigas, viveu o Amor que Ele ensinara.
@@ -146,16 +126,15 @@ mãos e ouvir as delícias das recordações daquele que era o Caminho, a Verdad
 a Vida.
 
 Numa tarde serena, ela atendeu um homem. Serviu-lhe o alimento e seu coração
-extravasou saudade. Quanta a tinha do filho amado.
-Então, o viajor se deu a conhecer:
-"...minha mãe, sou eu!... Venho buscar-te, pois meu Pai quer que sejas no meu
-reino a Rainha dos Anjos." 2
+extravasou saudade. Quanta a tinha do filho amado.  Então, o viajor se deu a
+conhecer: "...minha mãe, sou eu!... Venho buscar-te, pois meu Pai quer que sejas
+no meu reino a Rainha dos Anjos." 2
 
 João, chamado às pressas, ainda lhe pôde assistir o derradeiro suspiro e o
-espírito liberto adentrou a Espiritualidade.
-Ainda e sempre amorosa, seu primeiro pensamento foi visitar os cristãos que
-estavam em Roma, sofrendo o martírio e os foi animar a cantar, enquanto
-conduzidos ao suplício, na arena circense.
+espírito liberto adentrou a Espiritualidade.  Ainda e sempre amorosa, seu
+primeiro pensamento foi visitar os cristãos que estavam em Roma, sofrendo o
+martírio e os foi animar a cantar, enquanto conduzidos ao suplício, na arena
+circense.
 
 Mais tarde, notícias nos chegariam de que a suave mãe de Jesus, Maria, foi por
 Ele incumbida de assistir os foragidos da vida, os infelizes suicidas; detalhes
