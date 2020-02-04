@@ -1,5 +1,5 @@
 ---
-title: Spirits
+title: Spirit
 date: 2019-02-01 19:00:00
 topics:
 - spirit
@@ -8,11 +8,32 @@ topics:
 ## Definition
 Spirit [from Latin spiritu ] - 
 
-In the special sense of the Spiritist Doctrine, the Spirits are the intelligent beings 
-of creation, who populate the Universe outside the material world and constitute the invisible world. 
+## The intelligent principle
+The essential nature of spirit has yet to be revealed to humans. But one can
+think of a spirit as “the intelligent principle of the universe” with their
+individual qualities, virtues, deffects and particular intelligence.
 
-They are not beings of a special creation, but the souls of those who lived on Earth or 
-in the other spheres and left the body shell.
+Spirit is not matter. However, the union between spirit and matter is necessary
+to provide the spirit with tools to manifest itself, learn and progress. From
+the human perspective, since our senses aren’t designed to perceive spirits
+apart from matter, this union is also necessary for the manifestation of
+intelligent activity.  
+
+Spirits are the intelligent beings of the universe, created by God "simple
+and ignorant" but destinated to be perfect, pure and happy as the model and
+guide of humanity, Jesus.
+
+## Incarnate/Discarnate
+Spirits can be either incarnate (incorporated in a material body and living
+in the material world) or as discarnate (freed from a material body and
+living in the spiritual realm).
+
+In the special sense of the Spiritist Doctrine, the Spirits are the intelligent
+beings of creation, who populate the Universe outside the material world and
+constitute the invisible world. 
+
+They are not beings of a special creation, but the souls of those who lived on
+Earth or in the other spheres and left the body shell.
 
 ## What is a Spirit 
 Human Being is a Spirit incarnated in a material body. The perispirit is the semi-material body that unites the Spirit to the physical body.

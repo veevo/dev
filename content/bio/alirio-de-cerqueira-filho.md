@@ -8,25 +8,25 @@ topics:
 - alirio-cerqueira
 ---
 
-Alírio de Cerqueira Filho é médico e natural de Cuiabá-MT, onde reside.
+Alírio de Cerqueira Filho is a doctor and natural from Cuiabá-MT, where he resides.
 
-Espírita desde 1978 e vinculado à Federação Espírita do Estado do Mato Grosso, é
-autor de vários livros e tem se dedicado com afinco à disseminação da conhecida
-proposta da benfeitora espiritual Joanna de Ângelis, que, como se sabe, tem
-produzido contínuas obras que formam o que, em nosso meio, é conhecido como
-coleção ou série psicológica.
+Spiritist since 1978 and linked to the Spiritist Federation of the State of Mato Grosso, is
+author of several books and has dedicated himself with hard to the dissemination of the well-known
+proposal of spiritual benefactor Joanna de Ângelis, who, as we know, has
+produced continuous works that form what, in our country, is known as
+psychological collection or series.
 
-Alírio de Cerqueira realiza palestras e seminários por todo o Brasil e no
-exterior.
+Alírio de Cerqueira holds lectures and seminars throughout Brazil and in the
+Outside.
 
-Dentre seus vários livros, podemos citar:
+Among his many books, we can mention:
 
-* O Legado de Paulo de Tarso ao Cristianismo Redivivo
-* Depressão e obsessão: duas faces de uma doença espiritual
-* A prática da mediunidade com Jesus
-* Jesus: modelo e guia da família
-* A sublime oração de Francisco de Assis
-* Psicoterapia à luz do Evangelho de Jesus
+* Paul's Legacy of Tarsus to Redivivo Christianity
+* Depression and obsession: two faces of a spiritual disease
+* The practice of mediumship with Jesus
+* Jesus: model and family guide
+* The sublime prayer of Francis of Assisi
+* Psychotherapy in the light of the Gospel of Jesus
 
 
 ## Bibliografias Relacionadas
